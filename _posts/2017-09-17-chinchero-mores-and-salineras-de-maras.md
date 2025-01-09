@@ -15,9 +15,9 @@ We then haggled a fare with a shared taxi to give us a ride to Moray, which is a
 We then got another shared taxi to get to Salineras de Maras. This is basically a collection of terraced salt ponds that the locals use to extract salt to this date. This is a fantastic place for photography! I enjoyed walking around and trying different angles and perspectives. I wish I had a tele lens though. 
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjx0w96VnsM5QGtmMF67ibuDBt5KhQ_aftfVXzAzkqBrknjVg8p-i3JhiLvewIp7tToxMxbsVXxrgRSo2Q231Is_TT9_TNso18a_RIvt3xwq5sOR1O-FIMmvTdDUHGmCpfKgJWdsOU9qqvQ/s5000/%255BUNSET%255D)
-We then walked along the salt ponds until we reached the main road where we rode a minivan to Urubamba. The whole trip cost us just shy of 50 sols, which is around $15. A tour would have cost us around $70, and we would not have been in control. 
+We then walked along the salt ponds until we reached the main road where we rode a minivan to Urubamba. The whole trip cost us just shy of 50 sols, which is around \$15. A tour would have cost us around \$70, and we would not have been in control. 
 
-Back in Urubamba, I got a 4G prepaid Sim card for 10 sols ($3), with 300 MB of internet. I can charge for another 15 sols to add up another 1 GB. Before the trip, I wanted to get the Project Fi to get international internet coverage, but this is much cheaper, and it was hassle-free. 
+Back in Urubamba, I got a 4G prepaid Sim card for 10 sols (\$3), with 300 MB of internet. I can charge for another 15 sols to add up another 1 GB. Before the trip, I wanted to get the Project Fi to get international internet coverage, but this is much cheaper, and it was hassle-free. 
 
 We had some good food at Paca Paca, and then returned to the lodge, where we again reminded the owner about the hot water issue, and they turned on their electric heater again, so thankfully we had a warm shower (last night the water was at best just tepid).
 

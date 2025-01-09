@@ -19,7 +19,7 @@ Well, not sure yet. We're gonna arrive in Lima, but I'm thinking of taking anoth
 ### 
 How much would it cost?
 
-It's not going to be cheap. Flights are pretty expensive, and Peru is not as cheap as India was. I spent $1000 for a month-long trip, but Peru is going to be two or three times more expensive. I also don't want to roughen it up this time.
+It's not going to be cheap. Flights are pretty expensive, and Peru is not as cheap as India was. I spent \$1000 for a month-long trip, but Peru is going to be two or three times more expensive. I also don't want to roughen it up this time.
 ### 
 Cut to the chase; what photography gear you're gonna bring with you?
 

@@ -34,7 +34,7 @@ General observations
 
 - The Canon focuses closer than the Voigtlander (30 cm vs 38 cm).
 
-- The Canon and the Voigtlander are priced at $199 and $499, respectively.
+- The Canon and the Voigtlander are priced at \$199 and \$499, respectively.
 
 - What I like about the Voigtlander is the included weird-shaped lens hood, that doubles up as a very good protection of the front element. I also like the old school depth of field indicator on the Voigtlander. It comes very handy.
 
