@@ -7,7 +7,7 @@
 In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-around-world-begins.html), we (a family of three) embarked on a nine-month-long round-the-world journey, visiting 15 countries across Europe, the Middle East, Southeast Asia, and Oceania. Summarizing such an extensive trip in a single blog post is impossible, but I’ll give it a try to help myself process it all. This might not make perfect sense to others since it’s just a bunch of bullet points with little explanations, but if you’re curious, you can check the individual blog posts for more details and my [Instagram](https://www.instagram.com/photopensieve/) for the photos. Unlike nine months of routine life—which can often be condensed into a few lines about work and the occasional vacation—traveling seems to stretch time, filling it with countless memories. So, here’s my attempt to sum up this incredible journey.
 
 
-# We visited awe-inspring historical sites
+## We visited awe-inspring historical sites
 
 * Knossos Palace in Crete
 * Acropolis and Ancient Agora of Athens
@@ -18,7 +18,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Prambanan Temples in Java
 * Borobudur Temple in Java
 
-# We explored breathtaking natural wonders
+## We explored breathtaking natural wonders
 
 * Amazing island of Santorini
 * Geological wonders in Hurmoz Island
@@ -32,7 +32,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Moorea landscape
 * Bora Bora island and lagoon
 
-# We visited iconic cities
+## We visited iconic cities
 
 * Strasbourg
 * Bangkok
@@ -42,7 +42,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Singapore
 * Sydney
 
-# We explored charming small towns
+## We explored charming small towns
 
 * Cochem in Germany
 * Colmar and other small Alsacian towns in France
@@ -52,7 +52,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Hoi An in Vietnam
 * Ubud in Bali
 
-# We enjoyed spectacular beaches
+## We enjoyed spectacular beaches
 
 * Chania in Crete
 * Qeshm in Iran
@@ -65,7 +65,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Ofetaro Motu in Raiatea
 * Matira Beach in Bora Bora (the best, by far!)
 
-# We encountered incredible wildlife
+## We encountered incredible wildlife
 
 * Elephant sanctuary in Krabi, Thailand
 * The aquarium in Kuala Lumpur
@@ -76,7 +76,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Pearl farms in Raiatea, French Polynesia
 * Swimming with large mantas, eagle rays, stingrays, moray eel, and sharks in Bora Bora
 
-# We indulged in exquisite dishes
+## We indulged in exquisite dishes
 
 * Munster cheese in Colmar
 * French cuisine all over France
@@ -93,7 +93,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * All the tropical fruit we had across Southeast Asia
 * Grapefruits in French Polynesia
 
-# We met up with family and friends around the world
+## We met up with family and friends around the world
 
 * My cousin and his wife in Hambourg
 * Friends in Greece
@@ -103,7 +103,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Another cousin and his wife in Sydney
 * Old friends in Sydney
 
-# We had truly unique experiences
+## We had truly unique experiences
 
 * The circumnavigation of the earth
 * Renting and driving a tuk-tuk in Koh Yao Yai, Thailand
@@ -112,7 +112,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Vanlife in Sunshine Coast, Australia
 * Experiencing a dark cave with glow worms in New Zealand
 
-# We experienced unforgettable attractions
+## We experienced unforgettable attractions
 
 * Miniatur Wunderland in Hamboug
 * War Memorial Museum in Saigon
@@ -120,7 +120,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Science Museum in Singapore
 * Hobbiton in New Zealand
 
-# We enjoyed memorable accommodations
+## We enjoyed memorable accommodations
 
 * Farm stay in Colmar
 * Hotel with the million-dollar view in Santorini
@@ -135,7 +135,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Room with a view in Sidemen in Bali
 * Noosa North Beach campsite by the beach and its resident kangaroos
 
-# We captured stunning photographs
+## We captured stunning photographs
 
 * Eltz Castle in Germany
 * Alsacian old towns such as Riquewihr, Eguisheim, and Colmar
@@ -160,7 +160,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Noosa National Park in Australia
 * Views of Bora Bora from its lagoon
 
-# Most memorable highlights of the trip
+## Most memorable highlights of the trip
 
 * Early morning photography at Eltz Castle
 * Our farm stay in Colmar
@@ -193,7 +193,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Snorkeling with sharks in Bora Bora
 * Snorkeling in coral gardens in Mo’orea, Taha’s, and Bora Bora
 
-# What wasn’t so good?
+## What wasn’t so good?
 
 Surprisingly, just a few things come to mind, and even those were minor anyways:
 
