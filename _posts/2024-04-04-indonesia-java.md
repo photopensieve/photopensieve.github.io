@@ -59,7 +59,7 @@ The second day, we also went to the Mt. Bromo crater. We started with a jeep rid
 
 Witnessing the sunrise over Mt. Bromo and the surrounding volcanoes was an unforgettable experience, a memory (and pictures) that will stay with us for the rest of our lives! Our next stop is going to be the most famous island of Bali.
 
-#
+
 # Tips about visiting Mt. Bromo for the sunrise
 
 * First let me clarify that it's somewhat inaccurate to refer to the entire area as Mt. Bromo, as that name specifically applies to one of the volcanoes—the small one that consistently emits smoke. The other volcanoes in the vicinity have their own distinct names, but the collective term "Mt. Bromo" is commonly used to describe the entire complex.

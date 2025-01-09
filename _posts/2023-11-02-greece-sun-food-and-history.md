@@ -57,7 +57,7 @@ Lastly, Athens is not the most stroller-friendly city in Europe, though I still 
 
 This was the end of our visit to Greece. It was our first time in Greece, and we will certainly return! Next time, I would probably focus on some other Greek islands, sites like Olympia and Delphi, and the Peloponnese which is rich in history, and has amazing beaches. But for now, our next destination is Iran, visiting family for a prolonged period of time, and maybe (hopefully) doing some travels inside Iran. Stay tuned!
 
-#
+
 # Prologue
 
 We had an amazing time visiting Germany, France, Luxembourg, and Greece in this trip. We met with friends and family, and enjoyed having great food, visiting beaches, picturesque places, and ancient sites. But at the same time, we came to know that our family in Iran faced challenges with two immediate members battling cancer. Thankfully, they're fine now, but it was a worrying time for us. Each day mixed amazing travel experiences with concern for our loved ones. Our travel planning was affected, often planning on the go as we considered shortening the trip. In the end, we did cut it short, but we were grateful to see them back home, in better conditions. This experience reminded us to seize the day and not postpone our wishes. We're aware of how fortunate we are being in good health and able to travel - something we can’t take for granted.

@@ -69,7 +69,7 @@ We spent two amazing weeks in Hong Kong and Taipei, and we couldn’t have spent
 
 # FAQ
 
-#
+
 # Which one had better public transportation system?
 
 Moving around in Hong Kong is easy thanks to the world-class public transportation system. The buses and subways (MTR) are well-connected, fast, and convenient. When visiting Hong Kong, you certainly should get the Octopus Card to easily tap in and out to pay for the transit, but even better is to use the “Octopus for Tourists” app and use your NFC-enabled smartphone or watch. It is super convenient. The only downside is that you pay in your own currency, which means you get a slightly less favorable conversion rate, but I think it’s worth it for the comfort.
@@ -78,17 +78,17 @@ Taipei is basically the same story with their own version of MTR, and the so-cal
 
 But the most convenient public transportation system in the world when it comes to payment system is, in my opinion, London, though it is not the most modern or the cleanest. London’s tube is not only efficient and well-connected, but it also has the best payment system possible, as I explained in my [London travel blog](https://photopensieve.blogspot.com/2022/08/uk-london-yorkshire-and-edinburgh.html). All you have to do is to tap in and out using your credit card, or phone/watch, and you’re good! They even automatically cap your daily transportation expenditure by tracking your daily travel costs, and charging you at the end of the day, which is brilliant. I wish all public transportation systems copy this method.
 
-#
+
 # Which one had better food?
 
 Well, this one is easy, and it would go to Taiwan. Food in Hong Kong and Taiwan are pretty similar, but Taiwanese food is more influential, and I would say tastier. Also, the night markets in Taipei are a big deal in Taiwan, but not so much in Hong Kong.
 
-#
+
 # How is traveling with a toddler in these cities?
 
 Basically, if you can travel with your kids in a large city, like London or New York, you won’t have any problem traveling in Taipei or Hong Kong either. Both have great public transportation, and are quite stroller friendly, though we didn’t have one.
 
-#
+
 # How is long-term traveling experience with a toddler?
 
 Well, this is a big topic on its own, but I have to say the big difference between a week or two-long vacation and long-term travel is that you can’t be just go go go. When you have 1 week off, you plan everything to efficiently visit all places of interest. Your child is probably pretty excited by the new sights and sounds for some time too. But when you travel long-term, you can’t keep doing that every single day, especially with a toddler. We deliberately stay longer than what a place needs, like a week instead of 4 days, to give ourselves some down times and slow days. We also don’t visit every single tourist attraction, and only do a handful of places during our visit. Slowing down allows our son to have his play time, and also factor in days that don’t go as planned. Having said that, there is no denying that we dearly miss daycare!

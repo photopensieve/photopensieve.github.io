@@ -64,14 +64,14 @@ With that, our nearly 4-week-long trip to Vietnam ended, and we flew to our next
 
 # FAQ
 
-#
+
 # What exotic foods did you try?
 
 Vietnam is famous for its exotic cuisine, and even though I am not an adventurous eater, I tried a couple of things: 1) Rare beef with ant eggs, which was a recipe from the Central Highlands region of Vietnam. The ant eggs didn’t taste like muchl; it was like a sour garnish with some texture. 2) Grilled frog, which surprisingly tasted okay, something in between fish and chicken.
 
 We also tried many different exotic fruits there such as mangosteen, passion fruit, rambutan, longan, pomelo, star apple, guava, dragon fruit and jackfruit, in the order of preference. We didn’t dare to try durian, as the smell is way too strong, but we tried the durian ice cream which had a pretty unpleasant aftertaste.
 
-#
+
 # How was visiting Vietnam during Tet holiday?
 
 Visiting Vietnam during Tet holiday offers a unique opportunity to immerse oneself in the country's vibrant cultural celebrations and witness traditional customs firsthand. The streets burst with colorful decorations, lively parades, and the aroma of festive foods, providing a captivating experience for travelers. However, it's important to consider the challenges that come with traveling during Tet, such as crowded transportation hubs and limited availability of public services as many people return home to be with their families, and most importantly the domestic over-tourism. Additionally, some businesses and tourist attractions may be closed or operate on reduced hours, potentially impacting travel plans and access to amenities. Frankly, I would highly advise against traveling to Vietnam during Tet holiday, if you can. Maybe travel up to a week before the holiday, but certainly skip the week before and after.

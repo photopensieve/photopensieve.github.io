@@ -29,7 +29,7 @@ Trier was another small town with a Roman-era gate, called Porta Nigra - since i
 
 It was in Trier that our little Jeep started acting up, and beeping loudly that the airbags are faulty. Luckily, there was a branch of the rental agency in town. After examination, they told us that we have to change the car, and the only car they had available was an electric Mercedes EQA. This was a nice (free) upgrade for us, and the first time driving an electric car for me. However, the challenge ahead was figuring out how to charge it – but I'll delve into that in more detail in the FAQ section.
 
-#
+
 # Luxembourg
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUtHE5Pk3ZVxR82YCOphG0N4ne6JLzwXxgKnlDfr9O-WwHs_srgvZvvnU9g5pWcgsoZ2gjLWP3yhuoG4N95N1I_S3KvGY2qYzRMk7U5VwhynPQ0jWWIX7Lq9F0nUVPIjMZmOa_VdwbPKm9VQMHrwnF3g2qBNpIpV4I4oIH3TIAVbI9fahhc5ghPXDvJwPq/w426-h640/R0005444.jpeg)
@@ -37,7 +37,7 @@ This part is embarrassingly (or expectedly?) short, as we just did a day-visit t
 
 Luxembourg (the city) is a nice upscale city, reminding me a lot of Zurich, for example. There was not much to see or do over there, but it was nice enough to spend a few hours walking around, especially down to the lower part of the city by taking elevators. I’m sure there are more to do and see in this rich and tiny country, but my search online didn’t show anything considerably noteworthy.
 
-#
+
 # France
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJW6NiYc37enpH57OATsLWPx5Y8s32HXglUaaeAVET7E7VxfiF2DbUkqWvh23KIJw-vfsZkEExl4J-hS2ZJ79Lld_a6jnJyNJWaopu7NqajVX2bnZPp7iylr_FlMfQnrJ0lZK42zFz-8r9X-EVdmyDWiRM0iBa-erHQtVRzsOmvHnRPJpCph4COOKfqHcj/w640-h480/DSC07879.jpeg)
@@ -53,10 +53,10 @@ The intriguing history of Alsace is evident in its unmistakable German influence
 
 We wrapped up the road trip with a night in a vineyard near Heidelberg - a city definitely worth exploring. The next day, we returned the car at Frankfurt Airport and hopped on a train to Hamburg, where we're currently visiting my cousin. After a few days of relaxation here, our next destination will be the beautiful Greek island of Crete! Stay tuned!
 
-#
+
 # FAQ
 
-#
+
 ## How was the experience of road tripping with an electric car in Europe?
 
 Before the trip, I had done a lot of research into this, as I personally wanted to rent an electric car - both for its novelty, and the fact that it has lower carbon footprint. However, all discussions on Reddit and elsewhere indicated that this is going to be a problem, because of the messy EV charging situation in Europe. Many charging stations require their bespoke RFID cards that should be obtained beforehand (and I’m not sure how it can be done from outside Europe). Others have their own app, or website, but many don’t accept American credit cards. It was so risky that I decided against it.
@@ -67,7 +67,7 @@ Apart from the charging situation, driving the Mercedes EQA was a great experien
 
 Now that I know electric cars can be charged at Tesla superchargers, I wouldn’t hesitate recommending road tripping with an EV, when possible. It’s not only greener, but also cheaper. We paid less than third of what we would have paid for gas for electricity. If you have a membership, or if you can charge at cheaper places, you can further lower the cost. EVs are also being rented out with similar or even lower prices as gas cars in certain places in Europe. Check them out!
 
-#
+
 ## How was the road trip with a toddler?
 
 Surprisingly good! Last year, we had some difficulties in our Italy road trip, as our son was only 14 months old, and didn’t enjoy being in the car, primarily because his car seat was rear-facing. This time around, he totally loved being in the car, spotting other cars and heavy machinery on the side of the road, whenever he could.

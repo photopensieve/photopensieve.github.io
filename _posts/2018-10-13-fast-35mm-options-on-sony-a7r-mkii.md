@@ -5,8 +5,8 @@
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjVotHkCqN-qGvs8OwrGq-RGKyq-EkNe_srOGucJuSgVkx7rtas5CRQggKmBZCatIYqlIMB3vI3VXxqU4Y2EEm2rAmKVUYIFuy6e-IxO_ofr14GVKNRg42unxaHGt8pGwZEAzTvXNYvuXbO/s640/IMG_4217.JPG)
 
 From left to right: Rokinon 35mm 1.4, Rokinon 35mm 1.2, and Sigma 30mm 1.4
-#
-## 
+
+
 Background
 
 For [my upcoming to India](https://photopensieve.blogspot.com/2018/09/were-going-back-to-india.html), I bought a used [Sony A7R mkII](https://photopensieve.blogspot.com/2018/09/gear-update.html) and the fantastic Sony 85mm 1.8, and now all I need is a fast 35mm lens to complete my arsenal of (two) lenses for portrait photography. I love 35mm focal length as it gives me room to put enough of environment with my subjects, but not too much. It also gives me the chance to get closer to people and take intimate portraits. Last time I went to India, I had the [Voigtlander 40mm F2.0](https://www.flickr.com/photos/8413680@N08/sets/72157702187722144) lens, and I loved it, but at times I wanted it to be wider, faster, and I missed the autofocus. So this time, I'm going to go back with a fast 35mm lens, and nothing less!
@@ -14,15 +14,15 @@ For [my upcoming to India](https://photopensieve.blogspot.com/2018/09/were-going
 Beware that this review is highly subjective, and based on some personal conditions and requirements: 1) I will mostly shoot wide open (read: shallow DOF), 2) I will almost exclusively use this lens for portraits, 3) I am doing backpacking, and carrying my gear in a Lowepro Passport Sling bag for 10-12 hours a day for two weeks, 4) I certainly won't do video with this lens, 5) my portrait photography style is mostly asking the people in the street if I can take their photos, so not working with models or staged photos, 6) I care less about sharpness edge-to-edge, and more for the bokeh quality and the look of the photo. That doesn't mean I can tolerate mushy glowy lenses though. The subject should be sharp and contrasty.
 
 Also, note that this is not a comprehensive review by any means. I simply don't have the time, desire and expertise to put these lenses through a thorough test. There are many fantastic reviews online for that purpose.
-#
-## 
+
+
 Options
 
 There are a few options on the Sony lineup for a fast 35mm lens. There is of course the venerable Sony Zeiss 35mm 1.4, but it is large, heavy and way too expensive. There is Sigma 35mm 1.4 which is almost equally good, heavy, but not as expensive. And there is Rokinon 35mm 1.4 which is supposedly equally good, heavy, and the least expensive of the bunch. There are less mainstream options as well: You can either adapt other lenses like Canon, Voigtlander, etc, or you can use Sony's APS-C lenses WITHOUT toggling the super-35mm option. The latter creates some minor or major vignetting, depending on the lens. Two options in this category are Rokinon 35mm 1.2, and the Sigma 30mm 1.4 (which I happen to own). 
 
 So for the rest of the review, I am going to compare the three lenses pictured above, and decide which to take with me to India.
-#
-## 
+
+
 Rokinon 35mm 1.4
 
 Pros:
@@ -37,8 +37,8 @@ Cons:
 
 2. (A minor issue) most expensive option in this comparison.
 
-#
-## 
+
+
 Rokinon 35mm 1.2
 
 Pros:
@@ -57,8 +57,8 @@ Cons:
 
 3. Not the lightest lens at 420 gr. No major complaints though.
 
-#
-## 
+
+
 Sigma 30mm 1.4
 
 Pros:

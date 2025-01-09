@@ -87,7 +87,7 @@ When you go somewhere for the first time, many things stand out as new, interest
 * We had a hard time finding public trash cans everywhere in Thailand, which was a bit frustrating. Not sure why that is the case.
 # FAQ
 
-#
+
 # How is traveling with a toddler in Thailand?
 
 Our son is now three months short of three years old, and things are quite a bit different than the last time we traveled in Europe. He is quite a pro traveler, and he specifically loves airports and air travel, so we have an easy time flying with him, which is fantastic. We also co-sleep during the trip, as it is difficult to secure a bed for him. It’s not the best, but what can you do.
@@ -96,7 +96,7 @@ One big challenge is food, as our son is a pretty picky eater. We always had to 
 
 Thailand was the first trip with our son without a stroller, which we left back in Iran. If you look around internet, most people recommend against bringing stroller to this part of the world, and I can see why. However, I think they exaggerate it a bit, and you still see many people rocking strollers in Thailand. We were okay not having one though, as our son is old enough that he can walk around more easily. He sometimes got tired and wanted to be carried, but that didn’t happen too often. But if he was younger, I would not hesitate to bring a stroller to Thailand. You have to leave it at the hotel when going to the beach, but that’s of course is a given.
 
-#
+
 # How much does it cost to travel in Thailand?
 
 Thailand is famous for being an affordable destination. It is certainly more affordable than say Europe, and we spent on average \$140 per day for a family of three, excluding the flight to and out of Thailand. In Europe, we spent like \$240 per day on average, in [our last Euro trip](https://photopensieve.blogspot.com/2022/04/sabbaticallong-term-travel-in-europe.html). Keep in mind that you can spend less or more than this, if you level up or down your accommodations, where you eat, and how you travel around.
