@@ -1,1 +1,3 @@
-Welcome to PhotoPensieve, a blog dedicated to photography and travel. The name comes from the Pensieve in Harry Potter, a device for storing and revisiting memories. Here, I capture experiences through images and share stories from my travels around the world.
+Welcome to PhotoPensieve, a blog where I capture my travel experiences, with a focus on history and photography. The name “PhotoPensieve” is inspired by the magical Pensieve from Harry Potter—a device used to store and revisit memories. Similarly, this space serves as my personal repository for cherished moments, captured through my lens and enriched by the tales of my journeys around the globe. 
+
+You can find me on [Instagram](https://www.instagram.com/photopensieve/).
