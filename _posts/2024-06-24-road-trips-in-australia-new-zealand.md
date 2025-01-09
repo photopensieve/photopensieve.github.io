@@ -1,4 +1,4 @@
-# Road Trips in Australia & New Zealand
+# Road Trips in Australia and New Zealand
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/06/road-trips-in-australia-new-zealand.html)*.
 
