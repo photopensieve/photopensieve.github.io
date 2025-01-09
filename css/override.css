@@ -1,3 +1,13 @@
+.post-content h1 {
+  font-size: 2em !important;
+}
+.post-content h2 {
+  font-size: 1.5em !important;
+}
+.post-content h3 {
+  font-size: 1.25em !important;
+}
+
 hr {
   margin-top: 30px;
   margin-bottom: 20px;
