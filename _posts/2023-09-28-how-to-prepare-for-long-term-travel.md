@@ -2,7 +2,8 @@
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2023/09/how-to-prepare-for-long-term-travel.html)*.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWQR9FqwjVFVeCRYNjxOpE2HPJ8-mSFF8qAxNWl8WvrzPjtq0QQtyy-w1SVFTo_IPEmNj6RPGeybLteY85BteAvEedXQiVICyErdbTK47cAEOa0uyChd7LRqXNgm9M9geeChiO9HVJYM_ta6M-SFZpbYe4RjRkUBiEL1ApW3p1V3srhLrEGL9Msqr_yUbW/w640-h493/IMG_3195.jpeg)Long-term travel comes in many flavors. Some prefer to hop between many places, while others embrace "slow-travel," settling in one spot for weeks or months. You'll find long-term travelers as backpackers catching flights, or camping with RV or campervan, or even crossing the sees on sailing boats. Some go the extra mile, walking or biking long distances. Regardless of your style, embarking on a long-term journey demands preparation. Beyond the usual flight bookings, hotel reservations, and destination research, extended travel requires additional readiness.
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWQR9FqwjVFVeCRYNjxOpE2HPJ8-mSFF8qAxNWl8WvrzPjtq0QQtyy-w1SVFTo_IPEmNj6RPGeybLteY85BteAvEedXQiVICyErdbTK47cAEOa0uyChd7LRqXNgm9M9geeChiO9HVJYM_ta6M-SFZpbYe4RjRkUBiEL1ApW3p1V3srhLrEGL9Msqr_yUbW/w640-h493/IMG_3195.jpeg)
+Long-term travel comes in many flavors. Some prefer to hop between many places, while others embrace "slow-travel," settling in one spot for weeks or months. You'll find long-term travelers as backpackers catching flights, or camping with RV or campervan, or even crossing the sees on sailing boats. Some go the extra mile, walking or biking long distances. Regardless of your style, embarking on a long-term journey demands preparation. Beyond the usual flight bookings, hotel reservations, and destination research, extended travel requires additional readiness.
 
 #
 # The decision

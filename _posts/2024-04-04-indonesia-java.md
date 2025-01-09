@@ -2,7 +2,8 @@
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/04/indonesia-java.html)*.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDNeF0D2xWo0J_XTtjUiN3AvQxHFJroVkf4Pabb3k57n6GQhVvJn09IVj-brCriyGcb_mxEpmL5RW0o5Tpj52ZHTwMF8e6BqUHpfMQNc5L7Ao4hqAsamUgqOdS6SPrM0F1jg5V0XK3V-tGAsDVLj9rQUOavHodrzlBBlpapf3-VQLfdwvyz8uzQQH8i1JM/w640-h360/DSC02478.jpg)After a short visit to Malaysia and Singapore, we arrived in Indonesia, where we plan to stay for an extended period of time, enjoying the most amazing nature and culture of the archipelago of Indonesia!
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDNeF0D2xWo0J_XTtjUiN3AvQxHFJroVkf4Pabb3k57n6GQhVvJn09IVj-brCriyGcb_mxEpmL5RW0o5Tpj52ZHTwMF8e6BqUHpfMQNc5L7Ao4hqAsamUgqOdS6SPrM0F1jg5V0XK3V-tGAsDVLj9rQUOavHodrzlBBlpapf3-VQLfdwvyz8uzQQH8i1JM/w640-h360/DSC02478.jpg)
+After a short visit to Malaysia and Singapore, we arrived in Indonesia, where we plan to stay for an extended period of time, enjoying the most amazing nature and culture of the archipelago of Indonesia!
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjqR8dapyfZFZ1z50YDC6A6PtU-SIlNUnqKEXQ0mB6nxOs1SVBjkQlgoBHxY02uV_D0UYtImKQ2Fjv7lbLej5WauQSTNSuwAIDy_8yi6-YM6S_xJWvVf-vXq7hZYo_qlj3MxKjyIJg_kKtKf3-mN8VBkwGhZ2wgYaef9Vcif5qYYubIiMD9PR0Sg1zMJxz0/w640-h496/IMG_6580.jpeg)
 # Overview of Indonesia

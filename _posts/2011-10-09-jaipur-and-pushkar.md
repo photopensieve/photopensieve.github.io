@@ -7,4 +7,8 @@ The train arrived at 4 AM in Jaipur with 5 hours of delay, and I was lucky to wa
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjfDSSSI5_Dj0W-sizcu_MS5VY1t7Emm6Rj18ZaNlqAeiWOdty-OuGbnFVcU-88t0wxPO4nGtnBdqEoG5dSNaET4h6AFQmhFEkxg7GDM9ZsFhq7zl1MPEd_HnmWemVgaglWZIjAH-0RLnQs/s320/photo+2-775688.JPG)
 
 Update - See some of the photos of this part of my trip [here](http://www.flickr.com/photos/8413680@N08/sets/72157627940912067/):
-![Jaipur - 1](http://farm7.static.flickr.com/6034/6318413560_036c68346c_s.jpg)![Jaipur - 2](http://farm7.static.flickr.com/6097/6317893803_f398d7ab9c_s.jpg)![Jaipur - 3](http://farm7.static.flickr.com/6236/6318414524_3453e6c821_s.jpg)![Jaipur - 4](http://farm7.static.flickr.com/6212/6317894529_3cc9790d87_s.jpg)![Jaipur - 5](http://farm7.static.flickr.com/6032/6318415198_d9bb75fe1c_s.jpg)![Jaipur - 6](http://farm7.static.flickr.com/6038/6317895165_4b334102ae_s.jpg)![Jaipur - 7](http://farm7.static.flickr.com/6222/6318416128_f753fb0921_s.jpg)![Jaipur - 8](http://farm7.static.flickr.com/6115/6317896149_8fa79ab621_s.jpg)
+![Jaipur - 1](http://farm7.static.flickr.com/6034/6318413560_036c68346c_s.jpg)
+![Jaipur - 2](http://farm7.static.flickr.com/6097/6317893803_f398d7ab9c_s.jpg)![Jaipur - 3](http://farm7.static.flickr.com/6236/6318414524_3453e6c821_s.jpg)
+![Jaipur - 4](http://farm7.static.flickr.com/6212/6317894529_3cc9790d87_s.jpg)![Jaipur - 5](http://farm7.static.flickr.com/6032/6318415198_d9bb75fe1c_s.jpg)
+![Jaipur - 6](http://farm7.static.flickr.com/6038/6317895165_4b334102ae_s.jpg)![Jaipur - 7](http://farm7.static.flickr.com/6222/6318416128_f753fb0921_s.jpg)
+![Jaipur - 8](http://farm7.static.flickr.com/6115/6317896149_8fa79ab621_s.jpg)

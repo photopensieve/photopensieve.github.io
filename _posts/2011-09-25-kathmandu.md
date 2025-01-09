@@ -12,4 +12,10 @@ I arrived in Kathmandu by Qatar Airlines last night. The flight was great, I got
 
 Update 1 Nov 2011:
 Find the photos of Kathmandu [here](http://www.flickr.com/photos/8413680@N08/sets/72157628022813446/) on flickr.
-![Kathmandu - 4](http://farm7.static.flickr.com/6047/6299749549_2331e21849_s.jpg)![Kathmandu - 1](http://farm7.static.flickr.com/6221/6300282554_a253d6b580_s.jpg)![Kathmandu - 2](http://farm7.static.flickr.com/6120/6300283074_5b340f45a4_s.jpg)![Kathmandu - 3](http://farm7.static.flickr.com/6104/6300283420_1dd902a6bf_s.jpg)![Kathmandu - 5](http://farm7.static.flickr.com/6049/6300284376_6159c2081e_s.jpg)![Kathmandu - 6](http://farm7.static.flickr.com/6093/6299750299_6bfd068632_s.jpg)![Kathmandu - 7](http://farm7.static.flickr.com/6034/6300285144_0a51de6215_s.jpg)![Kathmandu - 8](http://farm7.static.flickr.com/6217/6299751109_efd7ea7159_s.jpg)![Kathmandu - 9](http://farm7.static.flickr.com/6095/6299751463_76c1a5f6b8_s.jpg)![Kathmandu - 10](http://farm7.static.flickr.com/6049/6300286546_0b96701360_s.jpg)![Kathmandu - 11](http://farm7.static.flickr.com/6039/6299752825_8e1409b298_s.jpg)![Kathmandu - 12](http://farm7.static.flickr.com/6229/6300287798_a7c8df52ae_s.jpg)
+![Kathmandu - 4](http://farm7.static.flickr.com/6047/6299749549_2331e21849_s.jpg)
+![Kathmandu - 1](http://farm7.static.flickr.com/6221/6300282554_a253d6b580_s.jpg)![Kathmandu - 2](http://farm7.static.flickr.com/6120/6300283074_5b340f45a4_s.jpg)
+![Kathmandu - 3](http://farm7.static.flickr.com/6104/6300283420_1dd902a6bf_s.jpg)![Kathmandu - 5](http://farm7.static.flickr.com/6049/6300284376_6159c2081e_s.jpg)
+![Kathmandu - 6](http://farm7.static.flickr.com/6093/6299750299_6bfd068632_s.jpg)![Kathmandu - 7](http://farm7.static.flickr.com/6034/6300285144_0a51de6215_s.jpg)
+![Kathmandu - 8](http://farm7.static.flickr.com/6217/6299751109_efd7ea7159_s.jpg)![Kathmandu - 9](http://farm7.static.flickr.com/6095/6299751463_76c1a5f6b8_s.jpg)
+![Kathmandu - 10](http://farm7.static.flickr.com/6049/6300286546_0b96701360_s.jpg)![Kathmandu - 11](http://farm7.static.flickr.com/6039/6299752825_8e1409b298_s.jpg)
+![Kathmandu - 12](http://farm7.static.flickr.com/6229/6300287798_a7c8df52ae_s.jpg)

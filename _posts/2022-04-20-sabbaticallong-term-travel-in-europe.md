@@ -2,7 +2,8 @@
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/04/sabbaticallong-term-travel-in-europe.html)*.
 
-![](https://blogger.googleusercontent.com/img/a/AVvXsEhvJdnxAx5H-BjHMWfWmTyCxltOsCVXUiuIq_GuZ6RJVCB7nrcEsS_A3wDRQm_DSjlskPTpO8hAqhzvsuPZIYcLQx_veCu75Mk6rAOLZ7CkDdFY_GfPK1w4gJq85ZngMzRGEsSiDo21QKzgK-P7Szp9uCzmZGqXzs8bJaShGzRuuuEyiLsPnpzsrC5lJQ=w400-h224)TL;DR, we are going to depart on a long-term travel in Europe, starting in Rome, finding our way to Southern Italy. We don't have set plans for what comes next, but possibly we'll continue to Croatia, and more. Oh, and we're going to do that with a one-year-old!
+![](https://blogger.googleusercontent.com/img/a/AVvXsEhvJdnxAx5H-BjHMWfWmTyCxltOsCVXUiuIq_GuZ6RJVCB7nrcEsS_A3wDRQm_DSjlskPTpO8hAqhzvsuPZIYcLQx_veCu75Mk6rAOLZ7CkDdFY_GfPK1w4gJq85ZngMzRGEsSiDo21QKzgK-P7Szp9uCzmZGqXzs8bJaShGzRuuuEyiLsPnpzsrC5lJQ=w400-h224)
+TL;DR, we are going to depart on a long-term travel in Europe, starting in Rome, finding our way to Southern Italy. We don't have set plans for what comes next, but possibly we'll continue to Croatia, and more. Oh, and we're going to do that with a one-year-old!
 
 Well, a lot has happened in the last couple of years. Apart from the elephant in the room, COVID, and with all the curveballs it has thrown at the world, we had a baby in March 2021, and our lives have changed beyond what we had imagined. Gone are the days of traveling around the world... or so everyone was telling us! Little did they know that if you're bitten by the travel bug, there is no cure. It is of course quite challenging to travel with a toddler - and we are going to learn that the hard way - but I like to think that with some planning, flexibility, and lowering the expectations, it should be doable, and even daresay, enjoyable! We're going to test that hypothesis, and I'm going to report back here.
 

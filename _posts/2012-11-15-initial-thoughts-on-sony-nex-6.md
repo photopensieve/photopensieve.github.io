@@ -127,10 +127,17 @@ Cons
 
 And here are some of my shots with the [Sony NEX-6](http://www.flickr.com/photos/8413680@N08/sets/72157632391057336/).
 
-![Unisphere - 1](http://farm9.staticflickr.com/8224/8321129536_1b4f52c40f_s.jpg)![Dyker Heights Christmas Lights - 10](http://farm9.staticflickr.com/8074/8308614623_375fd10aa4_s.jpg)![Dyker Heights Christmas Lights - 3](http://farm9.staticflickr.com/8362/8309665824_36c9c8c4c7_s.jpg)![Flatiron Building](http://farm9.staticflickr.com/8493/8305264959_594db87a79_s.jpg)![Queensboro Bridge](http://farm9.staticflickr.com/8073/8301561281_faaac4fb05_s.jpg)![Radio City Music Hall](http://farm9.staticflickr.com/8491/8297833687_34c27907b7_s.jpg)
+![Unisphere - 1](http://farm9.staticflickr.com/8224/8321129536_1b4f52c40f_s.jpg)
+![Dyker Heights Christmas Lights - 10](http://farm9.staticflickr.com/8074/8308614623_375fd10aa4_s.jpg)![Dyker Heights Christmas Lights - 3](http://farm9.staticflickr.com/8362/8309665824_36c9c8c4c7_s.jpg)
+![Flatiron Building](http://farm9.staticflickr.com/8493/8305264959_594db87a79_s.jpg)![Queensboro Bridge](http://farm9.staticflickr.com/8073/8301561281_faaac4fb05_s.jpg)
+![Radio City Music Hall](http://farm9.staticflickr.com/8491/8297833687_34c27907b7_s.jpg)
 
-![Jah Hood Wright Park - 2](http://farm9.staticflickr.com/8214/8264730737_6cd09e6573_s.jpg)![Holiday times in NY - 2](http://farm9.staticflickr.com/8349/8238566789_5ddf80d156_s.jpg)![Holiday times in NY - 1](http://farm9.staticflickr.com/8070/8239633268_d854f86e67_s.jpg)![Black Friday - 7](http://farm9.staticflickr.com/8343/8211835893_e23ddf331c_s.jpg)
+![Jah Hood Wright Park - 2](http://farm9.staticflickr.com/8214/8264730737_6cd09e6573_s.jpg)
+![Holiday times in NY - 2](http://farm9.staticflickr.com/8349/8238566789_5ddf80d156_s.jpg)![Holiday times in NY - 1](http://farm9.staticflickr.com/8070/8239633268_d854f86e67_s.jpg)
+![Black Friday - 7](http://farm9.staticflickr.com/8343/8211835893_e23ddf331c_s.jpg)
 
-![Dyker Heights Christmas Lights - 7](http://farm9.staticflickr.com/8503/8308614307_2459eba2bd_s.jpg)![Jah Hood Wright Park - 1](http://farm9.staticflickr.com/8502/8264730681_1c21ebd914_s.jpg)
+![Dyker Heights Christmas Lights - 7](http://farm9.staticflickr.com/8503/8308614307_2459eba2bd_s.jpg)
+![Jah Hood Wright Park - 1](http://farm9.staticflickr.com/8502/8264730681_1c21ebd914_s.jpg)
 
-![Holiday times in NY - 5](http://farm9.staticflickr.com/8345/8239633688_0e175f1c0c_s.jpg)![Holiday times in NY - 4](http://farm9.staticflickr.com/8057/8239633560_fbbcd65e2c_s.jpg)
+![Holiday times in NY - 5](http://farm9.staticflickr.com/8345/8239633688_0e175f1c0c_s.jpg)
+![Holiday times in NY - 4](http://farm9.staticflickr.com/8057/8239633560_fbbcd65e2c_s.jpg)

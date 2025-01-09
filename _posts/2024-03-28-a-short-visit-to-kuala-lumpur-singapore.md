@@ -2,7 +2,8 @@
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/03/a-short-visit-to-kuala-lumpur-singapore.html)*.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj4YzQsjMc-FKm5Mxska61iBtNtljqANaI0_Vid4WBQrsNCFpMkfB1oJPbFRH2LDnGUp38zi_rfLUzvUtoqrfJ_M9QlAGzav_TT4KZgbeWaclQvoJSyOLTYpALJ_l_FBjpRGNmD6hGitAridTZNo4IF4uPStVcGPJjZrNFLFBqbtIiFldyOVhVP2hRFROjt/w480-h640/DSC02102.jpeg)We continue our SE Asia trip by visiting Kuala Lumpur and Singapore for 6 and 4 days, respectively. Malaysia and Singapore have a lot in common, which I’m going to touch on later, but there also have important differences.
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj4YzQsjMc-FKm5Mxska61iBtNtljqANaI0_Vid4WBQrsNCFpMkfB1oJPbFRH2LDnGUp38zi_rfLUzvUtoqrfJ_M9QlAGzav_TT4KZgbeWaclQvoJSyOLTYpALJ_l_FBjpRGNmD6hGitAridTZNo4IF4uPStVcGPJjZrNFLFBqbtIiFldyOVhVP2hRFROjt/w480-h640/DSC02102.jpeg)
+We continue our SE Asia trip by visiting Kuala Lumpur and Singapore for 6 and 4 days, respectively. Malaysia and Singapore have a lot in common, which I’m going to touch on later, but there also have important differences.
 
 Overview of Malaysia
 
@@ -22,7 +23,8 @@ As alluded earlier, Malaysia’s history basically explains its geography. Malay
 
 One more interesting fact about Malaysia is that it is an “elective constitutional monarchy”. This means that the country has a monarch as the head of state who is elected among the hereditary rulers of the nine Malay states for a five-year term. The election is done through anonymous voting among these rulers, and not by popular vote. Despite being the head of state, the monarch's role is mainly ceremonial and symbolic. The country's actual governance is led by a Prime Minister, who serves as the head of government.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFrRPfLUa3DYCGrvfhaVYT7ICpE3GF1o4c4wpyW-_20Ga6pnhKiSMU2Jnv9q09s12mBPKAdY7Ftof8t821_Qg1d1ek13VPY7L65Hx9zqxbwHsuQWKPiUtJvxlC_SZGkNnY52Zkpw1OnBb69UicfWvs6eT_43-uKv8blvSEvWdnSm2UXMozS23755dBS-em/w480-h640/R0008253.jpeg)Our Experience in Kuala Lumpur
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFrRPfLUa3DYCGrvfhaVYT7ICpE3GF1o4c4wpyW-_20Ga6pnhKiSMU2Jnv9q09s12mBPKAdY7Ftof8t821_Qg1d1ek13VPY7L65Hx9zqxbwHsuQWKPiUtJvxlC_SZGkNnY52Zkpw1OnBb69UicfWvs6eT_43-uKv8blvSEvWdnSm2UXMozS23755dBS-em/w480-h640/R0008253.jpeg)
+Our Experience in Kuala Lumpur
 
 KL, the capital of Malaysia, is one of the main hubs in SE Asia, so when touring around, you will most likely find your way there. There is a lot to do in KL, and we certainly enjoyed the cuisine and sightseeing for a few days. Our trip coincided with the beginning of Ramadan, which is the months that Muslims fast during the day and break fast by sunset, and as Malaysia is a majority Muslim country, you can certainly see how the city transforms during this month. Most interestingly, they erect Ramadan markets that are most active before sunset, where people come over to buy food and drinks for breaking fast. The mosques also serve food for those who fast, and people sit on the floor along long strips of table cloth, and break fast together. Along that note, there are multiple notable mosques in KL that are worth visiting, just note that even as a guy, they make you where some sort of skirt, if you are wearing shorts - which was quite amusing to my wife!
 
@@ -47,7 +49,8 @@ Some tips about traveling in Malaysia:
 * You can pay almost everywhere with a card, except in some hawker stations, where they serve street food.
 * Singapore’s weather is much like Malaysia, so it is always hot and humid, and often rains in the afternoons.
 * Like Malaysia, they drive on the left side, and use the UK-type power outlets, so do bring an adaptor.
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkUsVIN9bZgHCoeAkuGYAmKLg8M3b-uKEKewLYpfgIjVTd1y_Jv4HchXTEO_OnpcmJ7wZN-ABOX6NAe3uYE56Yr6ck_Y04AOU5KZesko-EwspxNXjxL1PWa10DpTy7omiTbTQvc3x3sMgIo836aj2WExbc3NrM3slq86WEwT_pu40ZkqUum18gUawpHzYf/w640-h426/DSC02127.jpeg)Overview of Singapore
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkUsVIN9bZgHCoeAkuGYAmKLg8M3b-uKEKewLYpfgIjVTd1y_Jv4HchXTEO_OnpcmJ7wZN-ABOX6NAe3uYE56Yr6ck_Y04AOU5KZesko-EwspxNXjxL1PWa10DpTy7omiTbTQvc3x3sMgIo836aj2WExbc3NrM3slq86WEwT_pu40ZkqUum18gUawpHzYf/w640-h426/DSC02127.jpeg)
+Overview of Singapore
 
 Singapore is small city state at the bottom of the Peninsular Malaysia with a population of around 6 million people. As discussed in the overview of Malaysia, the history of Malaysia and Singapore was basically the same until 1965. The big difference between the two prior to that was the racial composition, where in Singapore the majority were Chinese descent.
 
@@ -55,7 +58,8 @@ Independence from Malaysia marked a significant turning point in Singapore's his
 
 To address these challenges, the Singaporean government under Prime Minister Lee Kuan Yew (more on him later) implemented a series of bold and pragmatic policies, including industrialization efforts to diversify the economy, investments in education and training to develop a skilled workforce, and the implementation of public housing and healthcare programs to improve living standards for all Singaporeans. Singapore's post-independence era has been characterized by rapid economic growth and modernization. Through careful planning and sound economic policies, Singapore transformed itself from a developing country into one of the world's most prosperous nations. Key factors contributing to its success include a strong focus on education, efficient governance, strategic investments in infrastructure, and a business-friendly environment. Today, Singapore is known for its high standard of living, world-class infrastructure, and vibrant economy, making it a model of success for many nations around the world.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLo5bydnhctUPdN22yjYc_LJl0AFb_2LRduwpMBVRjvlRjcUv_-knZhM_F-0_uOxPuy0wdWJHxmTwedHlPbeI6lusIdRYgXcsjiN_7kBhcCPwpm4r_wuDhoLrLz9vQbjODjBUO9q1O_AsiDleO0pVzgBCMFkpbxvR2FmsJKPIGdgX4zffGgcdEq3AWGinm/w640-h365/IMG_5085.jpeg)Lee Kuan Yew
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLo5bydnhctUPdN22yjYc_LJl0AFb_2LRduwpMBVRjvlRjcUv_-knZhM_F-0_uOxPuy0wdWJHxmTwedHlPbeI6lusIdRYgXcsjiN_7kBhcCPwpm4r_wuDhoLrLz9vQbjODjBUO9q1O_AsiDleO0pVzgBCMFkpbxvR2FmsJKPIGdgX4zffGgcdEq3AWGinm/w640-h365/IMG_5085.jpeg)
+Lee Kuan Yew
 
 Lee Kuan Yew (1923-2015) was the first Prime Minister of Singapore and is widely regarded as the founding father of modern Singapore. He played a crucial role in transforming Singapore from a small, underdeveloped British colony into a prosperous and dynamic city-state. Lee Kuan Yew's leadership was characterized by his pragmatic and disciplined approach to governance, as well as his strong emphasis on economic development, social cohesion, and racial harmony.
 
@@ -65,7 +69,8 @@ After serving as Prime Minister from 1959 to 1990, Lee Kuan Yew stepped down fro
 
 Lee Kuan Yew's influence extended far beyond Singapore, and he was highly respected by world leaders for his wisdom, foresight, and leadership. He was often consulted on matters of global significance and was admired for his role in transforming Singapore into a prosperous and successful nation. His passing in 2015 was met with an outpouring of tributes from leaders around the world, highlighting the respect and admiration he commanded on the global stage.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFGMACdskwq80rey_sOjt2Sua18kR7C4JPNH6xsJ-iFM3DEJ-AtAsVQUApM8K3N0eam7r2sIvfwwP1uokyB9U1xA_SYz4hTnPh2dhokORWjWXdizM9qqH8h5lXZIq6-0-eK4IlzZ0_Fb6cANEytHsEPPaxVlRk0TGL7Yfn1HC1OW4MkHAwbQUkV0HMqKk0/w640-h426/R0008319.jpeg)Our Experience in Singapore
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFGMACdskwq80rey_sOjt2Sua18kR7C4JPNH6xsJ-iFM3DEJ-AtAsVQUApM8K3N0eam7r2sIvfwwP1uokyB9U1xA_SYz4hTnPh2dhokORWjWXdizM9qqH8h5lXZIq6-0-eK4IlzZ0_Fb6cANEytHsEPPaxVlRk0TGL7Yfn1HC1OW4MkHAwbQUkV0HMqKk0/w640-h426/R0008319.jpeg)
+Our Experience in Singapore
 
 We took a short flight from KL to Singapore, and arrived at the Changi Airport, which is highly regarded as the best airport in the world. Sightseeing in Singapore starts from the airport! One of the must-see attractions in Singapore is the Jewel mall that is seamlessly integrated with the airport terminals. Jewel features a stunning indoor waterfall, known as the Rain Vortex, which is the tallest indoor waterfall in the world. The waterfall cascades from a height of 40 meters, surrounded by lush greenery, creating a breathtaking natural spectacle within the airport complex.
 

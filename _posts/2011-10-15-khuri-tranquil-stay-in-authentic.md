@@ -14,4 +14,9 @@ Side notes:
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiqfdb-Qhv8WdIJ96G1VqOFjdCVYunztGxt3fMviMUE7nWOYny8Hh8QMZRU89p3xOWB0OM6Zi3xEQlfCnkfGR8tc7NAWyggIuPewmV6H0jyxbPfYwJ_CncCd3rk1Alm0QsH7rfOMRP1Jsxj/s320/photo+2-743648.JPG)
 
 Update - See some of the photos of this part of my trip [here](http://www.flickr.com/photos/8413680@N08/sets/72157627953457549/):
-![Khuri - 5](http://farm7.static.flickr.com/6048/6324068960_15ac2cefa0_s.jpg)![Khuri - 1](http://farm7.static.flickr.com/6231/6324067134_7c9213b5c3_s.jpg)![Khuri - 2](http://farm7.static.flickr.com/6231/6323538799_bffbe64507_s.jpg)![Khuri - 3](http://farm7.static.flickr.com/6035/6323539201_835b89f734_s.jpg)![Khuri - 4](http://farm7.static.flickr.com/6232/6324068650_a93f901886_s.jpg)![Khuri - 6](http://farm7.static.flickr.com/6103/6324069390_2370ec3d12_s.jpg)![Khuri - 7](http://farm7.static.flickr.com/6117/6324070308_a6df374034_s.jpg)![Khuri - 8](http://farm7.static.flickr.com/6049/6323542305_f85f6cbde4_s.jpg)![Khuri - 9](http://farm7.static.flickr.com/6227/6324071296_3149cd4a86_s.jpg)![Khuri - 10](http://farm7.static.flickr.com/6095/6323543325_fbf2e36039_s.jpg)
+![Khuri - 5](http://farm7.static.flickr.com/6048/6324068960_15ac2cefa0_s.jpg)
+![Khuri - 1](http://farm7.static.flickr.com/6231/6324067134_7c9213b5c3_s.jpg)![Khuri - 2](http://farm7.static.flickr.com/6231/6323538799_bffbe64507_s.jpg)
+![Khuri - 3](http://farm7.static.flickr.com/6035/6323539201_835b89f734_s.jpg)![Khuri - 4](http://farm7.static.flickr.com/6232/6324068650_a93f901886_s.jpg)
+![Khuri - 6](http://farm7.static.flickr.com/6103/6324069390_2370ec3d12_s.jpg)![Khuri - 7](http://farm7.static.flickr.com/6117/6324070308_a6df374034_s.jpg)
+![Khuri - 8](http://farm7.static.flickr.com/6049/6323542305_f85f6cbde4_s.jpg)![Khuri - 9](http://farm7.static.flickr.com/6227/6324071296_3149cd4a86_s.jpg)
+![Khuri - 10](http://farm7.static.flickr.com/6095/6323543325_fbf2e36039_s.jpg)

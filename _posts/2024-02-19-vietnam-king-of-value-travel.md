@@ -2,7 +2,8 @@
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/02/vietnam-king-of-value-travel.html)*.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBA-R5O9BP2kiXWI3um7vi60-c6boBxPY1kIrSSkqsETvCIZvSiIT6BrBgRSMJgXZv_bcSNz_SGio6KVDUIwiHocqvkWw6RuLHBf-Ct9VrrklDT88WcjLU6fW4fGXMcj4aC4AyfIb7fnkCpCxCh8qFyz5ncwWsSL0C2O0yLgxTjy1tJEVwxdkHcnjc_gog/w640-h480/DSC00177.jpeg)Vietnam is the second stop in our trip to Southeast Asia as part of our round-the-world trip. We stayed close to a month there, but we wished we could have stayed more. We loved the food, the culture, the nature, and the highest bang-for-the-bucks travel experience we’ve ever had!
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBA-R5O9BP2kiXWI3um7vi60-c6boBxPY1kIrSSkqsETvCIZvSiIT6BrBgRSMJgXZv_bcSNz_SGio6KVDUIwiHocqvkWw6RuLHBf-Ct9VrrklDT88WcjLU6fW4fGXMcj4aC4AyfIb7fnkCpCxCh8qFyz5ncwWsSL0C2O0yLgxTjy1tJEVwxdkHcnjc_gog/w640-h480/DSC00177.jpeg)
+Vietnam is the second stop in our trip to Southeast Asia as part of our round-the-world trip. We stayed close to a month there, but we wished we could have stayed more. We loved the food, the culture, the nature, and the highest bang-for-the-bucks travel experience we’ve ever had!
 
 # Overview of Vietnam
 
@@ -22,7 +23,8 @@ You can get a lot of bangs for your bucks in Vietnam as a tourist. There are of 
 
 Thailand is often mentioned when it comes to traveling cheap, but in my experience, Vietnam beats that by a good margin. If you like getting a lot of bang for your bucks when traveling, you should put Vietnam at the top of your list! Brian and Carrie, who are a couple traveling full-time, also agree with my assessment in their video [here](https://youtu.be/eo54_Sf96Ps).
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh5KYkiFNBFcWD5BKJpPKE-7VlAiQi0p1BOCNcBL-cLBKjtlojX_iGgDAy-Io2B4_20USyCLDyxn6bsVaEMQX6PBPyoC_oC9xbV1E2sKdhoMQxtHgLUcpZzRpzLNpzDjq7oxS2Z9dolRv5STtq224ymi1ZlH5Kh7qTHKXZsnxaCfQXFWBd30np7Y3j6S92R/w640-h480/R0007539.jpeg)![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiB9TnagJ3kA-VI8YWcLOocsb7rqyHnlmvQDcSV9mh8GUOhibVcosRbehT-lgaTkI3Sg3OGS4Tnea8Zt8Hajvrh_yvZwhea1XSPCMNbHUv9MZsNTZUog-6BvKrYYdibbrKCtZ8xEIbhpx3JtCnt2CAgBLstiP0cF4Umxolm358qe4SQ-pkJUxdz5K7okGm3/w426-h640/R0007544.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh5KYkiFNBFcWD5BKJpPKE-7VlAiQi0p1BOCNcBL-cLBKjtlojX_iGgDAy-Io2B4_20USyCLDyxn6bsVaEMQX6PBPyoC_oC9xbV1E2sKdhoMQxtHgLUcpZzRpzLNpzDjq7oxS2Z9dolRv5STtq224ymi1ZlH5Kh7qTHKXZsnxaCfQXFWBd30np7Y3j6S92R/w640-h480/R0007539.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiB9TnagJ3kA-VI8YWcLOocsb7rqyHnlmvQDcSV9mh8GUOhibVcosRbehT-lgaTkI3Sg3OGS4Tnea8Zt8Hajvrh_yvZwhea1XSPCMNbHUv9MZsNTZUog-6BvKrYYdibbrKCtZ8xEIbhpx3JtCnt2CAgBLstiP0cF4Umxolm358qe4SQ-pkJUxdz5K7okGm3/w426-h640/R0007544.jpeg)
 # Ho Chi Minh City
 
 We arrived in Ho Chi Minh City (HCMC), aka Saigon, via direct flight from Phuket. During the immigration process, I realized that there has been a mishap in our visas: My son got a 3-month visa, but my wife and I got only 1 month, with different starting dates, which made the overlapping period even shorter. We had applied for e-visa online, and I’m not sure how this happened. This was quite frustrating, since we were to stay in Vietnam for 6-8 weeks, and had planned the first few locations accordingly. The officer told us that she can’t do anything, and we should go to the main immigration office in HCMC to extend our visa (which we did the day after, and they told us rather curtly that you can’t extend e-visas). That was a bummer…
