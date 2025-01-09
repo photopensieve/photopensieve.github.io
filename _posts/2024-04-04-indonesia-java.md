@@ -4,7 +4,8 @@
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDNeF0D2xWo0J_XTtjUiN3AvQxHFJroVkf4Pabb3k57n6GQhVvJn09IVj-brCriyGcb_mxEpmL5RW0o5Tpj52ZHTwMF8e6BqUHpfMQNc5L7Ao4hqAsamUgqOdS6SPrM0F1jg5V0XK3V-tGAsDVLj9rQUOavHodrzlBBlpapf3-VQLfdwvyz8uzQQH8i1JM/w640-h360/DSC02478.jpg)After a short visit to Malaysia and Singapore, we arrived in Indonesia, where we plan to stay for an extended period of time, enjoying the most amazing nature and culture of the archipelago of Indonesia!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjqR8dapyfZFZ1z50YDC6A6PtU-SIlNUnqKEXQ0mB6nxOs1SVBjkQlgoBHxY02uV_D0UYtImKQ2Fjv7lbLej5WauQSTNSuwAIDy_8yi6-YM6S_xJWvVf-vXq7hZYo_qlj3MxKjyIJg_kKtKf3-mN8VBkwGhZ2wgYaef9Vcif5qYYubIiMD9PR0Sg1zMJxz0/w640-h496/IMG_6580.jpeg)# Overview of Indonesia
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjqR8dapyfZFZ1z50YDC6A6PtU-SIlNUnqKEXQ0mB6nxOs1SVBjkQlgoBHxY02uV_D0UYtImKQ2Fjv7lbLej5WauQSTNSuwAIDy_8yi6-YM6S_xJWvVf-vXq7hZYo_qlj3MxKjyIJg_kKtKf3-mN8VBkwGhZ2wgYaef9Vcif5qYYubIiMD9PR0Sg1zMJxz0/w640-h496/IMG_6580.jpeg)
+# Overview of Indonesia
 
 Indonesia is a largest country in Southeast Asia, comprising of more than 17,000 islands. Since Indonesia is located around the equator, the immensity of its spread is not often well-understood. As the photo above shows, Indonesia is much wider than the US! With a population of more than 275 million people, Indonesia is home to a large number of ethnicities, chief among them Javanese, Sundanese, and Batak. Each group has its own unique traditions, languages, and cultural practices, contributing to Indonesia's rich and diverse tapestry of cultures.
 
@@ -26,11 +27,13 @@ There are many discussions online on how to handle this: Some people say it’s 
 
 Our first stop in Java was the city of Yogyakarta, also known as Jogja. We arrived from Singapore with AirAsia without a hiccup. We took the scenic train from the airport to the city, while enjoying the views of rice paddies all along. We then took a Grab to our Airbnb, where we stayed for 5 nights.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiHmgO9eAllw-xM7K6KU_MIt1ydNC0n3cEfaSlRZVuVd4vkLIggx8YAM8oYEQ02ax11SYaIubAKmAddEhLrf44CeS23sVOXa9gAOaWDhXpiuxgQ3Z0FaG795kQ2YJxfZidMFeIG-99meOtusvF_bipsylrWiXgS2pxZ83rNheSCVz0Vax3FgeKhX4lCWlJO/w640-h480/DSC02301.jpg)## Prambanan Temple
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiHmgO9eAllw-xM7K6KU_MIt1ydNC0n3cEfaSlRZVuVd4vkLIggx8YAM8oYEQ02ax11SYaIubAKmAddEhLrf44CeS23sVOXa9gAOaWDhXpiuxgQ3Z0FaG795kQ2YJxfZidMFeIG-99meOtusvF_bipsylrWiXgS2pxZ83rNheSCVz0Vax3FgeKhX4lCWlJO/w640-h480/DSC02301.jpg)
+## Prambanan Temple
 
 We took advantage of the one-hour time difference between Singapore and Java, going to bed early and rising early to visit the magnificent Prambanan Temple. This ancient site, dating back to the 9th century, is a stunning example of Hindu temple architecture in Southeast Asia, predating the temples of Angkor but in a similar style. It's possible that the Khmers learned how to build large stone temples from the Javanese. Despite enduring centuries of natural disasters and human activities, Prambanan's temples stand tall, showcasing intricate stone carvings and towering spires that reflect their grandeur. After exploring Prambanan, we visited Cewu Temple within the same complex, which was almost as impressive but devoid of visitors. We had the entire place to ourselves, wandering among the marvelous ruins. I really wanted to photograph these places for sunrise, but unfortunately they open at 6:30 AM, which is too late for good light.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-GfP4Cc9sekhLQNEVeTygxxnGlEyQVsmGXfnJxPMAVUERE0IvefDC_sEs2WVxIcw0EReg3k8_Bheer77lKMeIsY0TVkFAIyBSsgCrsNo-vvI7OOcWmkuqRECwz4saOhEHZBITtWsHtm0Tagtzln8dJx6egfzX28ZmyE_NORA6YpYBR7Y86HBsXi2dG7JE/w640-h428/DSC02432.jpg)## Borobudur Temple
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-GfP4Cc9sekhLQNEVeTygxxnGlEyQVsmGXfnJxPMAVUERE0IvefDC_sEs2WVxIcw0EReg3k8_Bheer77lKMeIsY0TVkFAIyBSsgCrsNo-vvI7OOcWmkuqRECwz4saOhEHZBITtWsHtm0Tagtzln8dJx6egfzX28ZmyE_NORA6YpYBR7Y86HBsXi2dG7JE/w640-h428/DSC02432.jpg)
+## Borobudur Temple
 
 The highlight of visiting Yogyakarta is, of course, the majestic Borobudur Temple. This ancient Buddhist temple, dating back to the 9th century, is one of the largest and most impressive Buddhist monuments in the world. Its design is a marvel of symmetry and symbolism, with intricate carvings depicting stories from Buddhist scriptures. The temple is set against a backdrop of lush greenery and surrounded by volcanoes, adding to its mystical atmosphere.
 
@@ -42,7 +45,8 @@ Given that Borobudur is a 1.5-hour drive from Yogyakarta and the entrance ticket
 
 In Yogyakarta, we met this kind driver who showed us around and shared his life story. Turns out, he worked for 9 months on a European cruise ship, but given his weak passport, he was stuck onboard the whole time! He also lived through the massive Yogyakarta earthquake in 2004. His house crumbled, but luckily his family was okay. He admitted he's still freaked by tremors even now. The pandemic forced him to sell his car, but with tourism bouncing back, he's pumped to be his own boss again. Plus, he shared tons of Indonesia travel tips! These random meetings, even the short ones, are what make travel so special, you know? They add this whole other layer to the adventure.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi6nBTLM67RAZGw815TgPrcafEg1_om5DahFX3MzRXm55R4Uu_0082dO4P6GOBeEZU59KCKP6ljF33cgaM00ryxP1CVunHPAcUKk8LonVFfmEDYkHDaea3z5uf4B3-8Yhj_PEu-Ic8oa84kjTVwGwHkzNrT1oga0Jzv-owgYQ6PchlBGohmThw7j9Z5aVj0/w640-h360/DSC02513.jpg)# Mt. Bromo
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi6nBTLM67RAZGw815TgPrcafEg1_om5DahFX3MzRXm55R4Uu_0082dO4P6GOBeEZU59KCKP6ljF33cgaM00ryxP1CVunHPAcUKk8LonVFfmEDYkHDaea3z5uf4B3-8Yhj_PEu-Ic8oa84kjTVwGwHkzNrT1oga0Jzv-owgYQ6PchlBGohmThw7j9Z5aVj0/w640-h360/DSC02513.jpg)
+# Mt. Bromo
 
 Many years ago, I came across a photo of sunrise at Mt. Bromo, and I was blown away by how unreal it looked like! When we planned our trip to Indonesia, I knew I had to witness it firsthand and capture it with my own camera.
 
@@ -54,7 +58,8 @@ The second day, we also went to the Mt. Bromo crater. We started with a jeep rid
 
 Witnessing the sunrise over Mt. Bromo and the surrounding volcanoes was an unforgettable experience, a memory (and pictures) that will stay with us for the rest of our lives! Our next stop is going to be the most famous island of Bali.
 
-## Tips about visiting Mt. Bromo for the sunrise
+#
+# Tips about visiting Mt. Bromo for the sunrise
 
 * First let me clarify that it's somewhat inaccurate to refer to the entire area as Mt. Bromo, as that name specifically applies to one of the volcanoes—the small one that consistently emits smoke. The other volcanoes in the vicinity have their own distinct names, but the collective term "Mt. Bromo" is commonly used to describe the entire complex.
 * I would highly suggest staying in Cemoro Lawang, if you plan to go up for the sunrise. You could also visit from Probolinngo, which would add 2h each way, and you have to find a driver to take you there at 1:30 AM or so. Some people come over from other cities, but that is way too long and expensive.

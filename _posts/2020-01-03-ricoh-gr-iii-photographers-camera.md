@@ -23,36 +23,42 @@ During the last 14 years as a photography enthusiast, I’ve owned my fare share
 8. Sony A7R II
 
 I have liked some of these cameras (notably the 5D and A7R II, because of shallow DOF possibilities, and those gorgeous files they make), didn’t like some as much (NEX-6 and WB200, because of their color renditions), and had love/hate feelings about the Merrill (long story short, phenomenal IQ at ISO100 only, above anything I've seen from any other camera, but not worth shooting at anything above ISO100, and a horrible camera/shooting experience due to laggy interface and bad design). As you guess from the title of this post, I now own the Ricoh GR3, and I like it a lot! Let me tell you why I bought it, and what I think about it. Note that this is just going to be about my personal opinion, and is by no means a full review.
-### 
+#
+## 
 
 Why am I buying another camera again?
 
 (Question asked by my wife as well) To cut the long story short, I'm not taking as many photos as I'd like to these days, and I want to change it. The reason is that unless I know there is a good opportunity for photography, I do not carry my Sony A7R II with me. Having a pocketable camera like GR3 allows me to be more casual about photography, and carry it in more places.
-### 
+#
+## 
 
 The case against the smartphone as a daily driver camera
 
 One of the quandaries I had before buying the GR3 was whether I should instead upgrade to a latest smartphone like iPhone or Pixel. Computational photography has dramatically improved the quality of photos that smartphones take these days. They do a great job at HDR, simulated DOF, low light photography, and even have multiple focal lengths in one package. On top of that, as the saying goes, "the best camera is the one that you always have with you", so wouldn't that make a smartphone the best tool for photography? Well, my answer to this is "no", because smartphones do not inspire me to take photos. Let me elaborate: A smartphone is a multi-purpose tool; it does a lot of things other than taking photos, so I don’t see it as "a tool for photography". It also doesn’t help that I have it on me 24/7: I don’t (actively) think of taking photos with it. If there is an occasion, e.g. being in a nice place, or with good company, I do use my smartphone to memorialize the moment. And smartphones are great at that. But my smartphone doesn’t inspire me to take photos when I’m walking in a seemingly ordinary place. In contrary, if I have a proper camera on me, "I think photographically"; I see things that otherwise I would not have noticed. On top of that, no smartphone has nowhere near the level of customizations that a photographer needs to capture the moment: They lack physical buttons, they don’t provide full manual control, etc. Let alone the fact that the image quality is not comparable between the GR3 and any smartphone.
-### 
+#
+## 
 
 Replacing my full-frame kit?
 
 So now that I’ve got the GR3, will it replace my [Sony kit](https://photopensieve.blogspot.com/2019/09/my-holy-trinity-of-lenses.html)? Well, not really. When it comes to serious people or landscape photography, I think I would still go for my trusted Sony A7R II, and the three excellent prime lenses I have. But anything short of that, I think the GR3 would do the job. I recently brought the GR3 during a vacation to Caribbean, and enjoyed shooting with it a lot. This was an example of a situation that I probably would have left the Sony kit at home, since it was mostly about relaxing and enjoying the vacation. But having the GR3 almost always with me, allowed me to take a lot of high quality photos during this trip.
 
 So how did I find the GR3? Here are my thoughts.
-### 
+#
+## 
 It is tiny and lightweight
 
 I had seen a lot of review videos on GR3, but when it arrived, I was surprised how small it was! This is by far the most important appeal of this camera for me.
 
 The small size along with unassuming design also make the GR3 an inconspicuous camera. It might be in my head, but I think people don’t notice you as much with such a small camera, and won’t react like, oh here’s a photographer with his big camera, and instead, they would see me as an old-fashioned tourist who is just snapping his way around!
-### 
+#
+## 
 It has a well-thought-out design
 
 The GR3 has the best design - both in terms of hardware and software - of any camera I've ever used. It's like real photographers designed this camera for photographers! Every detail is well thought out, and it is highly customizable. Importantly, they have designed it such that it is optimal for one-handed control. Given that it doesn't have an EVF, there is no need to bring this camera up to your face and support it with two hands, so you would naturally tend to use it with one hand by extending your arm to the subject and shoot, and the ergonomics and button placements fully support this operation.
 
 It also turns on and is ready to shoot in a fraction of a second. That encourages me to turn it off when I don’t foresee using it for a few minutes, conserving the battery, and avoiding the heat issue (more below).
-### 
+#
+## 
 It creates beautiful files
 
 The APS-C sensor in GR3 is on par with the bests in this class (as pointed out by [dpreview](https://www.dpreview.com/reviews/ricoh-gr-iii/5)). It produces very respectable high ISO images; it has great dynamic range, and due to the lack of AA filter and being coupled with a sharp lens, it produces sharp and crispy photos.
@@ -60,15 +66,18 @@ The APS-C sensor in GR3 is on par with the bests in this class (as pointed out b
 The teeny-tiny retractable 28mm F2.8 equivalent lens is also another shining star in the design of this camera, and it is capable of delivering sharp photos at all apertures, all focus distances, and across the image (I don't pixel peep though). Kudos to Ricoh for building such a high quality lens in this small body!
 
 One key factor in choosing a camera for me is whether it produces great colors. I find GR3’s colors to be very good and pleasing. On top of that, Ricoh has baked in some nice jpg modes in the GR3. They are also highly customizable, so you can change them, or add some custom ones, if you like. I treat them as “different films”, and before the shot, I determine which mode is more suitable.
-### 
+#
+## 
 It has a well-implemented focus tracking mode
 
 Focus and face tracking features are very handy, though not perfect. The GR3 is nowhere close to Sony A7R II in terms of focus tracking capability, nevertheless it is highly welcomed. I am, in particular, very fond of the focus tracking capability that locks on a part of the image, and enables me to move around and re-frame. I have re-programmed the wifi button to toggle between the center focus and focus tracking modes. I used this a lot for macro shooting, and it worked well.
-### 
+#
+## 
 It is great at casual macro photography
 
 I was pleasantly surprised by how capable the macro mode is (check out the butterfly pictures below). No need to bring a macro lens with me anymore! Also, the fact that the camera is so light and can be operated by one hand allows me to get the camera close to the subject at tough angles, without bringing my body closer to the subject. It would have been fantastic, if the GR3 had an articulating screen.
-### 
+#
+## 
 ... and it has a few more handy features
 
 Snap focus: This is one of the most popular features of GR cameras, and it is great for street photography, although I still haven't got the hang of it completely. Sometimes I press the shutter button fully, but it turns out that it hadn't taken a photo.
@@ -86,31 +95,38 @@ Shake reduction system: It is always nice to have, although I haven’t had a c
 Touch screen: It's a first time for me, so I rarely use it. But I have no complaints about it either, so I guess I start utilizing it at some point.
 
 But it's not all bed of roses, and if you've read the reviews online, you have heard about a few of the shortcomings of this camera as well. Here is what I think about the shortcomings of GR3.
-### 
+#
+## 
 Not weather or dust resistant
 
 This is a big let down, as the previous version was known to be prone to sucking dust on to the sensor. They've added a sensor cleaning mechanism using the shake reduction system, but I'm not sure how well it performs. It would have been nice to solve this problem once for all.
-### 
+#
+## 
 No articulating screen
 
 I know they decided to put in a fix screen because they wanted to keep the camera light and pocketable, but still, it is sorely missed in situations like macro photography and hip shooting.
-### 
+#
+## 
 No official support in Lightroom
 
 This is a problem, since the lens has a severe vignetting, and alas, the great jpeg modes are not available either. Right now, I tend to shoot RAW, and apply the jpeg modes to the select photos in-camera. It is not an ideal solution.
-### 
+#
+## 
 Focus accuracy and speed could be better
 
 It does hunt in low light, and that is frustrating. This is a big miss on Ricoh’s side. Many other manufacturers have nailed the autofocus these days, but apparently not Ricoh.
-### 
+#
+## 
 Some customization is lacking
 
 As customizable as it is, it's still not possible to reassign the WB button (which I seldom use), or set min shutter speed using a shortcut.
-### 
+#
+## 
 The body does get hot in heavy use
 
 It actually can get very hot "in high usage". I used the camera with the highest screen brightness in a hot and humid butterfly farm for an hour, and the body and the battery got very hot. I don’t notice it in normal usage, since I am used to periodically turning off the camera.
-### 
+#
+## 
 Things I had liked to have, but are not there
 
 RAW conversion software: It would be very nice if you can at least apply the jpeg modes on either iOS/Android, or on PC/Mac using dedicated software.
@@ -120,7 +136,8 @@ In-camera panorama: 28mm is wide, but not as wide as I like for certain situati
 Super resolution a la Pentax K-1: Not that the resolution is not enough, but since we have a merger between Ricoh and Pentax for a few years now, and there is a shake reduction system, they could just bake in the super resolution capability. 
 
 2X telephoto converter: Would have been nice to have the option, but to be totally honest, if I have to carry two converters with me, I might as well bring my Sony kit.
-### 
+#
+## 
 Things that could be better, but I personally don't care
 
 Video: I've never tried, but I've heard it's nothing to write home about.

@@ -6,7 +6,8 @@
 
 For the uninitiated in traveling in Iran, here is a brief discussion on visiting Iran.
 
-### Iran as a tourist destination
+#
+## Iran as a tourist destination
 
 It is not far off to claim that Iran is a hugely underrated travel destination with massive tourism potential. Iran is one of the oldest countries in the world, with civilizations going back several millennia. It also has high mountains, rain forests, deserts, and beaches. Iran is home to many different ethnicities and languages, and anything from large cities to ancient villages, and even nomadic people. But due to mostly political reasons (both internal and international), it is often thought of as a pariah state, and is skipped by most tourists. Having said that, Iran is surely not your usual tourist destination, but for the seasoned traveler, it provides an amazing opportunity to visit a unique, sophisticated and off-the-beaten path destination.
 
@@ -22,19 +23,23 @@ Another issue might be the mandatory hijab for women, and generally tight Islami
 
 Having said that, I don’t want to paint an overly rosy picture of the country as a tourist haven. Depending on where you are, there are issues like pollution and traffic, and there is sometimes uncertainties about how things are done, that might get frustrating. There are other issues like internet filtering that requires using VPNs to access your usual websites. Note that your run-of-the-mill VPNs like ExpressVPN, NordVPN, etc would not work in Iran, so you’re better off seeking solutions inside the country, or make your own VPN before departure. One other (minor yet frustrating) issue is that while on VPN, you won’t be able to access internal websites, so it requires you to switch the VPN on and off, over and over. One other issue we ran into due to our long-term travel is that our phones stopped working with Iranian SIM cards after 30 days. This is because of a measure to prevent contraband phones, which unfortunately creates problems for people like us. Apart from this, I can imagine other hurdles for international tourists like 1) accessing banking system, as most payments are done using card these days, and western payments systems are not available, and 2) getting a SIM card, which is vital for accessing internet (which is dirt cheap, like less than 75 cents for 10 GB). There should be solutions for both of these problems, but I haven’t looked into them.
 
-### Our travels
+#
+## Our travels
 
 Now let’s get to the account of our travels in Iran. But first a few words about how we planned it. Of course, the main reason for the visit was to spend extended period of time with family, and as our families live in two different cities, Tehran and Mashhad, we allocated 25 days or so to visit each city. But since we didn’t want to move to our next destination smack in the middle of the Christmas holidays, when prices are high and places are packed with tourists, we decided to instead do a 2-3 weeks tour inside Iran during its low season. Another constraint was that we didn’t have a car, we didn’t want to do road trip anyways, and we wanted to avoid flying as much as possible, so we had to mostly rely on trains. That meant we have to deal with what routes were available via train. We decided to start from Tehran, then go to Mashhad, Yazd, Hormoz, Qeshm, Shiraz, and back to Tehran.
 
-### Tehran
+#
+## Tehran
 
 Tehran is the capital of Iran, and is where my family live. We spent 2 weeks in Tehran in the beginning, and another 10 days in the end. Most of our time was spent visiting family, of course, but we also visited Golestan Palace, Sa’d Abad Palace complex housing interesting museums like Omidvar Brothers and Farshchian Museums. If you visit Tehran, you should also check out Grand Bazaar, Darband, Tochal, and Darakeh, and go to some shopping malls like Iran Mall and others to see a different face of Iran, especially of its young energetic generation. Note that Tehran is a large city with notorious pollution and traffic congestion. It is wise to consult some locals on how to get around efficiently.
 
-### Mashhad
+#
+## Mashhad
 
 Mashhad is the second largest city in Iran, and is where my wife’s family live. It is most known as a religious city, being the home of the shrine of Imam Reza, which attracts tens of millions of tourists every year. But when we go there, we spend most of the time with the family, and sample the restaurant scene. This time around, we also spent a few days in Baghshan, which is a village near Neyshabour, an ancient city west of Mashhad. We did a day visit in Neyshabour visiting tombs of Omar Khayyam, a renowned 11th century astronomer and poet, and Attar Neyshabouri, a famous 11th century poet and sufi, along with some other attractions.
 
-### Yazd
+#
+## Yazd
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi3ELrGx_97c5002gmNG1rqeQSy8FLzAHgKDs1v2cwE7JzIJ0YdPTQnpaRz_cKJB_zEt9gUHLpVmPv5UFSjPZGWGKbhL-TkZPolZO9YlDCG4CaUCpShbHN1XeBRdLnI-2sUvLo_o6MCmffU7mtLBTxQQFf1QtXFGv-zONaG5Jub4ZTbANOOCJt93vxFbMyU/w640-h480/DSC08329.jpeg)This is where our real travel started in Iran! After visiting family in Mashhad, we boarded an overnight train to Yazd. Yazd, a city with a rich history, captivates visitors with its unique architectural features tailored to its hot and arid climate. One of the standout elements is the traditional wind catchers, known as "badgirs," which dot the skyline. These ancient structures harness the desert breeze to cool buildings, showcasing ingenious passive cooling techniques. Additionally, Yazd boasts an intricate network of cisterns, essential for water conservation in this arid region. These features not only serve practical purposes but also contribute to the city's distinct charm, making it a fascinating destination for those interested in both history and innovative design.
 
@@ -48,30 +53,37 @@ In Yazd, we opted to stay at an ecolodge, aka boomgardi, called Shams Tabrizi. T
 
 I will end the part one here, and continue the rest in the second part.
 
-## FAQ
+#
+# FAQ
 
-### How was train travel in Iran?
+#
+## How was train travel in Iran?
 
 Opting for train travel is our top recommendation for exploring Iran safely. While many Iranians prefer cars for convenience, road accidents are common due to reckless driving. Although trains might not be the quickest mode of transportation, they offer the comfort of personal cabins and overnight rest. Keep in mind that Iran's train network is somewhat limited, and you might not find direct routes between some major cities (like Shiraz and Isfahan). Taking the trains, we didn’t have any major issues with service or delays, and had a generally pleasant experience.
 
-### How did you find your accommodations?
+#
+## How did you find your accommodations?
 
 As mentioned in the beginning, Iran is cut off from the main international services provided in most places around the world like Airbnb, Booking.com, etc. However, this has resulted in creating internal services much like their western versions. We mostly used Jabama for ecolodges, and Alibaba and Hotelyar for booking hotels. They take care of payment, and provide support, when needed. We also found the reviews to be useful, though they were not as copious as sites like Airbnb, TripAdvisor, and alike. Google Maps reviews were useful too. In one occasion in Qeshm, we found an ecolodge through Instagram, and paid the host directly to reserve, which was not the preferred way, but it turned out fine.
 
-### How has Iran changed in recent years?
+#
+## How has Iran changed in recent years?
 
 The picture that many people may have of Iran is an extremist Islamist place under ISIS or Taliban, women wearing burkas, people riding camels, etc, but that is hilariously false. Most places in Iran are quite modern, and especially the younger generation is very liberal and western - of course with an Iranian flavor. In recent years, especially, there have been even more openings in society, and you see many women not wearing mandatory Hijab, and living a more open life. I was personally shocked when I came back after a year and half of how much more open the country feels like.
 
-### How is traveling with a toddler going?
+#
+## How is traveling with a toddler going?
 
 Our son is 2 years and 9 months old now, and is quite different from the last time we traveled when he was only 14 months old. Now he needs no diapers, he speaks, he can walk and run a lot more confidently - even do a small hike, and he can eat everything. But on the other hand, he now knows what he wants and does not forget it, so when he wants a new toy and we don’t get it for him, he throws tantrums, and does that over and over. He is also a pretty picky eater at this age, so we sometimes have to scramble to prepare what he likes. But that’s what he would have done if we had stayed home too! It’s just that we are together 24/7, whereas as home, he would go to daycare. He needs his many toys, and wants new ones which make it challenging, since we cannot carry a lot. But we are using this opportunity to teach him patience by telling him that he will get a new toy in the next destination, for example, or that he should give away one of his toys if he wants a new one.
 
 Also, we are using the stroller less, so we decided to get rid of it in the next part of our trip. Using stroller has been tricky recently since it's useful in urban areas for carrying stuff and letting our son rest, but it becomes a hassle in non-urban areas, and all in all, our son can manage without it.
 
-### How do you find visiting family for an extended period of time?
+#
+## How do you find visiting family for an extended period of time?
 
 This was the first time that we spent this amount of time with family, since we left them many years ago. Visiting family is of course awesome, as you get to see your loved ones, and create and share much needed memories. However, being a guest for an extended period of time, and not living under your own terms can be a bit frustrating. Having said that, the experience was overwhelmingly positive, and we took advantage of this rare opportunity to reconnect with family.
 
-### How is photography going?
+#
+## How is photography going?
 
 It’s been going great! I had a blast doing photography in Yazd, Hormuz, Persepolis, and Shiraz. Like our previous trip, I have brought both my Ricoh GR3, and Sony A7R II with two lenses. However, I’m having second thoughts about bringing in the Sony, and if I could go back, I would probably leave it at home, and only travel with the Ricoh, plus its ultrawide adaptor. The Sony of course provides superior photo quality, and allows me to use 40mm and 75mm focal lengths, but it adds a lot of bulk and weight to my bag. I think I am ok losing some shots, but instead travel super light.

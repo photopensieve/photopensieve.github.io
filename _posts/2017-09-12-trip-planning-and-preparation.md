@@ -3,7 +3,8 @@
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2017/09/trip-planning-and-preparation.html)*.
 
 We are just a few days from our two-week trip to Peru and Mexico! So I thought I share our itinerary and preparation steps.
-### 
+#
+## 
 Itinerary
 
 Here's our itinerary: We're going to go directly to Cusco, spend 6 days over there, then take an overnight bus to Arequipa, spend 2 days there, and then fly to Lima, and spend the last 2 days of Peru there. We then fly to Mexico city, and spend 3 days over there. We wanted to go to the Amazon, but decided not to, due to the (non-existent) risk of malaria and zika there. Perhaps we are overly conscious, but we just didn't want to risk it.
@@ -11,11 +12,13 @@ Here's our itinerary: We're going to go directly to Cusco, spend 6 days over the
 I ended up planning pretty much everything ahead of time, as we don't have much time in this trip, and we're going to cover a lot of ground. I wished we had more time to be a bit more spontaneous over there.
 
 In Cusco, we will first stay in the Sacred Valley, both for acclimatization, and for the ease of access to different sites. Among the places we are going to visit are Pisac, Moray, Maras, Ollantaytambo (yup, try pronouncing that!), and of course Machu Picchu. We more or less know which day we want to do what. For Machu Picchu, of course, there is a different story. I'll write about the preparation steps after we visited.
-### 
+#
+## 
 Preparation
 
 We decided to go as light as possible, having each a ~40L backpack, which is plenty. This way, we don't need to check in any bags, and we can take buses a lot easier. We are going to pack fewer clothes, and wash them a few times over there. This is the mandatory backpacking shot:![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhH750hhELvm3y1Mlc3ztW_DccJiK6D6-aJIE13sG-SsjceSPZogF-uCxMYC9QR0QDRQktaGHfClnjbUQGQvtO7ddvGzkH11rFeaUpUI0bNsh9XqCGn_qs51cVVILJ-i6Zk3RE3lD00sePN/s5000/%255BUNSET%255D)
-#### 
+#
+### 
 Photography gear
 
 - Sony A6300 (see below)
@@ -26,7 +29,8 @@ Photography gear
 - Lowepro Passport Slingshot (the one from India!)
 
 6 years ago (wow!), when I went to India, I took my Canon 5D, two manual focus Voigtlander lenses and an 85mm 1.8 lens with me. The total weight of that gear was almost 2 kg, whereas now I only haul around a mere 1.1 kg! The difference might sound small, but on a daily basis, it makes a big difference. Another reason I decided to go with the Sony is that the lenses are all autofocus, and this time around, I'm not focusing as much on portrait photography (not that I wouldn't take portraits).
-### 
+#
+## 
 A few anecdotes
 
 - There is something called "Gringo tax" for domestic flights (and basically for everything else you pay substantially more as a tourist). Apparently for some routes, there are special classes for Peruvians that are significantly cheaper. I understand that, and it's fine with me. But you would guess when you're buying those flights, the website would tell you that, right? But it doesn't. You (obviously) buy the cheap Econo class tickets, and then in the airport you are faced with a "fine" of \$178 per person, per flight leg! Fortunately, I learned about this earlier, so I had to call and change my ticket to Flex, otherwise we would have got those ridiculous fines.

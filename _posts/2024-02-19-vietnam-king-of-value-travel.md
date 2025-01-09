@@ -22,7 +22,8 @@ You can get a lot of bangs for your bucks in Vietnam as a tourist. There are of 
 
 Thailand is often mentioned when it comes to traveling cheap, but in my experience, Vietnam beats that by a good margin. If you like getting a lot of bang for your bucks when traveling, you should put Vietnam at the top of your list! Brian and Carrie, who are a couple traveling full-time, also agree with my assessment in their video [here](https://youtu.be/eo54_Sf96Ps).
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh5KYkiFNBFcWD5BKJpPKE-7VlAiQi0p1BOCNcBL-cLBKjtlojX_iGgDAy-Io2B4_20USyCLDyxn6bsVaEMQX6PBPyoC_oC9xbV1E2sKdhoMQxtHgLUcpZzRpzLNpzDjq7oxS2Z9dolRv5STtq224ymi1ZlH5Kh7qTHKXZsnxaCfQXFWBd30np7Y3j6S92R/w640-h480/R0007539.jpeg)![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiB9TnagJ3kA-VI8YWcLOocsb7rqyHnlmvQDcSV9mh8GUOhibVcosRbehT-lgaTkI3Sg3OGS4Tnea8Zt8Hajvrh_yvZwhea1XSPCMNbHUv9MZsNTZUog-6BvKrYYdibbrKCtZ8xEIbhpx3JtCnt2CAgBLstiP0cF4Umxolm358qe4SQ-pkJUxdz5K7okGm3/w426-h640/R0007544.jpeg)# Ho Chi Minh City
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh5KYkiFNBFcWD5BKJpPKE-7VlAiQi0p1BOCNcBL-cLBKjtlojX_iGgDAy-Io2B4_20USyCLDyxn6bsVaEMQX6PBPyoC_oC9xbV1E2sKdhoMQxtHgLUcpZzRpzLNpzDjq7oxS2Z9dolRv5STtq224ymi1ZlH5Kh7qTHKXZsnxaCfQXFWBd30np7Y3j6S92R/w640-h480/R0007539.jpeg)![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiB9TnagJ3kA-VI8YWcLOocsb7rqyHnlmvQDcSV9mh8GUOhibVcosRbehT-lgaTkI3Sg3OGS4Tnea8Zt8Hajvrh_yvZwhea1XSPCMNbHUv9MZsNTZUog-6BvKrYYdibbrKCtZ8xEIbhpx3JtCnt2CAgBLstiP0cF4Umxolm358qe4SQ-pkJUxdz5K7okGm3/w426-h640/R0007544.jpeg)
+# Ho Chi Minh City
 
 We arrived in Ho Chi Minh City (HCMC), aka Saigon, via direct flight from Phuket. During the immigration process, I realized that there has been a mishap in our visas: My son got a 3-month visa, but my wife and I got only 1 month, with different starting dates, which made the overlapping period even shorter. We had applied for e-visa online, and I’m not sure how this happened. This was quite frustrating, since we were to stay in Vietnam for 6-8 weeks, and had planned the first few locations accordingly. The officer told us that she can’t do anything, and we should go to the main immigration office in HCMC to extend our visa (which we did the day after, and they told us rather curtly that you can’t extend e-visas). That was a bummer…
 
@@ -36,7 +37,8 @@ We arrived in Vietnam a few weeks before the lunar new year, aka the “Tet holi
 
 One of the must-visit attractions in HCMC is the War Remnants Museum, which houses a poignant collection vividly portraying the impact of the Vietnam War. Featuring an extensive array of photographs and documents, the exhibits chronicle various aspects of the conflict, offering a visceral understanding of its toll on civilians, soldiers, and the environment. The museum delves into the grim reality of war crimes, notably the My Lai massacre, with exhibits presenting testimonies, photographs, and documentation. Another aspect covered is the devastating use of Agent Orange and chemical warfare, highlighting both the environmental consequences and the long-term health effects on those exposed. Having said all that, the museum is built by the communists, and only tells half of the story, which is nevertheless true, but just keep in mind that it doesn’t discuss the atrocities committed by the Viet Congs and North Vietnam. I will discuss the Vietnam War later in this post.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi3xtT13NTK3LtyvRB0e6C20Y-pU4TkWtv9te9N4hdH5mk0xX_Wwl45kumWmvMEqhZv10iEf5wuwzTliAfzh-1aoY99rjOx9JJ-eGzjoweHalCKDo6e45M-KF8ouw67BTBdBzW2N5HEDZAl4T2v_TBFavD64Toz5wnZaFSDyRSqta4Rs6Odn7S88eCOk7q2/w480-h640/R0007648.jpeg)# Nha Trang
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi3xtT13NTK3LtyvRB0e6C20Y-pU4TkWtv9te9N4hdH5mk0xX_Wwl45kumWmvMEqhZv10iEf5wuwzTliAfzh-1aoY99rjOx9JJ-eGzjoweHalCKDo6e45M-KF8ouw67BTBdBzW2N5HEDZAl4T2v_TBFavD64Toz5wnZaFSDyRSqta4Rs6Odn7S88eCOk7q2/w480-h640/R0007648.jpeg)
+# Nha Trang
 
 We took a day train from HCMC to Nha Trang, taking around 9 hours. We had booked three seats in a cabin of four, and the ride was pleasant, though a bit too rocky. The cabin was relatively clean, but was quite basic. It was interesting that each number in the cabin was associated with a bed, and not a seat. So for example, we had the two lower benches and one on top, and the other guy had the other top bed, where he spent most of his time. We booked all of our train tickets through the official railway website ([https://dsvn.vn](https://dsvn.vn/)), which was pretty straightforward.
 
@@ -44,7 +46,8 @@ Nha Trang is a seaside resort town, with plenty of opportunities for beach activ
 
 After Nha Trang, we went up north, but more on that in the second part of the blog.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDPe242xmDCztTSZH8hlGPfGHvu6FM6hq69RhciROIAhbSS1TW9Y-V0kCelwHNomefxIzd-icU9RI122xR4MCGc_rUqFc-xQtDCj3zcpDgTe8Em5T5wPDGWMW6HbEUIAVI0t0VJMgJVx5376GcNmJQ2QiL0fSPDLDQvWx83JxaZomuOg0t2PHy-kmx5a4_/w640-h486/IMG_5601.jpeg)# Vietnam War
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDPe242xmDCztTSZH8hlGPfGHvu6FM6hq69RhciROIAhbSS1TW9Y-V0kCelwHNomefxIzd-icU9RI122xR4MCGc_rUqFc-xQtDCj3zcpDgTe8Em5T5wPDGWMW6HbEUIAVI0t0VJMgJVx5376GcNmJQ2QiL0fSPDLDQvWx83JxaZomuOg0t2PHy-kmx5a4_/w640-h486/IMG_5601.jpeg)
+# Vietnam War
 
 The visit to the War Remnants Museum in Ho Chi Minh City sparked an interest in me to learn more about Vietnam War. Of course, we all have heard about it, and have seen many Vietnam War movies before, but I didn’t have a good grasp of how/what/why of the war, and its timeline. If you are in that camp, here is a short explanation of what lead to the war, and how it unfolded.
 

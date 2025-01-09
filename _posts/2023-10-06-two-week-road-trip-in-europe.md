@@ -2,7 +2,8 @@
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2023/10/two-week-road-trip-in-europe.html)*.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhA04243zyO7DE9mIxYguvTmkpbRUPRJFiEhO7K_b0tiMOSFw_zwozIGB55lOQ2wU-QD4h94IbxfJIfz5PAU1JeYJSnxATL-CZi36J3ruHSCzWHNCnic5SdBMOAdMI8U6PPAmxPND_o_bbb8S5tItCtHt-LycPagah5xMEVgQfyJJrPEperm-heOgq4NAEp/w640-h640/DSC07736.jpeg)We kicked off our long-term travel by a road trip starting in Frankfurt. Our flight from Seattle was with Condor (a German low-budget airline), and was largely uneventful, i.e. it went well. Our son happens to LOVE flying, so he is super excited to be on the plane, and after playing some games and watching some cartoons, he slept most of the way to Frankfurt. We rented a car, a hybrid Jeep Renegade (which caused us some problems, but more on that later), and did a loop in Germany, Luxembourg, and France. The focus of the trip was mostly smaller towns and villages. Before I recount the details of the road trip, I’m going to delve a bit into what we brought with us.## Travel Gear
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhA04243zyO7DE9mIxYguvTmkpbRUPRJFiEhO7K_b0tiMOSFw_zwozIGB55lOQ2wU-QD4h94IbxfJIfz5PAU1JeYJSnxATL-CZi36J3ruHSCzWHNCnic5SdBMOAdMI8U6PPAmxPND_o_bbb8S5tItCtHt-LycPagah5xMEVgQfyJJrPEperm-heOgq4NAEp/w640-h640/DSC07736.jpeg)We kicked off our long-term travel by a road trip starting in Frankfurt. Our flight from Seattle was with Condor (a German low-budget airline), and was largely uneventful, i.e. it went well. Our son happens to LOVE flying, so he is super excited to be on the plane, and after playing some games and watching some cartoons, he slept most of the way to Frankfurt. We rented a car, a hybrid Jeep Renegade (which caused us some problems, but more on that later), and did a loop in Germany, Luxembourg, and France. The focus of the trip was mostly smaller towns and villages. Before I recount the details of the road trip, I’m going to delve a bit into what we brought with us.
+## Travel Gear
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiw3WzPvtkcci8-TgDkiPTEqkaDt88mXKTldw0Z0BxY8Kzj0LxPfcqI_BqdbOJpfSC4iqVYu_1auPqLodBsfkSjNRVHPrcg1Q_JUBQfW939Zy0ZpRDW-t51vnvdqGVTjj-dlvcdkLgodtVRvnusYSu4D6UvX7rayh2OhfnGE3QN3zX6JHaE-pXEHpCwTGqj/w480-h640/IMG_3933.jpeg)I usually write a separate blog post about the trip, but this time around, I’m just going to discuss in short, as our travel gear is mostly similar to the [last year’s trip](https://photopensieve.blogspot.com/2022/04/eurotrip-travel-gear.html).
 
@@ -12,7 +13,8 @@ I carry all my clothes in one medium-size compression packing cube, plus a packa
 
 Now that we are done with the travel gear, let’s talk about the actual trip!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg0haHdrjGIkStMOoyeEnrLbIxzoei4f2OBV4JsStgCsk-Bda9ep9L0MaU_KpqJy6xEscGYamb2zfTpAwZABlGtFjSHak3GhrneYcQw3NijQdjPFAcH_57wuqRrqugX-z0vGgH2ssEe66ZkkKui4kXcvwD5CNSu7NMWz1saweaKEZUjXqU0KdPp6gtbAJnF/w400-h398/IMG_3250.jpeg)## Germany
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg0haHdrjGIkStMOoyeEnrLbIxzoei4f2OBV4JsStgCsk-Bda9ep9L0MaU_KpqJy6xEscGYamb2zfTpAwZABlGtFjSHak3GhrneYcQw3NijQdjPFAcH_57wuqRrqugX-z0vGgH2ssEe66ZkkKui4kXcvwD5CNSu7NMWz1saweaKEZUjXqU0KdPp6gtbAJnF/w400-h398/IMG_3250.jpeg)
+## Germany
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-_i3kzL4CCQFXIzF-p_CFtfVsxfuYYXog3ehleT7mslNElRXldChCyY73z9K3C8HZUWo9JAA1ZOQodv7rrRzz0xOdESehpNxHnRlVwTw6ApbfVihrBFkeHEqLBytoQNp4HmKVcPGwwMT23PND_m3eaUtrUxt5V0yrOnyJyJJOCpt8FkXVyb1fceeXHD51/w640-h480/IMG_4005.jpeg)One of the places I wanted to visit was Eltz Castle, which is an hour and half from Frankfurt. So when we arrived (and finally managed to get the car after an hour of wait), we drove to a small town close to the castle. However, looking back, that wasn't such a great idea. I was seriously jetlagged (it was way past midnight in Seattle for me), and I couldn't keep my eyes from closing while driving. We had to stop along the way, so I could catch some sleep. Note to self: Don’t plan a drive right after a redeye flight.
 
@@ -24,13 +26,15 @@ Trier was another small town with a Roman-era gate, called Porta Nigra - since i
 
 It was in Trier that our little Jeep started acting up, and beeping loudly that the airbags are faulty. Luckily, there was a branch of the rental agency in town. After examination, they told us that we have to change the car, and the only car they had available was an electric Mercedes EQA. This was a nice (free) upgrade for us, and the first time driving an electric car for me. However, the challenge ahead was figuring out how to charge it – but I'll delve into that in more detail in the FAQ section.
 
-## Luxembourg
+#
+# Luxembourg
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUtHE5Pk3ZVxR82YCOphG0N4ne6JLzwXxgKnlDfr9O-WwHs_srgvZvvnU9g5pWcgsoZ2gjLWP3yhuoG4N95N1I_S3KvGY2qYzRMk7U5VwhynPQ0jWWIX7Lq9F0nUVPIjMZmOa_VdwbPKm9VQMHrwnF3g2qBNpIpV4I4oIH3TIAVbI9fahhc5ghPXDvJwPq/w426-h640/R0005444.jpeg)This part is embarrassingly (or expectedly?) short, as we just did a day-visit to Luxembourg, while we stayed at our next location in France. For those who don’t know, Luxembourg is the largest tiny country in Europe, landlocked between Belgium, Germany and France. I say largest tiny country, because I compare it to the really tiny ones, like Monaco, Vatican, San Marino, Lichtenstein, etc. You can basically criss-cross the country within a couple of hours.
 
 Luxembourg (the city) is a nice upscale city, reminding me a lot of Zurich, for example. There was not much to see or do over there, but it was nice enough to spend a few hours walking around, especially down to the lower part of the city by taking elevators. I’m sure there are more to do and see in this rich and tiny country, but my search online didn’t show anything considerably noteworthy.
 
-## France
+#
+# France
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJW6NiYc37enpH57OATsLWPx5Y8s32HXglUaaeAVET7E7VxfiF2DbUkqWvh23KIJw-vfsZkEExl4J-hS2ZJ79Lld_a6jnJyNJWaopu7NqajVX2bnZPp7iylr_FlMfQnrJ0lZK42zFz-8r9X-EVdmyDWiRM0iBa-erHQtVRzsOmvHnRPJpCph4COOKfqHcj/w640-h480/DSC07879.jpeg)In this road trip, we spent most of our time in France. Even to visit Luxembourg, we stayed in a French town near the border (Amnéville) as the prices in Luxembourg were much higher. One thing that I loved about France is that I speak the language (not that good though), so it was much easier to interact with people. One thing I loved to do in France was to just strike up a conversation with people and practice my French. While in Amnéville, we visited Metz too, which was a cute little town, and worth a day visit.
 
@@ -44,9 +48,11 @@ The intriguing history of Alsace is evident in its unmistakable German influence
 
 We wrapped up the road trip with a night in a vineyard near Heidelberg - a city definitely worth exploring. The next day, we returned the car at Frankfurt Airport and hopped on a train to Hamburg, where we're currently visiting my cousin. After a few days of relaxation here, our next destination will be the beautiful Greek island of Crete! Stay tuned!
 
-## FAQ
+#
+# FAQ
 
-### How was the experience of road tripping with an electric car in Europe?
+#
+## How was the experience of road tripping with an electric car in Europe?
 
 Before the trip, I had done a lot of research into this, as I personally wanted to rent an electric car - both for its novelty, and the fact that it has lower carbon footprint. However, all discussions on Reddit and elsewhere indicated that this is going to be a problem, because of the messy EV charging situation in Europe. Many charging stations require their bespoke RFID cards that should be obtained beforehand (and I’m not sure how it can be done from outside Europe). Others have their own app, or website, but many don’t accept American credit cards. It was so risky that I decided against it.
 
@@ -56,7 +62,8 @@ Apart from the charging situation, driving the Mercedes EQA was a great experien
 
 Now that I know electric cars can be charged at Tesla superchargers, I wouldn’t hesitate recommending road tripping with an EV, when possible. It’s not only greener, but also cheaper. We paid less than third of what we would have paid for gas for electricity. If you have a membership, or if you can charge at cheaper places, you can further lower the cost. EVs are also being rented out with similar or even lower prices as gas cars in certain places in Europe. Check them out!
 
-### How was the road trip with a toddler?
+#
+## How was the road trip with a toddler?
 
 Surprisingly good! Last year, we had some difficulties in our Italy road trip, as our son was only 14 months old, and didn’t enjoy being in the car, primarily because his car seat was rear-facing. This time around, he totally loved being in the car, spotting other cars and heavy machinery on the side of the road, whenever he could.
 

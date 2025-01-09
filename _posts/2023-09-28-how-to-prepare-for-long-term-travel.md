@@ -4,7 +4,8 @@
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWQR9FqwjVFVeCRYNjxOpE2HPJ8-mSFF8qAxNWl8WvrzPjtq0QQtyy-w1SVFTo_IPEmNj6RPGeybLteY85BteAvEedXQiVICyErdbTK47cAEOa0uyChd7LRqXNgm9M9geeChiO9HVJYM_ta6M-SFZpbYe4RjRkUBiEL1ApW3p1V3srhLrEGL9Msqr_yUbW/w640-h493/IMG_3195.jpeg)Long-term travel comes in many flavors. Some prefer to hop between many places, while others embrace "slow-travel," settling in one spot for weeks or months. You'll find long-term travelers as backpackers catching flights, or camping with RV or campervan, or even crossing the sees on sailing boats. Some go the extra mile, walking or biking long distances. Regardless of your style, embarking on a long-term journey demands preparation. Beyond the usual flight bookings, hotel reservations, and destination research, extended travel requires additional readiness.
 
-## The decision
+#
+# The decision
 
 Making “the decision” may not seem like preparation, but it is in fact the most important step as it prepares you for the endeavor. If leaving for a prolonged journey interests you, let it marinate in your mind for a while. Think about why you want to do this, in the first place. Is it just seeing the world, or embarking on adventures, or finding yourself - whatever it is, think deeply about it. Explore online resources, watch travel videos, and let your desire simmer. If that longing intensifies, it's a sign you should take action. However, understand that this decision isn't a walk in the park. There are countless factors to consider, such as your job, house/apartment, belongings, family, finances, and more.
 
@@ -12,15 +13,18 @@ One helpful strategy is to document your decision-making process extensively. Wr
 
 After careful consideration, if the desire persists, and all conditions are met, set a deadline for yourself, taking external factors into account. If the timing isn't right, remember, you can always postpone your travel plans for the future. Believe me, making this decision is no easy task! But once it’s done, you are halfway through!
 
-## Job
+#
+# Job
 
 No need to say that if you plan to travel for a long time, you have to consider the elephant in the room - your job(s). Our job pays us a salary, but in return, it seizes our “time” and mandates our physical location, e.g. going to an office from 9AM-5PM. So of course having a job seems to be the biggest hurdle towards long-term travel (apart from the finances). Some may have the luck of working remotely and part-time, and/or being self-employed, and location independent, so they can work from anywhere. But most people do not have that luxury. So one option is of course to quit your job for a period of time, travel, and then come back and look for a job again. This may also be a luxury, as some people would have a hard time finding jobs again, should they quit. However, in some cases, this may be more of a fear than the reality. Do your research of course, as your mileage may vary.
 
-## Finances
+#
+# Finances
 
 Traveling typically requires spending money, unless you are one of those lucky individuals that can make money from it. But the amount you spend highly depends on 1) where you go, 2) your style of traveling, and 3) how you travel. I can’t tell you how much you need to travel, but I can tell you that it’s not as expensive as you think. In fact for people living in developed countries, the budget they need to put aside for one year of travel might be as much as half the budget at home.
 
-## Travel planning
+#
+# Travel planning
 
 Planning a trip is the exciting part! Depending on your travel duration and desired destinations, creating an itinerary can be quite a challenge. It involves juggling various goals and constraints. While it's enjoyable, it can also be quite tricky – it's basically an "NP-hard problem"! Think of it like the famous Traveling Salesman problem, which seeks to find the shortest path visiting all destinations; that's just one facet of travel planning's complexity. You're dealing with multiple objectives like budget, weather, accommodating everyone's preferences, deciding how long to stay at each place, ease of travel between points, and much more. Finding an optimum route is simply impossible, but here are a few tips that might help:
 
@@ -32,7 +36,8 @@ Planning a trip is the exciting part! Depending on your travel duration and desi
 * Do some research on the mode of transportation between these destinations. Will you be renting a car, opting for flights, or perhaps exploring the convenience of train travel if it's available?
 * If you plan to visit one too many places, consider dropping a few in lieu of staying longer in some of the other places. In my experience, transition days are the most tiresome, no matter how you plan to get from point A to point B. Reducing these potentially stressful days can go a long way in reducing travel fatigue. This is extra important, if you’re traveling with kids.
 * Come up with several candidate itineraries, and weigh their pros and cons against all of your objectives and constraints. Discuss them with your travel mates (often the spouse and older kids), until you narrow down to the one or two options that works best for you. I highly recommend writing up the plans, saving Google Maps itineraries, for example.
-## House/condo/car
+#
+# House/condo/car
 
 If you are renting, this is easy. Just wait until your lease is over, or break the lease, if possible. Sell stuff you don’t need, and store the rest somewhere. If you own a house, this can be more challenging. You have several options: 1) Rent it out, 2) do short-term rentals, and 3) leave it empty. Each have their own pros and cons, and it would be a whole post on its own to discuss them in length. But don’t let your house/condo be a reason for you to not travel.
 
@@ -40,7 +45,8 @@ I just want to tell this: If you choose to leave your house empty, like we did i
 
 As for the car, you can either sell it, or store it. If you’re storing it, make sure to put fuel stabilizer in the tank, if you traveling for more than a few months. Also, unplug the battery, and put some moisture absorbers in the car.
 
-## Gear
+#
+# Gear
 
 This is the real fun part! I love obsessing over what to carry with me in a trip, and I know it’s not only me, as there is a whole lot of people out there discussing this topic online! My philosophy is all about keeping it minimal when it comes to gear and luggage.. Every time I travel, I try to take less, and I still have things in my bag that I could have cut out! I used to travel with a 40L backpack, and now I have 30L, and even that could be smaller, if I was not bringing my big camera with me. Anyhow, here are a bunch of random tips around travel gear:
 
@@ -57,7 +63,8 @@ This is the real fun part! I love obsessing over what to carry with me in a trip
 * For critical stuff, consider bringing an extra, if they don’t add much weight/volume. A great example of that is an extra pair of glasses, if you need one. You don’t want to go through the hassle of buying new glasses in while traveling.
 * Write and maintain a packing list. This is so important. Not only it helps you not forget what to bring before the trip, it can also be used during the trip, when moving from one place to another, to double check if you are leaving anything behind.
 * Pack your bag a week or so before the trip. Maybe you have too much space, and you can downsize your bag. Just kidding! Most likely you’re going to find out that it’s the other way around. Instead of thinking about upsizing your bag, or bringing an extra bag, consider cutting things out. Are you packing bulky stuff? How about “just in case” stuff? Are you packing too much clothes?
-## Preparing for departure
+#
+# Preparing for departure
 
 Now you’ve done everything, and you have a few weeks to ensure your departure day goes off without a hitch and it is stress-free, I highly recommend using a (yet another) list. Start by creating a comprehensive checklist that spans from tasks a month before your trip down to the very hour of departure. There's just so much to tackle before heading to the airport that relying on memory alone isn't enough. Trust me on this one—compile a thorough list of every task that needs attention and stick to it religiously.
 

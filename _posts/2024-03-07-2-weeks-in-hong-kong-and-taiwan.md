@@ -4,7 +4,8 @@
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuaM10u4MMIL6f59S2HVaOXsRe6_prdBdUwIn2FUh-C2do9G-OqqLSXsNVi9bQJO-E-K3yhbpdWCWVmo8zc7u9lXlkIbuMvHMcw7L9-t35iYDVyOcCNS5Trswp2S7B213t6VgRT1HxHuVmQz2Me2aBdq6YS6EW4LIVUn7ap5AccsATfBSohwJ1c0kjrv_R/w640-h360/DSC01050.jpeg)As mentioned in my Vietnam blog, we originally intended to stay longer, but a visa mishap led us to make new plans. After careful consideration, including researching flight costs, we opted to spend one week in Hong Kong and Taiwan each, before moving on to our next destination in Southeast Asia. This unexpected turn of events presented us with the perfect opportunity to visit two places that had long been on our bucket list!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimbI7D2dHRYSNLhO3yG5inuvSbdDda7Q9n9D2Mae0ALLy4N-dOT-O-pb963ffgkzIkHsgoxP08rE6ZqB_hMLvr_7CPAbn_P-oDS6P6XvSem0UAsCN5L7oQyrTVaV2mnjbTcBM36AEUCZANnqsYLLWRGoNAXlO28ZWMp6YcXbPOoFdPYOaz8D3aXa98nbNQ/w640-h640/DSC01387.jpeg)# Hong Kong
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimbI7D2dHRYSNLhO3yG5inuvSbdDda7Q9n9D2Mae0ALLy4N-dOT-O-pb963ffgkzIkHsgoxP08rE6ZqB_hMLvr_7CPAbn_P-oDS6P6XvSem0UAsCN5L7oQyrTVaV2mnjbTcBM36AEUCZANnqsYLLWRGoNAXlO28ZWMp6YcXbPOoFdPYOaz8D3aXa98nbNQ/w640-h640/DSC01387.jpeg)
+# Hong Kong
 
 Hong Kong is a vibrant city located on the southeastern coast of China. It boasts a unique blend of urban sophistication and natural beauty. Hong Kong is known for its stunning skyline, with towering skyscrapers juxtaposed against the backdrop of lush green mountains and picturesque harbors. The city is made up of Hong Kong Island, Kowloon Peninsula, the New Territories, and numerous outlying islands. Its strategic location as a major international financial and trading hub has made it a bustling metropolis attracting people from all over the world.
 
@@ -26,7 +27,8 @@ While in Hong Kong, we unexpectedly encountered two French tourists whom we had 
 
 We spent 6 full days to explore Hong Kong, and it was great for us as we slowed down, and had some time for our son to play his heart out in some indoor playgrounds, but for others, maybe 3-4 days is plenty to visit most of what Hong Kong has to offer. One could also take some day-trips to Macau or Shenzen, or do hiking around the islands, and visit beaches. Overall, I was pleasantly surprised by how much I liked Hong Kong, and it reminded me of the first time I visited NYC.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh8eVBXSu6TNweutwxJY9rJUuaTe7NLkoLu9jVRcn0rAHwMMliw9K0LcZp803TbAeBIssQIsrF54J5nY6xL9C1HhF47zbefyIzlZlDBd6zk5OES7VKh7DBTCSz3IcxHAHxiZTJD9cihO8iHCK6RY7JNj6Ocd5qkuN_Wh7yWx24Wiaqp_zUd97GLnOnHBetB/w640-h480/R0008006.jpeg)# Taiwan
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh8eVBXSu6TNweutwxJY9rJUuaTe7NLkoLu9jVRcn0rAHwMMliw9K0LcZp803TbAeBIssQIsrF54J5nY6xL9C1HhF47zbefyIzlZlDBd6zk5OES7VKh7DBTCSz3IcxHAHxiZTJD9cihO8iHCK6RY7JNj6Ocd5qkuN_Wh7yWx24Wiaqp_zUd97GLnOnHBetB/w640-h480/R0008006.jpeg)
+# Taiwan
 
 The history of Taiwan is marked by waves of migration, colonization, and geopolitical shifts. One might think that Taiwan has always been populated by Chinese people, but that couldn’t be further from truth. Originally inhabited by Austronesian peoples, Taiwan's history was dramatically altered with the arrival of the Dutch in the 17th century, followed by the Spanish and then the Ming loyalists from Mainland China. Qing Dynasty China formally incorporated Taiwan in the late 17th century, but in the late 19th century, Taiwan came under Japanese rule after the First Sino-Japanese War. Japan's control lasted until the end of World War II, when Taiwan was handed back to the Republic of China (ROC). In 1949, following the Chinese Civil War, the ROC government retreated to Taiwan, leading to the split between the People's Republic of China (PRC) on the mainland and the ROC governing Taiwan. Taiwan has since developed into a vibrant democracy with a rich cultural heritage, distinct from mainland China.
 
@@ -64,7 +66,8 @@ We spent two amazing weeks in Hong Kong and Taipei, and we couldn’t have spent
 
 # FAQ
 
-## Which one had better public transportation system?
+#
+# Which one had better public transportation system?
 
 Moving around in Hong Kong is easy thanks to the world-class public transportation system. The buses and subways (MTR) are well-connected, fast, and convenient. When visiting Hong Kong, you certainly should get the Octopus Card to easily tap in and out to pay for the transit, but even better is to use the “Octopus for Tourists” app and use your NFC-enabled smartphone or watch. It is super convenient. The only downside is that you pay in your own currency, which means you get a slightly less favorable conversion rate, but I think it’s worth it for the comfort.
 
@@ -72,14 +75,17 @@ Taipei is basically the same story with their own version of MTR, and the so-cal
 
 But the most convenient public transportation system in the world when it comes to payment system is, in my opinion, London, though it is not the most modern or the cleanest. London’s tube is not only efficient and well-connected, but it also has the best payment system possible, as I explained in my [London travel blog](https://photopensieve.blogspot.com/2022/08/uk-london-yorkshire-and-edinburgh.html). All you have to do is to tap in and out using your credit card, or phone/watch, and you’re good! They even automatically cap your daily transportation expenditure by tracking your daily travel costs, and charging you at the end of the day, which is brilliant. I wish all public transportation systems copy this method.
 
-## Which one had better food?
+#
+# Which one had better food?
 
 Well, this one is easy, and it would go to Taiwan. Food in Hong Kong and Taiwan are pretty similar, but Taiwanese food is more influential, and I would say tastier. Also, the night markets in Taipei are a big deal in Taiwan, but not so much in Hong Kong.
 
-## How is traveling with a toddler in these cities?
+#
+# How is traveling with a toddler in these cities?
 
 Basically, if you can travel with your kids in a large city, like London or New York, you won’t have any problem traveling in Taipei or Hong Kong either. Both have great public transportation, and are quite stroller friendly, though we didn’t have one.
 
-## How is long-term traveling experience with a toddler?
+#
+# How is long-term traveling experience with a toddler?
 
 Well, this is a big topic on its own, but I have to say the big difference between a week or two-long vacation and long-term travel is that you can’t be just go go go. When you have 1 week off, you plan everything to efficiently visit all places of interest. Your child is probably pretty excited by the new sights and sounds for some time too. But when you travel long-term, you can’t keep doing that every single day, especially with a toddler. We deliberately stay longer than what a place needs, like a week instead of 4 days, to give ourselves some down times and slow days. We also don’t visit every single tourist attraction, and only do a handful of places during our visit. Slowing down allows our son to have his play time, and also factor in days that don’t go as planned. Having said that, there is no denying that we dearly miss daycare!
