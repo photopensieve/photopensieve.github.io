@@ -9,7 +9,7 @@ The final stretch of our round-the-world adventure took us to French Polynesia, 
 
 Superposition of FP islands on Europe, to show how large and spread-out the archipelago is.
 
-# Overview of French Polynesia
+## Overview of French Polynesia
 
 French Polynesia, an overseas territory of France, is an archipelago of more than 100 islands, sitting in the middle of the Pacific Ocean and covering a vast expanse almost the size of Europe. It comprises five archipelagos: the Society Islands, the Tuamotu Archipelago, the Gambier Islands, the Marquesas Islands, and the Austral Islands. The largest island, Tahiti, located within the Society Islands, is synonymous with French Polynesia, its people, and their language. The islands' landscapes range from high, rugged, volcanic terrains with lush vegetation, like Tahiti, to low-lying coral atolls, like the Tuamotus, making French Polynesia a prime destination for tourism.
 
@@ -23,7 +23,7 @@ Tourism highlights include Bora Bora, known for its luxurious overwater bungalow
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1g_Gxxb5zSUDm3s5V-KS6oP_E26O8EhPKJ-48D3ZTAHo3-t01epBby7m3AYt6vy3Yd2X9L8jWj22Sy5RoENQtz81kVqwBHhxhL41FvzLzlHPlHmxRS7HbLhFAqOzA52-fDeS7nU2m-I1WGyae52l_-8v47tN6jWejcHpLgRjV_Az5pj9WWr8GwJoBuCeG/w640-h428/R0009168.jpeg)
 
-# Our Experience in French Polynesia
+## Our Experience in French Polynesia
 
 We spent around 2 and a half weeks there, visiting 4 islands. We arrived in Tahiti from New Zealand, stayed overnight, and then took the ferry to Moorea. We stayed 5 nights in Moorea, and then flew to Raiatea, where we spent another 5 nights. We then took a ferry to Bora Bora, where we spent 4 nights, and then flew back to Tahiti, and spent the last 2 nights of our trip there.
 

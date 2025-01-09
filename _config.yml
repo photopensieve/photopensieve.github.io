@@ -19,6 +19,7 @@ github_username: "PhotoPensieve"
 ######### Nothing below needs to be changed (unless you know what you're doing) #########
 #########################################################################################
 theme: "minima"
+custom_css: assets/css/style.css
 
 rss: rss
 

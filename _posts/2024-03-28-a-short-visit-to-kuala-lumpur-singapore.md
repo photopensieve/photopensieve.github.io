@@ -1,4 +1,4 @@
-# A short visit to Kuala Lumpur \& Singapore
+# A short visit to Kuala Lumpur and Singapore
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/03/a-short-visit-to-kuala-lumpur-singapore.html)*.
 
@@ -51,6 +51,7 @@ One of the top attractions in KL is Batu Caves, which is a short Grab ride from 
 * You can pay almost everywhere with a card, except in some hawker stations, where they serve street food.
 * Singapore’s weather is much like Malaysia, so it is always hot and humid, and often rains in the afternoons.
 * Like Malaysia, they drive on the left side, and use the UK-type power outlets, so do bring an adaptor.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkUsVIN9bZgHCoeAkuGYAmKLg8M3b-uKEKewLYpfgIjVTd1y_Jv4HchXTEO_OnpcmJ7wZN-ABOX6NAe3uYE56Yr6ck_Y04AOU5KZesko-EwspxNXjxL1PWa10DpTy7omiTbTQvc3x3sMgIo836aj2WExbc3NrM3slq86WEwT_pu40ZkqUum18gUawpHzYf/w640-h426/DSC02127.jpeg)
 
 # Overview of Singapore
@@ -95,6 +96,7 @@ Singapore is renowned for its abundance of malls, which are ubiquitous across th
 * You can pay almost everywhere with a card, except in some hawker stations, where they serve street food.
 * Singapore’s weather is much like Malaysia, so it is always hot and humid, and often rains in the afternoons.
 * Like Malaysia, they drive on the left side, and use the UK-type power outlets, so do bring an adaptor.
+
 With that, we ended our short visit to Malaysia and Singapore, and we headed to Indonesia, where we will hopefully spend a great amount of time!
 
 # FAQ
