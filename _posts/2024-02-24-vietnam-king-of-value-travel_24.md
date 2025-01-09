@@ -3,9 +3,11 @@
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/02/vietnam-king-of-value-travel_24.html)*.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhbSDxHiDTOKTYvWHeoMhTTCsNv9Qi_fOiEx70zYbpik6BL7deMEQHvAPNb0ry9H129m_9mCpZSJdA37nlg48bWS38eG84p8PBZZpG0pG1vh8o2jAGGuHSBL37NmroUhEga_ND5l_iyvSTxC1siIDbtnD00LH3IikF_NGRgmqqOWce_0OxmmArMCsbVU1vC/w640-h480/DSC00696.jpeg)
+
 In the second part, I’m going to discuss our travels in central and northern Vietnam.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikMjCwX3ENNa5sb0IWJulQTnCi0gwq6gTh_M-McKJd0i3EcgPRob80e0n-shW51MMa6hDmRt-F3E6XptMohZeJ-LwgOGuyzmlue5oAAV4H0bqJXwywK3uacysGNceC7Ey3mvdu7S8eSNouKcb3cEY-MeRRqXnRvCtjetlvkyWpKzPi6vfOBUPIZhWAGOOc/w640-h480/DSC00028.jpeg)
+
 # Hoi An
 
 Traveling in Vietnam during the Tet holiday presents challenges, such as transportation being fully booked in advance. This was the case when we attempted to secure train tickets from Nha Trang to Da Nang, near Hoi An, but found none available. With bus travel being lengthy and inconvenient, we chose to fly despite the premium cost during this peak period. Upon reaching Da Nang, we used Grab to get from the airport to our accommodation in Hoi An, which took around 45 minutes or so.
@@ -17,6 +19,7 @@ When visiting Hoi An, a fun activity to try is basket boat riding through the co
 Hoi An is renowned for its tailors, offering complete suits for (allegedly) as little as \$100, although the quality may vary. While we weren't actively seeking to purchase anything, and were mostly window shopping, the constant presence of tailor shops and their persistent sales tactics made the experience somewhat overwhelming. My wife was thinking about having a dress made, but gave up after a few times, as either the prices were high, or they were too pushy for her taste. Your mileage may vary! Having said that, I got a haircut there for \$4 only!
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtNOcsGSaUzT24xtXKx0ZbjjrYLZzphREf2UcAg-3Tq8b-s1bKeyiFCzcErTfPQ7pFa-8dk7QhDKp1o3yvXuS-AvN7-b6M210luiqw1Y6_S6DTeughMD9OQCOsCs9xG5tLAWhjl2rou004LokVsM76VFXpC-pd643VASXnI7upLHJ-Tex1-VNxc6AlLiQy/w640-h480/DSC00230.jpeg)
+
 # Da Nang
 
 Da Nang is the third largest city in Vietnam, and it is 30 minutes north of Hoi An. We stayed 3 nights in Da Nang, but we could have stayed another 1-2 days easily.
@@ -26,6 +29,7 @@ When doing research on Vietnam, I came across this bridge that was seemingly bee
 We also visited Marble Mountains which are a collection of limestone and marble hills with large caves, and deep cultural and religious significance. Inside the caves of these majestic formations, there are Buddha statues, some adorned with intricate carvings and others illuminated by softly glowing light. Some caves are really large, and it’s obvious that they have been used as temples for a long time. There are a lot of steps involved though, so be ready for a good workout, if you visit!
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhRm4sLFbsrwUvx2X8B_B-KOgM7dFtwbyLSp3aGyTSMYBnmJi-0V4nSl_AqL0Xc00wMsO6h6ybJKbEWcNgd04WVduf1wWb7pUuf_X1OOQ6iyHmjqOaBu4FjsPhTmpSrTevvtWO7Focz1Wl9LwPdIQDx_z-3N2e2OgJDtDv74rcr-1Yo3fGerOdARHejAmpz/w640-h426/DSC00313.jpeg)
+
 # Hue
 
 We took a van, or what they call a limousine here, to Hue, which is 2 hours north of Da Nang. Initially, there was some confusion about the pick-up point, but fortunately, the van arrived on time, and we boarded without any issues. Along the way, we enjoyed the scenic views of the ocean, rice paddies, and lush green hills.
@@ -37,6 +41,7 @@ One more spot I had on my list was Ho Thuy Tien, an abandoned aquatic park known
 Unfortunately, the weather in Hue didn't cooperate during our visit, with constant drizzling reminiscent of Seattle's typical weather. Adding to our challenges, two out of the three days coincided with a national holiday of Tet, resulting in many shops being closed and difficulty in finding taxis or Grab. This was so bad that when we wanted to get to the train station, we couldn’t find a single taxi, so in a pinch, two staff members from our hotel generously offered to drive us to the train station on their scooters, luggage and all. It was an unexpected adventure made easier by our minimal travel gear!
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEitWMkECYZ00GdfAMzADfv_t6oC05qgkMznoxtFmVt6csAKqhMKwJaT7ipCfgn1nUf0b4q00R8yXMXauEnvLtU6Evtqiv6doQDe7JWnqiSxScJg1IUMrJnXtbhe1fptdUvrLITo3puQT5f_baPcnSShPTQco8AGA-TD-rymS_On6lAYZiM2mJ6L4pFu6x5B/w640-h480/DSC00504.jpeg)
+
 # Ninh Binh
 
 Our train arrived in Ninh Binh in the morning. The train ride was comfortable, and our son slept the whole way. We got a Grab to our accommodation, and after check-in, went to take a boat tour in Trang An. Ninh Binh is famous for its natural beauty, sometimes dubbed as “Halong Bay on Land”, as it also has large limestone formations covered partially with lush green trees, and you can ride a boat along shallow waters adjacent to rice paddies meandering through the rock formations. In fact, we skipped Halong Bay altogether because 1) we were running out of time in Vietnam due to the visa mishap, 2) it was easier to visit Ninh Binh since it was on route from Hue to Hanoi, whereas to get to Halong Bay we first had to go to Hanoi, and then take a 3 hour bus ride to Halong Bay and back, and 3) we thought Halong Bay will be too crowded, as it is one of the most famous attractions in Vietnam. Little did we know that Ninh Binh would be super packed with tourists too.
@@ -48,6 +53,7 @@ The third day in Ninh Binh, we went to Tam Coc instead, and that one day redeeme
 Tet holiday and over-tourism aside, Ninh Binh was pretty challenging for us, as it was more rural, and we had a hard time moving around, as Grab didn’t work well there. Most people going there rent scooters, which works great, but we didn’t, since it would have been quite risky with a toddler. When you travel with small children, some places are more difficult than others, and there is no way around it.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-zLNK31oVGcEFiHBWOIEmy_j4cTb0BwsllQ6ZthORcWUE_9UDnpMeOnOL47Pf3MmGpasucVeTFsmQpcyfz87LI04V2l9yHkcffuvo9XCGbDMpKgc8tbYJHyqW3Jw1B0l4Ag4SqhzG7why70hAIO-2_qI4goHTiMUCAoApFelELVjZZ2VQzRaJqWgCZwvr/w640-h634/DSC00884.jpeg)
+
 # Hanoi
 
 From Ninh Binh, we took a train to our last destination in Vietnam, Hanoi. Hanoi is the capital of Vietnam (since 1976), and it is famous for its vibrant Old Quarter, where narrow streets buzz with motorbikes and the scent of exotic foods waft through the air. Wandering through the labyrinthine alleys, packed with parked scooters and sidewalks turned into eateries, visitors encounter a tapestry of ancient temples, colonial architecture, and bustling markets.

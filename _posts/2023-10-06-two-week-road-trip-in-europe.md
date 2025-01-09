@@ -3,10 +3,13 @@
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2023/10/two-week-road-trip-in-europe.html)*.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhA04243zyO7DE9mIxYguvTmkpbRUPRJFiEhO7K_b0tiMOSFw_zwozIGB55lOQ2wU-QD4h94IbxfJIfz5PAU1JeYJSnxATL-CZi36J3ruHSCzWHNCnic5SdBMOAdMI8U6PPAmxPND_o_bbb8S5tItCtHt-LycPagah5xMEVgQfyJJrPEperm-heOgq4NAEp/w640-h640/DSC07736.jpeg)
+
 We kicked off our long-term travel by a road trip starting in Frankfurt. Our flight from Seattle was with Condor (a German low-budget airline), and was largely uneventful, i.e. it went well. Our son happens to LOVE flying, so he is super excited to be on the plane, and after playing some games and watching some cartoons, he slept most of the way to Frankfurt. We rented a car, a hybrid Jeep Renegade (which caused us some problems, but more on that later), and did a loop in Germany, Luxembourg, and France. The focus of the trip was mostly smaller towns and villages. Before I recount the details of the road trip, I’m going to delve a bit into what we brought with us.
+
 ## Travel Gear
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiw3WzPvtkcci8-TgDkiPTEqkaDt88mXKTldw0Z0BxY8Kzj0LxPfcqI_BqdbOJpfSC4iqVYu_1auPqLodBsfkSjNRVHPrcg1Q_JUBQfW939Zy0ZpRDW-t51vnvdqGVTjj-dlvcdkLgodtVRvnusYSu4D6UvX7rayh2OhfnGE3QN3zX6JHaE-pXEHpCwTGqj/w480-h640/IMG_3933.jpeg)
+
 I usually write a separate blog post about the trip, but this time around, I’m just going to discuss in short, as our travel gear is mostly similar to the [last year’s trip](https://photopensieve.blogspot.com/2022/04/eurotrip-travel-gear.html).
 
 As a reminder, we love to travel lightweight, so I’m only carrying a 30L backpack (Patagonia Mini MLC), my wife and son each have a carry-on luggage (my son’s is a cute little Mickey Mouse luggage), and my wife has a daypack. We have brought a stroller for my son (Uppababy Minu), which has proven to be extremely useful so far.
@@ -16,9 +19,11 @@ I carry all my clothes in one medium-size compression packing cube, plus a packa
 Now that we are done with the travel gear, let’s talk about the actual trip!
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg0haHdrjGIkStMOoyeEnrLbIxzoei4f2OBV4JsStgCsk-Bda9ep9L0MaU_KpqJy6xEscGYamb2zfTpAwZABlGtFjSHak3GhrneYcQw3NijQdjPFAcH_57wuqRrqugX-z0vGgH2ssEe66ZkkKui4kXcvwD5CNSu7NMWz1saweaKEZUjXqU0KdPp6gtbAJnF/w400-h398/IMG_3250.jpeg)
+
 ## Germany
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-_i3kzL4CCQFXIzF-p_CFtfVsxfuYYXog3ehleT7mslNElRXldChCyY73z9K3C8HZUWo9JAA1ZOQodv7rrRzz0xOdESehpNxHnRlVwTw6ApbfVihrBFkeHEqLBytoQNp4HmKVcPGwwMT23PND_m3eaUtrUxt5V0yrOnyJyJJOCpt8FkXVyb1fceeXHD51/w640-h480/IMG_4005.jpeg)
+
 One of the places I wanted to visit was Eltz Castle, which is an hour and half from Frankfurt. So when we arrived (and finally managed to get the car after an hour of wait), we drove to a small town close to the castle. However, looking back, that wasn't such a great idea. I was seriously jetlagged (it was way past midnight in Seattle for me), and I couldn't keep my eyes from closing while driving. We had to stop along the way, so I could catch some sleep. Note to self: Don’t plan a drive right after a redeye flight.
 
 Eltz Castle is one of the most beautiful castles in Germany, though not as famous as Neuschwanstein Castle in Bavaria. Fun fact: This castle has been owned by one family, the Eltz family, for over 800 years! Anyhow, in my opinion, most castles are best enjoyed from outside, as the interior is typically lackluster, so all I wanted to do was to snap a few pictures from outside in good light, and with no people around. So with that in mind, I woke up early one day (still being jetlagged), and went to the castle by myself before the opening hour. You need a car to visit the castle, and you have to drive to a parking lot, and walk down a path (15 min) to the castle. After taking some photos, I met another early-bird photographer, called Peterson (first name), and we chatted a while about photography and travel. I always enjoy chatting with other photographers, but most photographers that I meet while traveling are quite reserved, and you can’t talk with them much. It was refreshing to meet another photographer who likes to chat about photography.
@@ -33,6 +38,7 @@ It was in Trier that our little Jeep started acting up, and beeping loudly that 
 # Luxembourg
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUtHE5Pk3ZVxR82YCOphG0N4ne6JLzwXxgKnlDfr9O-WwHs_srgvZvvnU9g5pWcgsoZ2gjLWP3yhuoG4N95N1I_S3KvGY2qYzRMk7U5VwhynPQ0jWWIX7Lq9F0nUVPIjMZmOa_VdwbPKm9VQMHrwnF3g2qBNpIpV4I4oIH3TIAVbI9fahhc5ghPXDvJwPq/w426-h640/R0005444.jpeg)
+
 This part is embarrassingly (or expectedly?) short, as we just did a day-visit to Luxembourg, while we stayed at our next location in France. For those who don’t know, Luxembourg is the largest tiny country in Europe, landlocked between Belgium, Germany and France. I say largest tiny country, because I compare it to the really tiny ones, like Monaco, Vatican, San Marino, Lichtenstein, etc. You can basically criss-cross the country within a couple of hours.
 
 Luxembourg (the city) is a nice upscale city, reminding me a lot of Zurich, for example. There was not much to see or do over there, but it was nice enough to spend a few hours walking around, especially down to the lower part of the city by taking elevators. I’m sure there are more to do and see in this rich and tiny country, but my search online didn’t show anything considerably noteworthy.
@@ -41,6 +47,7 @@ Luxembourg (the city) is a nice upscale city, reminding me a lot of Zurich, for 
 # France
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJW6NiYc37enpH57OATsLWPx5Y8s32HXglUaaeAVET7E7VxfiF2DbUkqWvh23KIJw-vfsZkEExl4J-hS2ZJ79Lld_a6jnJyNJWaopu7NqajVX2bnZPp7iylr_FlMfQnrJ0lZK42zFz-8r9X-EVdmyDWiRM0iBa-erHQtVRzsOmvHnRPJpCph4COOKfqHcj/w640-h480/DSC07879.jpeg)
+
 In this road trip, we spent most of our time in France. Even to visit Luxembourg, we stayed in a French town near the border (Amnéville) as the prices in Luxembourg were much higher. One thing that I loved about France is that I speak the language (not that good though), so it was much easier to interact with people. One thing I loved to do in France was to just strike up a conversation with people and practice my French. While in Amnéville, we visited Metz too, which was a cute little town, and worth a day visit.
 
 Our next destination was Alsace region, so we did a stop in Nancy, which was another nice little city - almost like a mini-Paris - and then carried on to Colmar. Visiting Alsace was the main reason for this road trip. It’s colorful German-looking but French little towns and villages were of great interest to me. We chose to stay in a farm outside Colmar, called “Chez Marguerite Gîtes à la ferme”. We were delighted when we arrived, as not only Marguerite and her dad, Jean-Daniel, made us feel very welcomed, the place itself was super nice, and spotless clean. They also had a girl from US doing Wwoofing with them. If you don’t know, WWOOF is a global program where volunteers work on organic farms in exchange for food, accommodation, and the chance to learn about sustainable farming practices. In the farm, they had 50 or so cows, some rabbits (bred for the table), and some chickens. I enjoyed chatting with Jean-Daniel everyday, and learn a few things about the farm. You can find him in [this video](https://youtu.be/1rpkA7FkRqQ?si=5mtttYF1mPB6QbHx) talking about Wwoofing in Alsatian, which is the German dialect of this region.

@@ -3,9 +3,11 @@
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/01/iran-visiting-family-and-touring-around_11.html)*.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEJWEqqmwaPS2oC237KcH_4RQeJTiu5DGAfmR7qU7jYyAmptEexTROwEZvUDH5wlocgVi5-XmwFyz_yQIRQ8le8d4tMI5Z1F5R8cQXzbpapKx2WWOcIcSl-vzu7WL2QZVyCSq8urpjszSMc5-cDXRTYcaUOzgmpigBAZ9K9kocyEr9sw70_Br-P7O8DatM/w480-h640/DSC09154.jpeg)
+
 In the [first part](https://photopensieve.blogspot.com/2024/01/iran-visiting-family-and-touring-around.html), I discussed our visit to Tehran, Mashhad and Yazd, and in this second and last part, I discuss our visits to Hormuz Island, Qeshm, and Shiraz.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgubRwqmSjt0Dg3z7WfQBY3jMjqqSuAzIbMq9Y2R4Ql5_6vlMZlUmTbQkJ0TPgtn3I4CCWEw-R5iD97c5zoBnkpowVfqjUontIvHwVa_auIzIAu1PxUQAfuap-TJ3TVVUVHGKDDSlw2nxqG7gIn6CBNUvEYfz3Ia3l1MNj7wxZ30g5pfF4YyKaQJIkFezNP/w640-h480/R0006408.jpeg)
+
 ### Hormuz Island
 
 After a fantastic stay in Yazd, we took an overnight train to Bandar Abbas, which is a large city and port close to Hormuz Strait, and from there, took the first ferry to Hormuz Island, which took around 45 minutes. The ferries are a bit old, but the terminal was modern and clean, and we had no issues with the ride. Purchasing tickets in advance was not really necessary.
@@ -13,11 +15,13 @@ After a fantastic stay in Yazd, we took an overnight train to Bandar Abbas, whic
 I have to confess that before this trip, I had not heard of the tiny Hormuz Island. But when I was researching Qeshm, I discovered how beautiful Hormuz Island is, and decided to visit. Many people do a day trip to Hormuz from Qeshm, but that would have been a long and rushed day. So instead, we decided to spend three nights there so we have enough time. I’m glad we did since that allowed us to experience the island a lot more intimately.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiH02nEzwgFbVPYzQXuTh7Nyws8-kpSyYjzB9eMZ5EHsTeoMKduiGvBq5-w6cEYUxGAQcHKeik5V1CklOUokHQoFI1xhDqBpD65kstxBiiuyvbdD0JGSxO-sSw5tueno07yrzWqDWBR3e_Z5X5HsJjHQat_ICR20gVQlj5SN_dRWz21isPwybxkg5LV9c6n/w426-h640/DSC08482.jpeg)
+
 Hormuz Island stands out for its stunning geological features, showcasing vibrant rock and salt formations, and it is quite distinct from the nearby Qeshm Island. Apart from the tourists interested in the natural attractions, the island is also quite popular with many young Iranian hippies. It seems that a more relaxed vibe in Hormuz Island (and Qeshm too) has made it a safe haven for the younger generation. Along with the note of people watching, we also enjoyed walking around the harbor in the evenings, where many locals and tourists alike mingle. In the evenings, local women set up carpets by the road, offering a chance to taste local cuisine and engage in conversations about their lives. This interaction was a definite highlight of our trip.
 
 A bit about the travel logistics: Finding a good place to stay in Hormuz Island wasn’t easy, as there are not that many hotels and accommodations readily available. We rented an apartment through “Jabama” website, which was ok, but there were not that many great options in general. The most common mode of transportation on the island is tuk-tuk. We hired one for a few hours a day (\$10 for 3-4 hours), giving us a tour of the island. That allowed us to set our own pace, and visit our desired places on two different days. We also had amazing seafood while we were there. The most famous dish there is called “Qelye-Mahi” - I have no idea what it means - which is a fish stew served with rice. Overall, I highly recommend visiting Hormuz Island, not as a day trip, but as a destination on its own.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEitVEMnZwsOT3ugXhZXJ3moTmkZqOQfrqkCMX9AAlsYQ1DqwYDwYUO696ib4hIXPkZc_RGfFDJZciPK16jwoyCljFH3Ux-sPUOdjAhNZXJEADrsSeDY1c_RuGAwVIFU74o55NmgiKxdPM2nTFRz22EUhUatyNi9JMrf7_waM0A6C2P03vHpwwCtNCEVU79T/w480-h640/DSC08552.jpeg)
+
 ### Qeshm
 
 We took a ferry from Hormuz Island to Qeshm, which took around 45 minutes. The ferries were not that regular, and they told us that the schedule depended on the number of tourists on a given day. Qeshm is the largest island in the Persian Gulf shaped like a whale - long and thin. Many people come over there for shopping due to the abundance of contraband goods.
@@ -29,6 +33,7 @@ We found a good and reliable driver through our first host and got chauffeured a
 Our visit to Qeshm was quite laid-back. We savored the sunny weather, the sea, and the friendliness of the people. Qeshm is definitely on our "come back to" list!
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgoYXFggTo0R0d-dkmEXMq6CHIdZbUWMX5562lljOyC3lSQNxN0sgwmYQt02wwIDg4eAPBgmewl-heoghdgoMVvaZYAbCV3yqHFym_S_iP0bg-rCpF2DzS-1WJBq3CUF2UAhyphenhyphenO82PL4RWHzLybbRImGxLxtl9CgcxA_1Da47ovrgZ4fQESZ5Vc5mYpbB2CL/w640-h640/DSC08801.jpeg)
+
 ### Persepolis
 
 After a fantastic time in the Persian Gulf islands, we flew from Qeshm to Shiraz and then took a cab to Persepolis, or as it is called in Persian, Takhte Jamshid (meaning Throne of Jamshid). Persepolis is located 60 km north of Shiraz, so to have enough time to visit it along with other archeological sites around it, we spent two nights there in Hotel Apadana adjacent to Persepolis.
@@ -50,6 +55,7 @@ Despite arguably being the largest palace complex of ancient times with impeccab
 On our last day, we checked out Naqsh-e Rostam, known for being the burial place of four Achaemenid kings, including Darius the Great and Xerxes I. Ancient Persians, who followed Zoroastrianism, had unique burial customs. Unlike the Tower of Silence in Yazd, where the deceased are exposed to birds to deal with, royal figures like kings were entombed in the mountains. Carved high into cliffs, each tomb boasts detailed architectural designs. Notably, the facades show scenes of the king receiving blessings from a god, surrounded by rows of smaller figures presenting tributes, along with soldiers and officials. The entrance leads to a central chamber with a sarcophagus where the king is laid to rest. There are also a few large Sasanid bas-reliefs depicting historical scenes, most notably of Shapour I’s triumph over two Roman emperors, Philip the Arab and Valerian, with the latter being captured and imprisoned during a battle. Another notable monument is “Ka'ba-ye Zartosht”, which is a cube-shaped tower built in the 5th century BC, whose function is not really known.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiWCm-bM5AhvpmfZ_La68G8Skav5_LJLK_jDG1WxGFvYaZAWCgJzBD3WqUMsxKptt-e5xEVJUSVVD6XURDHeyQ7MwgffTanYwKyUIS0WfxqB7SNzvmQGJ5yXAcQfbw19F7fC3pdgtZsRA3HUkNDvYuR6kbai476C8PwBu3-uYRcj26KTM-qRWFSVAjNSZjB/w640-h426/DSC09043.jpeg)
+
 ## Shiraz
 
 After 2 nights in Persepolis, we took a cab to Shiraz, checking in at the 5-star Zandiyeh Hotel. We normally don’t stay in such hotels, but since it was a super bang for bucks (\$60/night), we decided to try it out. As I said in Part 1, Iran is one of the cheapest countries for international tourists (not for the poor Iranians themselves), so it is a perfect place to try out some luxury without breaking the bank. Our stay at Hotel Zandiyeh in Shiraz was fantastic. The room, service, and breakfast were top-notch. We also enjoyed the luxurious pool and spa center. Highly recommended!

@@ -3,9 +3,11 @@
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/01/thailand-temples-beaches-and-tasteful.html)*.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1eY72xSqxHVEuFk7PWogWveLe2_IqjQWSdhK3RTbQ1HqsA-SGKNz_56FS9mx2z5yqO3_d0DhzlmLqVinF_VOacdq_DHke1JLNn5TI2twkQnJKyL_J6OShe1-ah8fVDF5hGyh6o-YPIiPLGPUCekZ6DBZHveN26vqss-KS-JURU5LwspBw8w7XW6tfs86S/w640-h426/R0007106.jpeg)
+
 Our major travel destination in this [round-the-world journey](https://photopensieve.blogspot.com/2023/09/our-dream-travel-around-world-begins.html) is Southeast Asia, and we started it off by visiting Thailand. This is our first time in this region of the world and we are super excited for our time here.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjcTToeOKxxQLOkMEkVRsUui0Glendngq7IkD41z25njsYPQhfuQsx0etVwW-YOYqxHPA6kVWvMNUvjFju7R0DtRvap1K8RLH3YaE_GJ8rjHyV2LPv63EzTxaQ7TtQP2Oa860ZnBJ4W63xy6B6s9U1ARm_sdZx9T3L9pcEY70Xhw0Mc9efXTMexsNU_KWIf/w426-h640/R0006908.jpeg)
+
 # Bangkok
 
 We took a direct overnight flight from Tehran to Bangkok on Mahan Airline, and arrived in the morning in BKK airport. There is a special feeling when you arrive in a totally new place for the first time. Everything feels new, including the air. This is especially true in Bangkok, as the first thing you notice when you get off the plane is the temperature and humidity. It’s stifling, compressing around you like a wet shirt. Actually, that is your shirt, drenched with sweat almost instantly from the intense heat!
@@ -19,12 +21,15 @@ Bangkok is a tale of two cities: On one side, you'll encounter the glitz of luxu
 There are many temple complexes in Bangkok, but we only visited “Wat Pho” which houses a large reclining Buddha, along with many other temples, and “Wat Arun” with impressive tall towers. In old temples in Bangkok and later in Ayutthaya, we saw many Thai men and women dressing up to have their pictures taken. Apparently this is inspired by a hit soap opera called “Love Destiny”, which is a time travel drama happening in 17th century that has taken Thailand by a storm, due to its enticing screenplay, costumes and filming locations. Kind of reminds me of how people dress up as Hogwarts students to have their photos taken in various places in the UK!
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhakhfD0IRz6Kfs2ZZmzd_hvJAu58QiCWOIyYdFeWRoZqQAzvxjSrFZfMbGEvj_fSVBm1B5cgOw_41PO0L63cFN9aNqtZsx4xGktbxRkjNX2qTg-lcva6jlzxMEW5swhfGUchxnWFeUY9trjenWMfF0qlBA_UDK191C0xhQhJDDQMDyH1w8gn3sq_XO9eao/w640-h480/R0006676.jpeg)
+
 Any visit to Bangkok is not complete without visiting its many night markets. We visited a few with the most notable one being the one in the Chinatown. Locals and tourists flock to dine at tables set up by street food vendors. Some places are so good they've earned Michelin stars, but you'll see Michelin stickers everywhere, so do your research. The markets also showcase exotic foods like deep-fried insects, though they're more for display than regular consumption. During our stay, we never came across a restaurant offering them on the menu. It seems insects are more of a specialty food tried occasionally by some adventurous folks.
 
 Getting around Bangkok is best done using its metro system, complemented by river ferries and Grab (which is SE Asian equivalent of Uber) when needed. The metro, though efficient, has the drawback of two non-compatible ticketing systems, requiring a new ticket when switching companies. Unlike the seamless payment in the UK that works with Apple Pay or any contactless payment method, Bangkok's system can be a bit cumbersome. Ferries offer a pleasant mode of transportation, providing a scenic route along the Chao Phraya River, perfect for relaxing with a napping child. However, be cautious with tuk-tuks; our experience involved a pre-agreed price that wasn't honored. For hassle-free transportation, especially for short distances, I recommend relying on Grab instead of tuk-tuks and taxis.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhRuHXu9KfmDhcnPjjtbCCPukXRE8J8KoTyw24FiTFzXWmrHNtGRghv3Zuc6FydEg9C5mjBuqMzDU7uXQhacL-d3F7Y_Z4zBfM9EX1l10lNwu0MyiK9K1rVoyEhLgJ00O4KZnZ1pstZ10dx1b9lxAuubcaSf4gHeJ2KhqO8PC6Qgct9bvfilVcUhlJN95Nb/w640-h480/R0006957.jpeg)
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg5DdLaXA80R5tF1zsHy45zgqQrUAM2pGSSk-LqhxfAgU_hbbHmzzmjclsPyr57VPwrizPS_VwQlbXjVxoSBSPp-mpm5Y0tWRQK4uuzD75PXYScP48I9YPAtTREVouxqnuzlFUyheuCYrC_QEl_mM9GGVHvUfH3YT4remMdHx2ksacHYlkmAsjYnVGZ-fDH/w512-h640/DSC09566.jpeg)
+
 # Ayutthaya
 
 Ayutthaya, a historic city just one hour north of Bangkok, is often visited on a day-trip, but we decided to stay for two nights for a more relaxed experience. We took the train from Hua Lamphong station, which turned out it only has old trains with 3rd class wagons. In the hindsight, I would have used the newer train station north of Bangkok. The upside was the incredibly low cost, just 50 cents per person (!), and the chance to interact with friendly locals. However, the downside was the lack of air conditioning, as the trains only had fans, many of which weren't functional, making the journey quite sweaty. Additionally, there were no assigned seats, so during peak hours or seasons, standing the entire way was a possibility. Despite the loud and bumpy ride, it was an overall interesting experience.
@@ -34,6 +39,7 @@ Ayutthaya was the capital of its namesake kingdom which is considered the precur
 We had a blast exploring Ayutthaya over two days. The ruined temples, reminiscent of a mini Angkor Wat, were a highlight. We're eyeing to visit Angkor Wat later in this trip. Ayutthaya was hotter and more humid than expected, making walking a challenge. Some temples provided umbrellas, which is a lifesaver. Despite its walkable appearance on the map, Ayutthaya’s old town is larger than it seems, and the heat made Grab rides a more comfortable choice, plus it's affordable.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkPoGnbjaWh6oBJJO1hA_bCrNXp5iyPoRkA6f65vB5sg5bHYxZkHNMxcvN2tLS1KOm_I9zJ2-NXhNpRyIkX3vvEPKwEx3I_myOhRi-mepcUNRwre6jrDtsR7ucn-AoVt6zO895iI7oct5lU5J6756xdaxY8BdZmZNJAAFYmjwZ-kcQPDZhX-NMgaM9ijEf/w640-h360/DSC09835.jpeg)
+
 # Krabi
 
 No visit to Thailand is complete without visiting its beaches, of course. So after Ayutthaya, we got a flight from Don Muang Airport to Krabi with Air Asia. From there, we took a Grab to the coastal town of Ao Nang.
@@ -49,6 +55,7 @@ Another tour we did while in Ao Nang was visiting an elephant sanctuary. Thailan
 Most people use Ao Nang as a departure point for the most well-known Thai island, Koh Phi Phi, but given how crowded Ao Nang was, we quickly decided that Koh Phi Phi is not for us. Koh Phi Phi is on every top locations list of Thailand, but that’s exactly why we avoided it. Koh Phi Phi got famous due to Leonardo DiCaprio’s movie “The Beach” which came out in 2000, but since then, its fame has resulted in over-tourism. Instead, we opted to go the exact opposite of that: Koh Yao Yai.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnB-L6vmOMbZUOn-f_JJoPIIwyr4kfUhzfWUWNejAPDGql1MCpV6kCXgh0n8aACLcyh5LGUppxvYRh7OYj-cv8jcYCUmZ3Hd1tsDM_EUs2cdZ7sLSUlSDezFOhL__sYEuw6Y6edPA6J8zS_HcVQBpupaRL79DzxS8RS6070by4rw_ZGlkpYtDbB3W9rah7/w640-h426/R0007241.jpeg)
+
 # Koh Yao Yai
 
 Koh Yao Yai, literally meaning Big Yao Island, is nestled in the Andaman Sea between the more well-known Krabi and Phuket, and it offers a serene escape from the hustle of its more touristy neighbors. Its tranquil atmosphere and original charm make it a haven for those seeking a laid-back experience. Unlike its more developed counterparts, Koh Yao Yai maintains a rustic vibe with fewer crowds and untouched landscapes. The island's predominantly Muslim population adds a unique cultural flavor to the experience, with friendly locals and a relaxed pace of life. If you appreciate authenticity and a quieter getaway, Koh Yao Yai is definitely worth a visit.
@@ -58,6 +65,7 @@ After a quick speedboat ride from Ao Nang, we arrived at the north part of the i
 We visited Ao Muong beach for three days in a row, as it was serene and beautiful, with only a handful of tourists around. This was our perfect place, as we enjoyed some time on the beach. I did some snorkeling there too, though it wasn’t the best. Driving around the island, we ran into a few problems with the tuk-tuk - got stuck in sand, the battery ran out, etc - but each time, the friendly locals came to the rescue.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVJCPSJavf9LPBIPUv3oWpzN6WDVgWEekYmzGRGg3DBB2uBIy_BKIvO_nWdAEtML-BAAuELkOnZ_JJeePXdnMSNE50z2nlhQGIni_Oq0Nz8Aqe2frpABlWotoFGQ-a6_1HE4INuiW5AA440UPhuNKes5g_kc5Q_OQu6ABULhfPKiQOih_mQM3-uGbPymtQ/w640-h640/R0007357.jpeg)
+
 # Phuket
 
 On our last day in Koh Yao Yai, we got a speed boat from a pier in southwest of the island to Phuket, which took only 30 minutes or so. Phuket is largest island in Thailand, and is renowned for its beaches and water activities. It even has an international airport, with connections to many countries around the world. For this reason, it is also the most visited island in Southern Thailand, and is packed with tourists.
@@ -67,6 +75,7 @@ Phuket is a pretty large island too, with lots of hills and mountains all over i
 Most popular place - read the place to avoid - in Phuket is “Patong Beach”. Patong Beach was like Ao Nang on steroid: It is teeming with tourists, and there are malls, night markets, numerous hotels and resorts, and of course, a large stretch of golden beach with umbrellas and water activities. If that is your thing, stay there, and you have everything around you. Otherwise, run away! We stayed in Kata Beach, which was a smaller area, still pretty tourist-oriented, but a lot less chaotic. I’ve heard Kamala Beach is also a good place to stay, but we didn’t find a place there. There is also Phuket Town which is on the east of the island. It is certainly worth a visit with its colonial architecture. We combined that with a visit to the Big Buddha atop a mountain, but we learned the hard way that coming down wasn’t easy, as no Bolt driver would pick us up there. If you go there, make sure to secure the trip back.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUBBNkTMhzbqrO905EbG7k80YNfhhUi35qb4FLnSCyAVz-75p_9Ud0ZPdxBW8tppc53_Ud1SWOSuhfNVQ9PbYwb1ZE57N0VflIaxdudI-zJef19-TipYoLNyxVPdZd4c13rvWwDgrDOBJJw6aPi-tiHMGCsLTB85mk3d7oTFdUYDBjWf-bT6PdfBDLmnkd/w640-h426/DSC09901.jpeg)
+
 The last day before taking our flight to our next destination, Ho Chi Minh City, we went to a beach right behind the airport to see planes landing right over our heads. This small detour was surely worth it, and our son loved it even more than us! We left our luggage with a hotel nearby, and spent half an hour or so on the beach, and then took another Bolt to the airport.
 
 To be honest, if I planned our visit again, I would skip Phuket altogether: It’s super touristy, it is too big, you need a car or bike to go around, it’s expensive, and doesn’t really have any outstanding natural or historical feature. Instead, I would use the time to visit more secluded beaches and islands.

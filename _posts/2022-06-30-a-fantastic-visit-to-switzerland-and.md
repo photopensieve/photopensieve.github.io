@@ -11,6 +11,7 @@ We spent six days in Lausanne area, mostly meeting friends, and going to my favo
 No trip to Switzerland is complete without visiting the Alps, of course. Swiss Alps is full of fantastic places to visit, but I wanted to take my wife to the best of the bests, so I chose the Bernese Oberland. I had visited this region a couple of times before, but it is so beautiful that I wanted to come back. Bernese Oberland is the larger area around three famous peaks of Eiger, Mönch and Jungfrau (aka Three Sisters). There are two famous valleys there: Grindelwald, and Lauterbrunnen, and they provide excellent bases to travel the region. We stayed in Wengen, which is a village up the mountains in Lauterbrunnen Valley. This whole region is amazing for hiking in summer and skiing in winter. With a baby though, we had to choose the right itineraries. Luckily, there are numerous cable cars and funiculars, taking you to the most amazing places, where you can do smaller and easier hikes. Here is what we did over there:
 
 ![](https://lh4.googleusercontent.com/pq5E6Dd3GYspbW969v_xaHsiwBGbDDztrm4fMniy7TGS6DjLUVk_wDRO2ZkRHQF-vC8)
+
 ![](https://lh5.googleusercontent.com/tz0_3LZnptW94jcY_jxUEN_DLVJfcQwpEpH2lsrnpH37Onpqi2BbWE64wKzJ5gKuzXQ)
 
 Day 1: We went to Murren with cable car and train, and took a funicular to Allmendhubel, where we had gorgeous views to the Three Sisters from the side. 

@@ -18,9 +18,9 @@ Steve McCurry's keen eyes and his great taste for colors have created splendid p
 
 ![](http://stevemccurry.files.wordpress.com/2010/10/europe-10042ns.jpg)
 
-![](http://stevemccurry.files.wordpress.com/2013/01/india-10214-1.jpg?w=900&h=602)
+![](http://stevemccurry.files.wordpress.com/2013/01/india-10214-1.jpg?w=900\&h=602)
 
-![](http://stevemccurry.files.wordpress.com/2009/11/india-10316ns7.jpg?w=450&h=662)
+![](http://stevemccurry.files.wordpress.com/2009/11/india-10316ns7.jpg?w=450\&h=662)
 
 ![](http://stevemccurry.files.wordpress.com/2012/10/kashmir-10056.jpg)
 

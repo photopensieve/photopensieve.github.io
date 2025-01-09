@@ -69,7 +69,7 @@ Pros:
 
 Cons:
 
-1. It vignettes [BIG TIME](https://www.youtube.com/watch?v=F5echPTFQxw&vl)! You pretty much have to crop to either 1x1 or 4x5 aspect ratio. I personally don't mind as much though, as I love those aspect ratios.
+1. It vignettes [BIG TIME](https://www.youtube.com/watch?v=F5echPTFQxw\&vl)! You pretty much have to crop to either 1x1 or 4x5 aspect ratio. I personally don't mind as much though, as I love those aspect ratios.
 
 2. The bokeh is slightly busier than the other two, but not too bad. You can certainly tell the difference when comparing the photos side-by-side.
 

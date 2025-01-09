@@ -3,6 +3,7 @@
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/05/amalfi-coast-amazing-stay.html)*.
 
 ![](https://lh6.googleusercontent.com/EcI7z1ezKvR3jl2blFU28D7rQgv9jwDb23qTM_kIN0xcFyd-iEsRu7ifwBflXp4RH4o)
+
 Map of Naples and Amalfi Coast on Ceramic. It also depicts Ischia, Capri, Pompeii, and Mount Vesuvius.
 
 After spending a great time in Naples and Ischia, we rented a car (more on that later) from Naples airport, and headed to Amalfi Coast. On our way, we visited Villa Poppea, which is one of the most well-preserved luxurious Roman villas of that time, probably belonging to the second wife of Emperor Nero. Since this is separate from Pompeii, it is often overlooked by visitors.
