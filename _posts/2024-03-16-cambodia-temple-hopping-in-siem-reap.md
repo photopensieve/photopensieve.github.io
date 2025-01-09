@@ -79,7 +79,7 @@ Visiting Angkor Wat and its surrounding temples was high in my bucket list, and 
 
 This is a big topic on its own, but the short answer is that you can buy eSIM before the visit through many different apps. We have mostly used Airalo before, but since Hong Kong, we have switched to “Nomad”, which provides an excellently priced regional plan for Southeast Asia. This way, we don’t have to worry about buying an eSIM for each country.
 
-If you stay in a country longer, it’s worth checking out the local providers, as their prices might be much cheaper, as in Vietnam, for example. We got one month of data with 4 GB/day (120 GB in total) [for only \$8](https://photopensieve.blogspot.com/2024/02/vietnam-king-of-value-travel.html)!
+If you stay in a country longer, it’s worth checking out the local providers, as their prices might be much cheaper, as in Vietnam, for example. We got one month of data with 4 GB/day (120 GB in total) [for only 8 dollars](https://photopensieve.blogspot.com/2024/02/vietnam-king-of-value-travel.html)!
 
 ## How does Angkor compared to Ayutthaya in Thailand?
 
