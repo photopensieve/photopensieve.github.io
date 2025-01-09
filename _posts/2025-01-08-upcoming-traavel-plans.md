@@ -1,5 +1,6 @@
 # Upcoming Travel Plans: Middle East and Europe
 
+![](img/Map-world.jpg)
 
 It’s been over six months since we returned from our epic round-the-world trip, and now it’s time to plan our next adventure! This time, we’re combining family visits with travel through the Middle East and Europe.
 
