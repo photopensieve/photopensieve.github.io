@@ -1,4 +1,4 @@
-# A short visit to Kuala Lumpur & Singapore
+# A short visit to Kuala Lumpur \& Singapore
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/03/a-short-visit-to-kuala-lumpur-singapore.html)*.
 
@@ -6,7 +6,7 @@
 
 We continue our SE Asia trip by visiting Kuala Lumpur and Singapore for 6 and 4 days, respectively. Malaysia and Singapore have a lot in common, which I’m going to touch on later, but there also have important differences.
 
-Overview of Malaysia
+# Overview of Malaysia
 
 Before I travel to a new country, I make it a point to delve into its geography and history. These aspects often intertwine, and Malaysia beautifully exemplifies this.
 
@@ -26,7 +26,7 @@ One more interesting fact about Malaysia is that it is an “elective constituti
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFrRPfLUa3DYCGrvfhaVYT7ICpE3GF1o4c4wpyW-_20Ga6pnhKiSMU2Jnv9q09s12mBPKAdY7Ftof8t821_Qg1d1ek13VPY7L65Hx9zqxbwHsuQWKPiUtJvxlC_SZGkNnY52Zkpw1OnBb69UicfWvs6eT_43-uKv8blvSEvWdnSm2UXMozS23755dBS-em/w480-h640/R0008253.jpeg)
 
-Our Experience in Kuala Lumpur
+## Our Experience in Kuala Lumpur
 
 KL, the capital of Malaysia, is one of the main hubs in SE Asia, so when touring around, you will most likely find your way there. There is a lot to do in KL, and we certainly enjoyed the cuisine and sightseeing for a few days. Our trip coincided with the beginning of Ramadan, which is the months that Muslims fast during the day and break fast by sunset, and as Malaysia is a majority Muslim country, you can certainly see how the city transforms during this month. Most interestingly, they erect Ramadan markets that are most active before sunset, where people come over to buy food and drinks for breaking fast. The mosques also serve food for those who fast, and people sit on the floor along long strips of table cloth, and break fast together. Along that note, there are multiple notable mosques in KL that are worth visiting, just note that even as a guy, they make you where some sort of skirt, if you are wearing shorts - which was quite amusing to my wife!
 
@@ -36,7 +36,7 @@ Malaysia is a truly multicultural country: About 60% are Muslim, while the rest 
 
 One of the top attractions in KL is Batu Caves, which is a short Grab ride from the center. Surprisingly, the Batu Caves were discovered only over 150 years ago, and it became a site of worship in 1891 when the first temple was built inside the caves. The impressive 42.7-meter-tall golden statue of Lord Murugan was erected in 2006, adding to the site's allure. The caves, with the main Cathedral Cave standing 100 meters high, feature a series of Hindu shrines and temples, including the Temple Cave, which is one of the largest and most popular temples outside of India. The site is also home to a large population of macaque monkeys, adding to the lively and unique atmosphere of Batu Caves.
 
-Some tips about traveling in Malaysia:
+## Some tips about traveling in Malaysia:
 
 * Grab, which started in Malaysia, is really cheap there, and we used it extensively to get around in KL. A trip to/from the airport which takes one hour or so only costs \$15.
 * Similarly, accommodation is pretty reasonable in KL, and you get a lot of bang for your bucks (unlike Singapore).
@@ -53,7 +53,7 @@ Some tips about traveling in Malaysia:
 * Like Malaysia, they drive on the left side, and use the UK-type power outlets, so do bring an adaptor.
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkUsVIN9bZgHCoeAkuGYAmKLg8M3b-uKEKewLYpfgIjVTd1y_Jv4HchXTEO_OnpcmJ7wZN-ABOX6NAe3uYE56Yr6ck_Y04AOU5KZesko-EwspxNXjxL1PWa10DpTy7omiTbTQvc3x3sMgIo836aj2WExbc3NrM3slq86WEwT_pu40ZkqUum18gUawpHzYf/w640-h426/DSC02127.jpeg)
 
-Overview of Singapore
+# Overview of Singapore
 
 Singapore is small city state at the bottom of the Peninsular Malaysia with a population of around 6 million people. As discussed in the overview of Malaysia, the history of Malaysia and Singapore was basically the same until 1965. The big difference between the two prior to that was the racial composition, where in Singapore the majority were Chinese descent.
 
@@ -63,7 +63,7 @@ To address these challenges, the Singaporean government under Prime Minister Lee
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLo5bydnhctUPdN22yjYc_LJl0AFb_2LRduwpMBVRjvlRjcUv_-knZhM_F-0_uOxPuy0wdWJHxmTwedHlPbeI6lusIdRYgXcsjiN_7kBhcCPwpm4r_wuDhoLrLz9vQbjODjBUO9q1O_AsiDleO0pVzgBCMFkpbxvR2FmsJKPIGdgX4zffGgcdEq3AWGinm/w640-h365/IMG_5085.jpeg)
 
-Lee Kuan Yew
+## Lee Kuan Yew
 
 Lee Kuan Yew (1923-2015) was the first Prime Minister of Singapore and is widely regarded as the founding father of modern Singapore. He played a crucial role in transforming Singapore from a small, underdeveloped British colony into a prosperous and dynamic city-state. Lee Kuan Yew's leadership was characterized by his pragmatic and disciplined approach to governance, as well as his strong emphasis on economic development, social cohesion, and racial harmony.
 
@@ -75,7 +75,7 @@ Lee Kuan Yew's influence extended far beyond Singapore, and he was highly respec
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFGMACdskwq80rey_sOjt2Sua18kR7C4JPNH6xsJ-iFM3DEJ-AtAsVQUApM8K3N0eam7r2sIvfwwP1uokyB9U1xA_SYz4hTnPh2dhokORWjWXdizM9qqH8h5lXZIq6-0-eK4IlzZ0_Fb6cANEytHsEPPaxVlRk0TGL7Yfn1HC1OW4MkHAwbQUkV0HMqKk0/w640-h426/R0008319.jpeg)
 
-Our Experience in Singapore
+## Our Experience in Singapore
 
 We took a short flight from KL to Singapore, and arrived at the Changi Airport, which is highly regarded as the best airport in the world. Sightseeing in Singapore starts from the airport! One of the must-see attractions in Singapore is the Jewel mall that is seamlessly integrated with the airport terminals. Jewel features a stunning indoor waterfall, known as the Rain Vortex, which is the tallest indoor waterfall in the world. The waterfall cascades from a height of 40 meters, surrounded by lush greenery, creating a breathtaking natural spectacle within the airport complex.
 
@@ -89,7 +89,7 @@ We also visited the ArtScience Museum in Singapore, which showcases a captivatin
 
 Singapore is renowned for its abundance of malls, which are ubiquitous across the city-state. From luxurious, high-end shopping centers to more budget-friendly options, Singapore offers a mall for every taste and budget. These malls are not just places to shop; they are cultural hubs, offering a plethora of dining options, entertainment facilities, and even cultural experiences. Subway stations often are in the basement of huge malls, so you end up going from one mall to the next!
 
-Some tips about traveling in Singapore:
+## Some tips about traveling in Singapore:
 
 * As I said, Singapore is very expensive, so make sure you budget accordingly. The hotel rooms are pretty small too, and we had a hard time finding a place that would work for us with a toddler.
 * You can pay almost everywhere with a card, except in some hawker stations, where they serve street food.
@@ -97,22 +97,22 @@ Some tips about traveling in Singapore:
 * Like Malaysia, they drive on the left side, and use the UK-type power outlets, so do bring an adaptor.
 With that, we ended our short visit to Malaysia and Singapore, and we headed to Indonesia, where we will hopefully spend a great amount of time!
 
-FAQ
+# FAQ
 
-What would have happened if Malaysia and Singapore had not separated?
+## What would have happened if Malaysia and Singapore had not separated?
 
 This is a difficult what-if question! Lee Kuan Yew believed that the separation of Singapore from Malaysia in 1965 was necessary for Singapore's survival and development. He saw it as a painful but unavoidable decision, given the deep political and ethnic divisions within Malaysia at the time. In his view, Singapore's different economic and social priorities required a separate path from Malaysia's, and he believed that this separation would ultimately benefit both countries by allowing each to focus on its own development without the constraints of the other. Both countries ended up pretty well, maybe Singapore much more so. So maybe he was right!
 
-If Singapore, China and Vietnam all have done so well with authoritarian regimes, what does that say about democracy?
+## If Singapore, China and Vietnam all have done so well with authoritarian regimes, what does that say about democracy?
 
 The success of Singapore, China, and Vietnam under authoritarian regimes does raise questions about the effectiveness of democracy in certain contexts. Lee Kuan Yew believed that Singapore's brand of authoritarianism, which emphasized meritocracy, stability, and economic development, was essential for the country's success, especially given its small size and diverse population.
 
 Lee Kuan Yew acknowledged the benefits of democracy but also believed that in some societies, a strong, centralized government was necessary to maintain order and drive development. He argued that Singapore's model of authoritarianism was not suited for every country and that each nation should find its own path based on its unique circumstances.
 
-How many countries have you visited so far in this trip?
+## How many countries have you visited so far in this trip?
 
 We’ve been traveling for more than 6 months now, and so far we have visited Germany, France, Luxembourg, Greece, Iran, Thailand, Vietnam, Hong Kong, Taiwan, Cambodia, Malaysia, Singapore, and we are in Indonesia right now. So a total of 13!
 
-What have you added to your travel gear since the start of the trip?
+## What have you added to your travel gear since the start of the trip?
 
 We've been expanding our collection of toys and kitchen items for our son, along with some new clothes. Like many toddlers, he's a picky eater, so we try to make his favorite foods often. We even got a handheld mixer and a pan specifically for making pancakes for him! Our collection has grown so much that we had to upgrade from a small to a medium check-in luggage. When traveling long-term, comfort is key, especially with kids.

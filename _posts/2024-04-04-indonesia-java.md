@@ -52,7 +52,7 @@ In Yogyakarta, we met this kind driver who showed us around and shared his life 
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi6nBTLM67RAZGw815TgPrcafEg1_om5DahFX3MzRXm55R4Uu_0082dO4P6GOBeEZU59KCKP6ljF33cgaM00ryxP1CVunHPAcUKk8LonVFfmEDYkHDaea3z5uf4B3-8Yhj_PEu-Ic8oa84kjTVwGwHkzNrT1oga0Jzv-owgYQ6PchlBGohmThw7j9Z5aVj0/w640-h360/DSC02513.jpg)
 
-# Mt. Bromo
+## Mt. Bromo
 
 Many years ago, I came across a photo of sunrise at Mt. Bromo, and I was blown away by how unreal it looked like! When we planned our trip to Indonesia, I knew I had to witness it firsthand and capture it with my own camera.
 
@@ -76,13 +76,15 @@ Witnessing the sunrise over Mt. Bromo and the surrounding volcanoes was an unfor
 * The top viewing points get super crowded. I visited during shoulder season, but nevertheless it was packed. If I do it again, I would stop along a viewpoint halfway up the hike.
 * Sunrise is much better than the sunset, since the chances of clear skies are much higher. In the afternoon, it is cloudy most of the times, and it may rain, even during the dry season.
 * It’s best to visit Mt. Bromo during the dry season, but if you visit during the wet season, you can spend a few more nights there, and go up when the sky is clear.
-# Random observations about Java
+
+## Random observations about Java
 
 * Java is a majority Muslim island, and in Ramadan, they blast an extended version of call for payers, and read Quran aloud at like 4 AM in the morning for two hours, which made me sleep with earplugs all the time, and even then, I had a hard time sleeping. That happens at a few more times during the day as well, but 4 AM? Come on!
 * Indonesian people are really nice, and helpful. They are rather shy in speaking English, and when they do, they often laugh afterwards!
 * Indonesian cuisine (so far) is big on deep frying, and sweet and spicy flavors. I can’t say that it’s my favorite so far…
 * In Java, there are two sultanates that hold unique positions as the governors of special regions: one in Yogyakarta and the other in Surakarta. Despite Indonesia being a democratic country, these sultans retain certain powers and privileges. During our visit to the sultan's palace in Yogyakarta, we were fascinated by the rich cultural exhibits showcasing their ceremonies, traditional clothing, and more. This arrangement offers a fascinating glimpse into Indonesia's blend of democracy and historical traditions.
-# Tips about traveling in Indonesia
+
+## Tips about traveling in Indonesia
 
 * I always use BNI ATMs to withdraw cash, as they charged no fees. Most places do not accept credit cards, and if they do, it takes them some figuring out!
 * QR payment is pretty big in East and Southeast Asia, and so is in Indonesia. These payment methods are often closed to tourists, as they require local bank account. However, I have found a way to use them! If you install the Gojek app on your phone, you can load your GoPay balance in chain convenience stores like Indomaret by cash. You can then use the app to make payments with QR code.

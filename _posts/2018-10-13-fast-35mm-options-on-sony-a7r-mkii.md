@@ -7,7 +7,7 @@
 From left to right: Rokinon 35mm 1.4, Rokinon 35mm 1.2, and Sigma 30mm 1.4
 
 
-Background
+## Background
 
 For [my upcoming to India](https://photopensieve.blogspot.com/2018/09/were-going-back-to-india.html), I bought a used [Sony A7R mkII](https://photopensieve.blogspot.com/2018/09/gear-update.html) and the fantastic Sony 85mm 1.8, and now all I need is a fast 35mm lens to complete my arsenal of (two) lenses for portrait photography. I love 35mm focal length as it gives me room to put enough of environment with my subjects, but not too much. It also gives me the chance to get closer to people and take intimate portraits. Last time I went to India, I had the [Voigtlander 40mm F2.0](https://www.flickr.com/photos/8413680@N08/sets/72157702187722144) lens, and I loved it, but at times I wanted it to be wider, faster, and I missed the autofocus. So this time, I'm going to go back with a fast 35mm lens, and nothing less!
 
@@ -16,22 +16,22 @@ Beware that this review is highly subjective, and based on some personal conditi
 Also, note that this is not a comprehensive review by any means. I simply don't have the time, desire and expertise to put these lenses through a thorough test. There are many fantastic reviews online for that purpose.
 
 
-Options
+## Options
 
 There are a few options on the Sony lineup for a fast 35mm lens. There is of course the venerable Sony Zeiss 35mm 1.4, but it is large, heavy and way too expensive. There is Sigma 35mm 1.4 which is almost equally good, heavy, but not as expensive. And there is Rokinon 35mm 1.4 which is supposedly equally good, heavy, and the least expensive of the bunch. There are less mainstream options as well: You can either adapt other lenses like Canon, Voigtlander, etc, or you can use Sony's APS-C lenses WITHOUT toggling the super-35mm option. The latter creates some minor or major vignetting, depending on the lens. Two options in this category are Rokinon 35mm 1.2, and the Sigma 30mm 1.4 (which I happen to own). 
 
 So for the rest of the review, I am going to compare the three lenses pictured above, and decide which to take with me to India.
 
 
-Rokinon 35mm 1.4
+## Rokinon 35mm 1.4
 
-Pros:
+### Pros:
 
 1. Autofocus
 
 2. No vignetting, i.e. no need to think about cropping later, and I can have the full size image.
 
-Cons:
+### Cons:
 
 1. BIG, BULKY and HEAVY. At 650 g, it's not the heaviest of lenses, but it is the heaviest among these three options. Carrying it around attached to the lens is a bit inconvenient, and I certainly won't have the camera dangling from my neck with this lens for longer than a minute. The lens doesn't balance well on the small Sony A7RII body either.
 
@@ -39,9 +39,9 @@ Cons:
 
 
 
-Rokinon 35mm 1.2
+## Rokinon 35mm 1.2
 
-Pros:
+### Pros:
 
 1. Creamy bokeh, even slightly better than the Rokinon 35mm 1.4.
 
@@ -49,7 +49,7 @@ Pros:
 
 3. I also like the photos out of this lens better. I can't put them in words, but they just look a tiny bit better in my opinion. Maybe I'm imagining though, because I know this is a 1.2 lens!
 
-Cons:
+### Cons:
 
 1. Manual focus. This is the biggest drawback about this lens: You can't get the focus right unless you use the magnifier. No, the focus peaking doesn't work. I tried many times, but you can't get a reliably in-focus photo using the focus peaking alone, since the DOF is razor thin at 1.2. I even timed my shots, and on average, it takes 7 seconds to get an in-focus shot with this lens. That is way too long for portrait photography.
 
@@ -59,15 +59,15 @@ Cons:
 
 
 
-Sigma 30mm 1.4
+## Sigma 30mm 1.4
 
-Pros:
+### Pros:
 
 1. It's the smallest and lightest option at 265 g. It's such a breeze to carry this lens around!
 
 2. Autofocus works perfectly.
 
-Cons:
+### Cons:
 
 1. It vignettes [BIG TIME](https://www.youtube.com/watch?v=F5echPTFQxw\&vl)! You pretty much have to crop to either 1x1 or 4x5 aspect ratio. I personally don't mind as much though, as I love those aspect ratios.
 

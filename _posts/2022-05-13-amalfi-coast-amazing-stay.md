@@ -44,22 +44,24 @@ As usual, here is a link to my instagram account:
 
 Follow me to see the latest photos of the trip. I’ll end the post with an FAQ.
 
-How was the rental car experience?
+# FAQ
+
+## How was the rental car experience?
 
 Well, not so well. I had paid for an automatic Audi A1 “like” car, and (apparently) the only thing I had to pay extra was for the child seat. When I got to Avis at Naples Airport, the guy said the only car available in that class (!!!) is a tiny Toyota Yaris, and I can upgrade to a larger car with only 5 euros more per day, and he will instead waive the child seat fee (which would basically cancel it out). There was an Audi A1 parked outside, and when I asked him about it, he said that is for their manager’s use! He also said I could pay 100 euros more to have zero deductible insurance, which sounded like a good deal. I accepted both, but somehow I ended up 1) paying a bunch of taxes for the location, etc, which the guy explained in a hand-wavy manner, 2) 7 euros per day, instead of 5 for the larger car, and 3) 120 euros for the full insurance! Anyhow, I opted for a Toyotas C-HR Hybrid instead, to save some gas, and be kinder to the environment. We also had a hard time installing and securing the child seat, as the Avis employees declined to help out due to being afraid of being sued!
 
-How is the driving experience in Naples, and Amalfi Coast?
+## How is the driving experience in Naples, and Amalfi Coast?
 
 Given what I had read online, and later saw in Naples, I would not have wanted to drive in Naples city center (anyways it is a restricted zone, or ZTL), that’s why we rented the car when we wanted to leave Naples. Driving experience in Amalfi Coast is maybe equally infamous, as the roads are twisty and barely wide enough for two cars to pass, and you have many local drivers who love tailgating the poor tourists (and you know a tourist driver when you see one). Add on top of that, there are huge tourist and local buses on the road, and seeing one coming right at you full speed is quite nerve-racking! I always gave the right of way to the buses, as I did not want to try passing them with full speed. Specially if you see a bus coming at you in a turn, make sure you stop well before the turn so that the bus can properly pass you. I also tried to keep my speed as low as possible, not only for safety, but also to minimize the carsickness for our family (though at times there were so many twists and turns that you feel a bit nauseous), and enjoy the views. Talking about the views, the Amalfi roads are nothing short of breathtaking. Some people opt for using buses and ferries, but for a driving enthusiast, driving the Amalfi Coast is on itself a highlight. Note that we were in Amalfi Coast during the shoulder season. From what I see online, the experience can be less enjoyable during the high season due to traffic jams though (which we did not experience for the most part). Oh, and one tip is to rent the  smallest car you can. It’s not going to be fun driving and parking a full size car in Amalfi Coast (or in Italy in general).
 
-How was the parking situation in Amalfi Coast?
+## How was the parking situation in Amalfi Coast?
 
 Given how tight the roads and spaces are in Amalfi Coast, parking situation is dire. You have to pay quite a bit for parking, say anything between 2 and 10 euros per hour (we occasionally paid 1 euro per hour too), depending on where and when you park. Weekend are typically more expensive, as well as the high season. I strongly recommend reading up online where to park when you visit a village. For Positano, which is the most expensive and with the least amount of parking available, the closer you get to the center, the more you have to pay, of course. We arrived in Positano relatively early (around 9:30 AM), and there were some available paid parking on the road (marked with blue line) as you enter Positano from top at the rate of 3 euros per hour (for a weekday). That meant, of course, that I had to walk all the way back up to get the car, and pick up my wife and my son on the way out. Other towns have larger parking areas, and we didn’t have as much difficulty parking. But budget around 20 euros plus per day for parking, when visiting Amalfi Coast.
 
-How is photography going?
+## How is photography going?
 
 Surprisingly good! One perk of slowing down and spending more time in a place is that you can visit a place you like a few times, and even scout for other photos and angles. Another thing I’ve been doing is to do some research before the visit to know what kind of photos I will be taking. This has paid off handsomely so far.
 
-We know traveling with a baby is hard; is there a silver-lining?
+## We know traveling with a baby is hard; is there a silver-lining?
 
 When you travel with a baby, you get noticed by the locals, and strike up conversations with them! Most people give the baby a smile, and at least in Italy, they sometimes even try to play with your baby a little bit. This has been a great experience so far. On top of that, sometimes you get preferential treatment, like skipping the line in Vatican Museum, or or priority boarding on flights, or room upgrades in case of our stay in Amalfi Coast. Not that many, but still nice to have them occasionally.

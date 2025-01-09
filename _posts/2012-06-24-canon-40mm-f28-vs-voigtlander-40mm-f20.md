@@ -2,23 +2,23 @@
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2012/06/canon-40mm-f28-vs-voigtlander-40mm-f20.html)*.
 
-Introduction
+# Introduction
 
 The very newly announced Canon 40mm F2.8 piqued my interest, as I do happen to own the formidable Voigtlander 40mm F2.0. I love this lens, and I get great sharp contrasty photos out of it. However, manual focusing limits the kind of photos I can do with this lens. So I was curious to see how the Canon performs compared to the Voigtlander. Here's an academy-style quick comparison of the two lenses.
 
-Materials and Methods
+# Materials and Methods
 
-Hardware
+## Hardware
 
 All shots are done using a Canon 5D, mounted on a Benro C0691, using mirror lock-up and cable release.
 
-Post-processing
+## Post-processing
 
 All shots are done in RAW, and converted to JPG in LR 3.5 using the default setting. NO EXTRA SHARPENING is applied. However, note that LR adds a 25 point sharpening by default.
 
-Results and Discussions
+# Results and Discussions
 
-General observations
+## General observations
 
 - The Canon considerably vignettes at f2.8. Voigtlander also vignettes at f2.0, but at f2.8 it's almost gone.
 
@@ -40,11 +40,11 @@ General observations
 
 - I did not compare the Bokeh of the two lenses extensively, but from what I saw in a couple of shots, nothing was wrong with the Canon.
 
-- Both lenses are really compact, but the Canon is a bit shorter
+- Both lenses are really compact, but the Canon is a bit shorter.
 
 ![Canon 40mm F2.8 vs Voigtlander 40mm F2.0](http://farm6.staticflickr.com/5470/7433761158_a5d455d46e_z.jpg)
 
-Flare
+## Flare
 
 - Both lenses perform very well with regard to flare, i.e. they don't really flare. If you force them to flare, the Voigtlander shows a bit of flare. But the Canon is astoundingly flare-free, and it even preserves the contrast.
 
@@ -58,7 +58,7 @@ Canon 40mm F2.8
 
 Note the difference between the angles of view in the above shots.
 
-Sharpness
+## Sharpness
 
 The pictures are 100% crops of [original images](http://www.flickr.com/photos/8413680@N08/7433990340/).
 
@@ -98,7 +98,7 @@ Both lenses in the corner @ f8.0 - Not much of difference between lenses, and c
 
 ![Canon 40mm F2.8 vs. Voigtlander 40mm F2.0_Corner_F8.0](http://farm8.staticflickr.com/7255/7433395914_8afe8fc7ff_z.jpg)
 
-Conclusion
+# Conclusion
 
 Canon 40mm F2.8 was a big surprise to me (no pun intended). I did not expect that it beats the sharpness of already excellent Voigtlander 40mm F2.0, but it did. It also showed more resistance to flare. However, we are splitting hair here, and both lenses are very sharp and flare-resistant for any real life application. The canon is a lot cheaper than the Voigtlander, but its built quality is not in the same league as the Voigtlander's. Although the Canon is built very well, and at least considerably better than the 50mm F1.8 and 35mm F2.0. The only shortcoming that I can see with the Canon is that it does not focus fast, like the Canon 85mm f1.8, for example. But if you compare the autofocus speed on the Canon with "your" manual focus speed with the Voigtlander, it's a no-brainer. I also wish Canon would have gone with F2.0 instead of F2.8. It would probably be slightly more expensive and bigger, but it would make it a more compelling option.
 

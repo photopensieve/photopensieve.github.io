@@ -6,11 +6,11 @@
 
 After a wonderful trip to Hong Kong and Taiwan, we ventured back to Southeast Asia to explore Cambodia. Looking back, it might have been ideal to visit Cambodia in between Thailand and Vietnam. However, despite the short distance, the flight from Siem Reap to Ho Chi Minh City was prohibitively expensive, so we postponed our Cambodian adventure. Our focus during the 8-day stay in Siem Reap was exploring the magnificent Angkor Archaeological Park, more popularly known for one of its temples, Angkor Wat.
 
-Overview of Cambodia
+# Overview of Cambodia
 
 Cambodia is nestled between Thailand to the west, Vietnam to the east, and Laos to the north. It is one of the poorer countries in Southeast Asia due to its tragic recent past. Siem Reap, where we visited, is the most visited place in Cambodia thanks to Angkor Wat and other temples. In order to understand Cambodia, one need to have a basic understanding of two of its most important historical periods: 1) Khmer Empire, and 2) Khmer Rouge rule. Let’s briefly discuss the history of the two.
 
-Khmer Empire (804-1431 CE)
+## Khmer Empire (804-1431 CE)
 
 The Khmer Empire was a powerful state in Southeast Asia, covering much of what is now Cambodia, Thailand, Laos, and southern Vietnam. Known for its grand architecture, particularly the iconic Angkor Wat temple complex, the empire was a center of culture, art, and advanced hydraulic engineering. The Khmer rulers, notably Jayavarman II and Jayavarman VII, left a lasting legacy of impressive temples, sculptures, and inscriptions that reflect the empire's spiritual and political significance. Despite its eventual decline, the Khmer Empire's cultural influence continues to be felt in the region to this day.
 
@@ -18,7 +18,7 @@ The temples of Angkor stand as a testament to the Khmer Empire's architectural a
 
 The decline of the Khmer Empire and the abandonment of Angkor can be attributed to several factors. Environmental degradation, political instability, and external pressures all played significant roles. Neglect of crucial infrastructure, such as the canal system, led to food shortages, diseases, and a decline in the population. Conflict with neighboring powers, notably the Thai and Vietnamese, further weakened the empire. By the 15th century, the Khmer Empire succumbed to the Ayutthaya Empire (which we visited its namesake city in Thailand, only themselves to be later destroyed by the Burmese in the 18th century). The magnificent but deserted temples of Angkor stand as a testament to the empire's former glory.
 
-Cambodian genocide (1975-1979)
+## Cambodian genocide (1975-1979)
 
 The Khmer Rouge genocide was one of the most brutal episodes of mass killing in the 20th century. Under the lunatic and murderous leadership of Pol Pot, the Khmer Rouge sought to establish an agrarian socialist society by forcibly evacuating urban areas, abolishing money and private property, and imposing strict, and often arbitrary, rules and regulations.
 
@@ -32,7 +32,7 @@ The Khmer Rouge's military strength gradually weakened over time, and by the ear
 
 To get a sense of the atrocities committed during the Khmer Rouge regime, you can watch the movie "The Killing Fields." Released in 1984. The film tells the true story of two journalists, Cambodian Dith Pran and American Sydney Schanberg, and their harrowing experiences during the Khmer Rouge's rise to power and the subsequent genocide. Through its powerful storytelling and depiction of historical events, "The Killing Fields" offers a glimpse into the horrors of the Khmer Rouge era and the resilience of the human spirit in the face of unimaginable suffering.
 
-Our Time in Siem Reap
+## Our Time in Siem Reap
 
 As I said in my [last post](https://photopensieve.blogspot.com/2024/03/2-weeks-in-hong-kong-and-taiwan.html), we arrived in Siem Reap after an eventful flight from Taipei. We had secured visas before the trip, and we sailed through passport check and was out of airport in no time. Siem Reap has a brand new airport 50 km outside the city, built by the Chinese, which opened less than 5 months ago. As of the writing of this blog, even Google Maps does not show the airport correctly, when you search for “Siem Reap Airport”. The airport was constructed under a 55-year [build–operate–transfer](https://en.wikipedia.org/wiki/Build%E2%80%93operate%E2%80%93transfer) agreement. We had arranged a van transfer to our Airbnb through our excellent Airbnb host, who also helped us a lot in arranging our tours and travels during the visit.
 
@@ -56,7 +56,7 @@ Angkor Thom, meaning "Great City" in Khmer, was the last and most enduring capit
 
 On the final day of our journey, we explored the Bakong temples, a collection of ancient structures that predate all other temples in the region and are located outside the Angkor area. Constructed in the 9th century, these temples stand as remnants of the first capital of the Khmer Empire. Subsequently, the capital was relocated to the nearby Angkor region. The Bakong temples offer a fascinating juxtaposition of architectural styles; here, you can witness the early temple construction techniques characterized by the use of small bricks, as well as the later style that employed stones, reminiscent of the renowned Angkor Wat.
 
-A few points about the logistics of visiting AAP:
+## A few points about the logistics of visiting AAP:
 
 * We got 7-day tickets for Angkor Archeological Park through their official website, and just showed the tickets on our phone when entering the temples. If you don’t buy it online, you have to visit the ticket office which is actually not in the AAP. Do yourself a favor, and just buy your tickets online! Also, there are 1-day and 3-day options, with the latter being the most popular. We opted for 7-day ticket since we wanted to pace ourselves. We ended up using the ticket 4 days.
 * Siem Reap is way too hot. The first coupled of days we were there, it was 45 C (115 F). We only visited in the morning, starting around 7:30, and came back to our place at noon. The heat is unbearable, so make sure to bring more water than you think, and do bring umbrellas to protect from the scorching sun.
@@ -73,20 +73,20 @@ Observations about Cambodia* Cambodian currency is Khmer Riel (KHR), and since i
 
 Visiting Angkor Wat and its surrounding temples was high in my bucket list, and I am so happy that I finally managed to see them in person. With that, our short visit to Cambodia was over, and we headed to Kuala Lumpur and Singapore for a short visit.
 
-FAQ
+# FAQ
 
-How do you get data on your phone while traveling so many countries?
+## How do you get data on your phone while traveling so many countries?
 
 This is a big topic on its own, but the short answer is that you can buy eSIM before the visit through many different apps. We have mostly used Airalo before, but since Hong Kong, we have switched to “Nomad”, which provides an excellently priced regional plan for Southeast Asia. This way, we don’t have to worry about buying an eSIM for each country.
 
 If you stay in a country longer, it’s worth checking out the local providers, as their prices might be much cheaper, as in Vietnam, for example. We got one month of data with 4 GB/day (120 GB in total) [for only \$8](https://photopensieve.blogspot.com/2024/02/vietnam-king-of-value-travel.html)!
 
-How does Angkor compared to Ayutthaya in Thailand?
+## How does Angkor compared to Ayutthaya in Thailand?
 
 At their heydays, Angkor and Ayutthaya were significant cultural and political centers in Southeast Asia, each reflecting the power and sophistication of their respective empires. Angkor, at its peak in the 12th century under the Khmer Empire, was the largest city in the world and a center of religious worship. The city's infrastructure, including elaborate water management systems and grand temples, showcased the empire's wealth and engineering prowess. Ayutthaya, founded in the 14th century and reaching its zenith in the 17th century, was the capital of its namesake Kingdom. It was renowned for its trade and diplomatic connections, as well as its art and culture.
 
 Ayutthaya today looks like a mini version of Angkor, with many ruined temples scattered around the old town. People do live in the old town of Ayutthaya though, whereas Angkor is just a bunch of temples in a jungle, and people live outside the area. I recommend visiting Ayutthaya first, as when you see Angkor, everything after that would be a miniature!
 
-How much free time you have now that you don’t work?
+## How much free time you have now that you don’t work?
 
 Much less than what you might think! We spend the bulk of day visiting places, and if we stay in half a day or more, we do chores, and most importantly, have to play with our son, as he demands our undivided attention! Only when he sleeps, hopefully around 9 PM or so, we get a few hours for ourselves, which we then need to dedicate to travel planning (which is pretty time consuming), writing this blog or creating stories on Instagram, processing photos shot that day, and other stuff. We can’t, for example, even pick up a book to read, and instead we listen to audiobooks whenever we have a dead time, like on a train or a flight.

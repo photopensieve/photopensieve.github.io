@@ -33,7 +33,7 @@ The back gate of the van opened up, revealing numerous drawers for ample storage
 Overall, I think this was a functional setup, and it was good for short trips. However, doing this trip, I realized how uncomfortable “vanlife” is. The confined quarters can make it difficult to manage the needs of a young child, such as playtime, napping, and feeding, without feeling cramped. Additionally, having have to use shared outside bathroom, and kitchen facilities wasn’t quite comfortable, but perfectly doable for a short period of time. Furthermore, the lack of storage space for essentials, toys, and clothing can create a cluttered environment, making it hard to keep the van organized and functional for the entire family. Nonetheless, traveling by a campervan in Australia was a fantastic experience, and one of the highlights of our trip so far.
 
 
-# Driving on the “wrong” side of the road
+## Driving on the “wrong” side of the road
 
 I've visited many countries where driving is on the left side of the road, but I never dared to drive there—it seemed too risky. One mistake could put you on the wrong side of the road and lead to a crash. However, I decided to give it a try in Australia, where drivers are generally good and the roads aren't congested.
 
@@ -42,7 +42,7 @@ Adding to the challenge, I was driving a 19-foot van for the first time. But two
 Initially, driving the van required a lot of mental energy, but I quickly got the hang of it, and after a few days, it felt almost normal. However, two things took much longer to adapt to: 1) As a driver, I am used to keeping the car more on the left side inside the lane, or in another word, aligning my side with the left side of the lane. Driving on the other side of the road meant that unconsciously, I would steer to left inside a lane, hence crossing the left line. I had to consciously remind myself to stay on the right side of the lane. This adjustment took some time, but I eventually got the hang of it, 2) the turn signal and windshield wiper switches were swapped, and I never fully got used to it. I often hit the wiper switch instead of the turn signal. Funnily enough, when I started driving on the right side again, I was mixing it for a few days!
 
 
-# Sunshine Coast
+## Sunshine Coast
 
 The Sunshine Coast is a coastal region north of Brisbane, encompassing towns and cities such as Caloundra, Maroochydore, Noosa, and Mooloolaba. Known for its beaches, hinterland, and relaxed lifestyle, the Sunshine Coast is a popular destination for visitors.
 
@@ -67,7 +67,7 @@ This prolonged isolation led to the development of unique wildlife, with many sp
 Today, New Zealand's geography is characterized by its dramatic landscapes, ranging from the sandy beaches and rolling farmlands of the North Island to the towering Southern Alps and glacial valleys of the South Island. The country's terrain includes active volcanoes, geothermal areas, and extensive forested regions, providing a rich tapestry of natural beauty. This varied geography supports a wide range of ecosystems and outdoor activities, making New Zealand a destination renowned for its scenic diversity and environmental conservation efforts.
 
 
-# History Of New Zealand
+## History Of New Zealand
 
 The Maori, indigenous to New Zealand, migrated from other South Pacific islands in the 13th century, distinguishing their culture with intricate art, strong tribal systems, and a profound bond with the land. They share similarities with Pacific Islanders like Fijians and Hawaiians, stemming from their Polynesian origins. More on that in the next blog post!
 
@@ -89,8 +89,7 @@ Our last stop was **Waitomo Glowworm Caves**, which is also a must-visit locati
 
 # FAQ
 
-
-# How similar are Australia and New Zealand?
+## How similar are Australia and New Zealand?
 
 From an outside perspective, New Zealand and Australia may appear quite similar due to their geographical proximity and shared colonial history. Both countries were settled by the British, and English is the dominant language, shaping their cultural and social frameworks. However, upon visiting, the differences between the two become strikingly apparent. Australia's vast, arid landscapes, iconic outback, and unique fauna like kangaroos and koalas contrast sharply with New Zealand's lush, green countryside, dramatic fjords, and predominantly avian wildlife with no marsupials. The indigenous cultures also differ significantly; Australia is home to the ancient traditions of Aboriginal peoples, while New Zealand proudly showcases the rich heritage of the Māori. Even the climate varies greatly, with Australia experiencing a much hotter and more arid climate compared to New Zealand's temperate and maritime weather. These distinctions underscore that, beyond the superficial similarities of language and some cultural practices, New Zealand and Australia are worlds apart in their natural environments, indigenous cultures, and overall way of life.
 

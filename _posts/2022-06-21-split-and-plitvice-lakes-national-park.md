@@ -20,7 +20,7 @@ A bit of history: Diocletian was a Roman emperor at the turn of fourth century A
 
 Plitvice Lakes National Park had been in my bucket list for a long time. When I started doing photography, one of my favorite subjects was waterfalls, and I would travel all over Switzerland, or even nearby French and Italian places to shoot waterfalls. Plitvice has over 90 waterfalls in a small walkable area! So needless to say, it was one of the main reasons we came to Croatia. And it did not disappoint. It’s every bit as beautiful and magical as the pictures you see. It’s like a photographer designed this place as a playground for other photographers! Anyhow, in order to make sure we have ample time, we decided to stay three nights close to the park, so we can take our time, and visit the park as much as we wanted. We rented a car from Split Airport, to get here. A quick intro about the park: There are two entrances, aptly named Entrance 1 and Entrance 2, where you can park your car. Once you get in the park, you can either walk, or take ferries and buses in certain routes. They offer some recommended itineraries (alphabetically named), clearly marked in the park. Here are my tips for visiting Plitvice Lakes National Park as a photographer - with a bay:
 
-Do’s
+## Do’s
 
 * Before the trip, make sure to do the due research on the types of photos taken there, so you know what the possibilities are. Last thing you want is end your trip, and see a photo you would have loved to capture, but didn’t know about it. Plitvice is a (too) well-photographed place, and you can be assured that if there was a possibility of a good shot, it must have been taken by others. Some photographers may cringe at the idea of taking “postcard” photos, but I always try to take those shots, and then others. The research helped me to go directly to the area I was interested in, for example, instead of wandering around looking for photos.
 * While taking photos, make sure of your own and others’ safety first, as well as your camera equipment. Plitvice sees a lot of foot traffic during the peak hour, and there are boardwalks and cliffs (though mostly protected), so it is essential to be careful while trying to capture that shot. Also don’t venture out of the guardrails looking for “the shot”. It is dangerous, as you don’t know how secure those rocks are, for example. There is a reason they’ve put a “danger sign” over there!
@@ -29,7 +29,8 @@ Do’s
 * Buy your ticket online to skip the lines. The ticket costs an arm and a leg, but you know you have to get it, so why not do it at the comfort of your own place?
 * Bring ultrawide, normal and telephoto lenses. I had 18, 35, and 75mm lenses, and they did the job. However, a zoom lens might be a better option, as you don’t have to move the filter each time.
 * Try out low shutter speed photography before visiting, so you can perfect your technique. Last thing you want are blurry photos. On that note, I highly suggest processing your photos as soon as you can during the trip, so you get to learn from your mistakes. Don’t shoot an SD card full of photos, and come back home to process it.
-Don’t
+
+## Don’t
 
 * Don’t shoot with high shutter speeds. It looks bad, and you know it. Try to get at least 1/10 to 1 second shutter speeds. You don’t need too low of shutter speed either, as it looks too silky smooth.
 * Do not bring a stroller. I’m an avid stroller fan, but it just doesn’t work here. There are too many stairs, and lots of ups and downs. Instead, bring a baby carrier. You certainly don’t want your baby to be walking on the boardwalks, as they can easily fall into the water, or someone unknowingly bumps into them.
@@ -46,18 +47,20 @@ Per usual, here is a link to my instagram account:
 
 Follow me to see the latest photos of the trip. I’ll end the post with an FAQ.
 
-What have you learned about Croatia’s history?
+# FAQ
+
+## What have you learned about Croatia’s history?
 
 As I said, I didn’t know much about Croatia beforehand. But throughout the trip, I tried to pick up bits and pieces about the history of Croatia to help me understand the country better. In short, Croatia has a rather complicated history. There have been lots and lots of invasions, and each invader has made a mark on this country. A not so comprehensive least of invaders, settlers, and rulers in a chronological fashion is: Illyrians, Greeks, Romans, Croats, Venetians, Hungarians, Austrians, Turks, French (Napoleon to be exact), and of course they’ve had their fair share of conflicts with their Balkan neighbors over the years.
 
-How was the food in Croatia?
+## How was the food in Croatia?
 
 We only visited the Dalmatian part of Croatia (plus Plitvice, but we didn’t eat out much over there), so I can’t really comment on Croatian food in general. The (Dalmatian) cuisine is a bit similar to Italy with similar pizza, pasta, risotto dishes. We also had some amazing grilled fish over there; cevapi which is a grilled ground meat dish; and had some delicious cheese. Great food, in general.
 
-How was the driving with the baby this time around?
+## How was the driving with the baby this time around?
 
 We rented a car for only 4 days, so it wasn’t as long as the one we had in Italy. But this time, we made a big change: We put the car seat in forward-facing direction, and it made a huge improvement. Now our son can easily entertain himself by watching the road. We even had a fully-awake, two hour drive, no problem! Having said that, we are fully aware that a rear-facing car seat is a safer option. Heck, if we sit in rear-facing direction, it would be safer too. But we gotta see what the law says. In the US, the recommended age for a forward-facing car seat is 2 years old or more, but in Europe, babies must be in rear-facing car seat only until 15 months old. As they say, when in Rome, do as the Romans do.
 
-Did you bring a tripod with you during the trip?
+## Did you bring a tripod with you during the trip?
 
 Nope. I bought a cheap (but not too cheap) tripod and an ND filter in Split just for Plitvice. Unfortunately I had to leave the tripod in Croatia, as we are only doing carry-ons, but it was totally worth it.

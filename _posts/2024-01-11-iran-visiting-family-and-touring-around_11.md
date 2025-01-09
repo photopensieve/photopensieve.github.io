@@ -8,7 +8,7 @@ In the [first part](https://photopensieve.blogspot.com/2024/01/iran-visiting-fam
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgubRwqmSjt0Dg3z7WfQBY3jMjqqSuAzIbMq9Y2R4Ql5_6vlMZlUmTbQkJ0TPgtn3I4CCWEw-R5iD97c5zoBnkpowVfqjUontIvHwVa_auIzIAu1PxUQAfuap-TJ3TVVUVHGKDDSlw2nxqG7gIn6CBNUvEYfz3Ia3l1MNj7wxZ30g5pfF4YyKaQJIkFezNP/w640-h480/R0006408.jpeg)
 
-### Hormuz Island
+## Hormuz Island
 
 After a fantastic stay in Yazd, we took an overnight train to Bandar Abbas, which is a large city and port close to Hormuz Strait, and from there, took the first ferry to Hormuz Island, which took around 45 minutes. The ferries are a bit old, but the terminal was modern and clean, and we had no issues with the ride. Purchasing tickets in advance was not really necessary.
 
@@ -22,7 +22,7 @@ A bit about the travel logistics: Finding a good place to stay in Hormuz Island 
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEitVEMnZwsOT3ugXhZXJ3moTmkZqOQfrqkCMX9AAlsYQ1DqwYDwYUO696ib4hIXPkZc_RGfFDJZciPK16jwoyCljFH3Ux-sPUOdjAhNZXJEADrsSeDY1c_RuGAwVIFU74o55NmgiKxdPM2nTFRz22EUhUatyNi9JMrf7_waM0A6C2P03vHpwwCtNCEVU79T/w480-h640/DSC08552.jpeg)
 
-### Qeshm
+## Qeshm
 
 We took a ferry from Hormuz Island to Qeshm, which took around 45 minutes. The ferries were not that regular, and they told us that the schedule depended on the number of tourists on a given day. Qeshm is the largest island in the Persian Gulf shaped like a whale - long and thin. Many people come over there for shopping due to the abundance of contraband goods.
 
@@ -34,7 +34,7 @@ Our visit to Qeshm was quite laid-back. We savored the sunny weather, the sea, a
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgoYXFggTo0R0d-dkmEXMq6CHIdZbUWMX5562lljOyC3lSQNxN0sgwmYQt02wwIDg4eAPBgmewl-heoghdgoMVvaZYAbCV3yqHFym_S_iP0bg-rCpF2DzS-1WJBq3CUF2UAhyphenhyphenO82PL4RWHzLybbRImGxLxtl9CgcxA_1Da47ovrgZ4fQESZ5Vc5mYpbB2CL/w640-h640/DSC08801.jpeg)
 
-### Persepolis
+## Persepolis
 
 After a fantastic time in the Persian Gulf islands, we flew from Qeshm to Shiraz and then took a cab to Persepolis, or as it is called in Persian, Takhte Jamshid (meaning Throne of Jamshid). Persepolis is located 60 km north of Shiraz, so to have enough time to visit it along with other archeological sites around it, we spent two nights there in Hotel Apadana adjacent to Persepolis.
 

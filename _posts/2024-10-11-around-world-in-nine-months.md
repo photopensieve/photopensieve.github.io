@@ -159,6 +159,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Ceremonies in Bali
 * Noosa National Park in Australia
 * Views of Bora Bora from its lagoon
+
 # Most memorable highlights of the trip
 
 * Early morning photography at Eltz Castle
@@ -191,6 +192,7 @@ In [September 2023](https://photopensieve.blogspot.com/2023/09/our-dream-travel-
 * Snorkeling with mantas, eagle rays and stingrays in Bora Bora
 * Snorkeling with sharks in Bora Bora
 * Snorkeling in coral gardens in Mo’orea, Taha’s, and Bora Bora
+
 # What wasn’t so good?
 
 Surprisingly, just a few things come to mind, and even those were minor anyways:

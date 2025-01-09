@@ -38,26 +38,28 @@ Per usual, here is a link to my instagram account:
 
 Follow me to see the latest photos of the trip. I’ll end the post with an FAQ.
 
-Didn’t you already have travel insurance? You could have reimbursed the cancellation costs!
+# FAQ
 
-We did have travel insurance through SafetyWing, and also through our credit card. However, although they say they have “trip cancellation” coverage, if you read the fineprints, you see that they actually cover extremely unlikely cancellation reasons such as airline bankruptcy, for example. So don’t think your travel insurance is of much use when the airline cancels the flight…
+## Didn’t you already have travel insurance? You could have reimbursed the cancellation costs!
 
-How long have you been traveling, and aren’t you yet tired?
+We did have travel insurance through SafetyWing, and also through our credit card. However, although they say they have “trip cancellation” coverage, if you read the fineprints, you see that they actually cover extremely unlikely cancellation reasons such as airline bankruptcy, for example. So don’t think your travel insurance is of much use when the airline cancels the flight… 
 
-We have been traveling for just over two months now - the longest we have ever travelled. To be honest, before the trip, we were not sure we can make it so far with a baby, and I was telling my friends we might come back within a few weeks. I can’t say that it has been easy for us, and truth be told, there were even moments that we discussed cutting the trip short. But I can certainly say that there were many more occasions that we celebrated our decision to make this trip. So yes, we are a bit tired, but happy and enthusiastic for even more of this!
+## How long have you been traveling, and aren’t you yet tired?
 
-Have you made any changes to your travel gear?
+We have been traveling for just over two months now - the longest we have ever travelled. To be honest, before the trip, we were not sure we can make it so far with a baby, and I was telling my friends we might come back within a few weeks. I can’t say that it has been easy for us, and truth be told, there were even moments that we discussed cutting the trip short. But I can certainly say that there were many more occasions that we celebrated our decision to make this trip. So yes, we are a bit tired, but happy and enthusiastic for even more of this! 
 
-Not much. We’ve added very little, and said goodbye to the beloved robotic vacuum, lovingly known as Jaroo, back in Caserta, Italy. We’ve added a bit to our wardrobe (guess who!), so we need to get rid of some stuff. I love traveling lighter. I wish there was a way to travel with just a small backpack each. 
+## Have you made any changes to your travel gear?
 
-How many places have you stayed in so far, and what do you do first in a new place?
+Not much. We’ve added very little, and said goodbye to the beloved robotic vacuum, lovingly known as Jaroo, back in Caserta, Italy. We’ve added a bit to our wardrobe (guess who!), so we need to get rid of some stuff. I love traveling lighter. I wish there was a way to travel with just a small backpack each.
+
+## How many places have you stayed in so far, and what do you do first in a new place?
 
 We’ve stayed in 18 places so far! We’ve had just a few one or two-nighters, and for the most part, we try to stay in a place for 4-6 days. We avoid hotels as much as possible, as they are typically pretty small, and don’t have a kitchen. The first thing we do in a new place is to baby-proof it as much as we can. We remove anything that is dangerous or can be damaged easily. Another thing we do is securing the easily accessible drawers with tape (which is a must-have), as our son loves playing with them, and hurting his fingers. We then do grocery shopping for the day or a few days, so we can cook. 
 
-Any updates on traveling with a baby?
+## Any updates on traveling with a baby?
 
 As I said before in another post, sleeping arrangement is one of the most crucial things about traveling with a baby. We try to book places that can provide a baby crib, as much as we can, as it is the best solution. We’ve also brought a baby sleeping tent with us, in case we don’t have a crib. But after a few times, we stopped using it altogether, and we might get rid of it soon. The reason is: 1) it typically gets too warm in there, so it’s not comfortable, 2) it has been hard for us to put our son inside, once he is asleep, as he tends to wake up in the process, and 3) it got deformed after our son used it as a toy, and jumped on it a few times, so it doesn’t stand fully upright anymore. Instead, when we don’t have a crib, we simply co-sleep. If available, I use another bed, and leave the larger bed to my wife and my son. We never co-slept before, and are not big fans of it either. But when push comes to shove, it’s not a bad solution at all, if done properly. Of course, if the baby is too young, this should be avoided for safety reasons. We also try to use pillows around him so he doesn’t roll off the bed.
 
-What are you reading these days?
+## What are you reading these days?
 
 Before the trip, I thought he we might have time to read a few books in our spare time, but I was so wrong. Between sightseeing, cooking, cleaning, parenting, and researching and arranging new adventures, there is little time to do anything else. Gone are the days of having our evenings to ourselves! Nevertheless, I’m listening to an audiobook called “Italians Before Italy: Conflict and Competition in the Mediterranean”. It’s about the history of Italy after the fall of Roman Empire up until the unification and formation of modern Italy in the 19th century. That period of Italian history was always pretty vague for me, so I wanted to educate myself on that subject. It’s a fascinating history, not unlike a real-world Game Of Thrones, as rich families, city states, warrior kings, invading neighbors, and popes and emperors played each other for power and glory. Highly recommend it!

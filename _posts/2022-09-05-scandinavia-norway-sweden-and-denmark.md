@@ -6,7 +6,7 @@
 
 In the last leg of our trip, we visited Norway, Sweden and Denmark, before heading back home. I had long wanted to visit Norway for its breathtaking scenery, and we decided to combine the trip with a visit to Copenhagen to meet a couple of old friends, and since we wanted to travel by train, we had a short stop in Sweden. This was our first trip to this region, and we were highly looking forward to it.
 
-Norway
+# Norway
 
 ![](https://lh3.googleusercontent.com/sHFBF6QaECXwuZxHxlUo2XUzLQEe_pQMTmU-I9vmjxilal5d9iE8H3CAbRzmwJimlgM)
 
@@ -38,7 +38,7 @@ We spent our last days in Norway in Oslo, where we met up with a childhood frien
 ![](https://lh5.googleusercontent.com/lbI7vVp4f01-MukbaZQIl9MMQ_Xp4WTcB2zYmPPu71jtVVwPfQlZUZmnD2Y0lcfUV94)The map of explorations of Vikings in Stavanger Museum of Archeology
 During the trip, I set out to learn more about the fascinating history of Vikings. We all seem to have an idea who Vikings were - a marauding gang of violent seamen living in modern day Scandinavia, who terrorized and pillaged Europeans for centuries during Middle Ages. There is even a show about them called Vikings, which happens to be quite entertaining. But of course that can’t be all to it. First of all, the accounts we have about Vikings are almost all written down by the victims, so you can imagine there would be mischaracterizations and exaggerations involved - though I certainly don’t want to expunge the Vikings of their crimes, but according to historians, Vikings were no more brutal than other medieval counterparts. Secondly, not all Scandinavian were Viking. Many were traders and artisans and farmers, but we don’t hear much about them. And thirdly, no, Vikings did not wear horned helmets. What is certain is that Vikings were the best shipbuilders and navigators of their times. They not only managed to sail across seas, but they also crossed the Atlantic Ocean, and landed in North America, 500 years before Columbus. They even reached as far as Northern Iran, by sailing through Volga and Caspian Sea. I was hoping to learn more about Vikings by visiting museums in Norway, but the only place that had a small collection on Vikings was the archeological museum in Stavanger.
 
-Thoughts on Norway
+## Thoughts on Norway
 
 1. It goes without saying that Norway is an expensive country, and you feel that in every thing you buy, especially food. But in return, you get really high quality products.
 
@@ -61,7 +61,7 @@ Thoughts on Norway
 10. Norway is similar to Switzerland in so many ways. They both have breathtaking nature, they are both well-organized and run well, they are both expensive, etc. But there are also certain differences between the two, like Norway is all about the sea, whereas Switzerland is all about mountains. Switzerland has amazing cheese, and Norway simply has not (I asked), but instead has amazing seafood.
 11. Norway is one of the most successful countries in the world, and it is for that reason that Norwegians always rank as the happiest people on earth. It’s true that some of that is just sheer luck of brilliant geography and resources, but they also made the right choices - a lot. I wish Norway was a bit more involved in the world though, and would evangelize and teach how they do things the right way to other countries in the world - not that others would listen anyways.
 
-Sweden
+# Sweden
 
 Sweden, and Denmark where not really part of our original Eurotrip plan. Norway was on the list, for its natural beauty, but we never thought of visiting Sweden and Denmark. However, when we were looking for the return trip back to the US, we saw that the flights from Copenhagen are, for some reason, much cheaper than flying back from the UK, or Norway. So we decided to make a detour, and end our trip in Copenhagen. Since the train ride would be too long between Oslo and Copenhagen, we decided to break the trip by staying a few nights in Gothenburg, Sweden. So we can’t really say we visited Sweden. But this doesn’t stop me from telling you how it was!
 
@@ -72,7 +72,7 @@ The process of planning a trip like this is pretty complicated: You need to find
 ![](https://lh5.googleusercontent.com/k1dE5mv2ZON4zp4LeyhiM4JhPelIPBhugsiufgI175E71x55Pq4cnkbUGf4Xo5ejnnA)
 Varberg was 50 minutes train ride south of Gothenburg, and although it was a hassle to get to and back, it was actually the first stop on our train to Copenhagen. We stayed in Varberg then, and visited Gothenburg on day trips. The highlight our visit to Gothenburg was the Natural History Museum which houses the only taxidermy blue whale in the world. The blue whale in question was hunted in waters of Sweden in the 19th century, and was a young blue whale, measuring at half the size of a fully grown blue whale. Nevertheless, it is so huge that you can literally walk inside it. Few times per year, they open the mouth, and let people go inside, and we were lucky enough to be there on one of those days! So we waited in line to climb a ladder, and go inside. The interior basically looks like a small room, large enough for around a dozen people even being able to dine in there.
 
-Denmark
+# Denmark
 
 Copenhagen was around 3 hour train ride from Gothenburg, and unlike the trip from Oslo to Gothenburg, we did have reserved seats, and it was not as packed, so the trip was much more relaxed. Copenhagen has one of the largest car free city centers I’ve seen anywhere, and it was a joy to walk around it. Copenhagen is also a very bike-friendly city, having separate bike lanes everywhere. It can be dangerous for tourists though, as bikes zoom around in the bike lane, and pedestrians should avoid stepping a foot in there. They even have a certain type of bike called Christiana Bike, which are basically bikes with cargo in front. People use them not only to transport goods, but also their family around the town! Copenhagen has a fantastic transportation system too, but the payment system was quite confusing, as you have to tap in “and out” when riding trains, subways and buses, and as tourists with babies, we constantly forgot to tap out, and were charged extra. 
 

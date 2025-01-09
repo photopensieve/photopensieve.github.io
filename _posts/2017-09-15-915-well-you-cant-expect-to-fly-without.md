@@ -6,7 +6,7 @@ What better way to start a trip than having your flight delayed by 4 hours, righ
 
 We had reserved a taxi (taxidatum) to take us from Cusco to Urubamba before, so after the delay, I sent them another email giving the new flight info, and they were very accommodating. The one hour and half taxi ride was definitely scenic, though at times scary, and we saw some alpacas along the way too.
 
-We're trying to "speak" a few Spanish words. My (limited) French knowledge and my wife's (equally limited) Italian knowledge is a little bit of use (I guess?). But having (offline) Google Translate is even more helpful. :)
+We're trying to "speak" a few Spanish words. My (limited) French knowledge and my wife's (equally limited) Italian knowledge is a little bit of use (I guess?). But having (offline) Google Translate is even more helpful.
 
 We're staying two nights in Urubamba at Eco Lodge. We went out for dinner, and I had alpaca steak, which was OK. We're now back at the lodge, waiting for the water to warm up to take our showers. Well, a fitting ending to a grueling day. 
 

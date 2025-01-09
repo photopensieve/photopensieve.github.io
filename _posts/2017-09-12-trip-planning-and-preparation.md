@@ -16,7 +16,9 @@ In Cusco, we will first stay in the Sacred Valley, both for acclimatization, and
 
 Preparation
 
-We decided to go as light as possible, having each a ~40L backpack, which is plenty. This way, we don't need to check in any bags, and we can take buses a lot easier. We are going to pack fewer clothes, and wash them a few times over there. This is the mandatory backpacking shot:![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhH750hhELvm3y1Mlc3ztW_DccJiK6D6-aJIE13sG-SsjceSPZogF-uCxMYC9QR0QDRQktaGHfClnjbUQGQvtO7ddvGzkH11rFeaUpUI0bNsh9XqCGn_qs51cVVILJ-i6Zk3RE3lD00sePN/s5000/%255BUNSET%255D)
+We decided to go as light as possible, having each a ~40L backpack, which is plenty. This way, we don't need to check in any bags, and we can take buses a lot easier. We are going to pack fewer clothes, and wash them a few times over there. This is the mandatory backpacking shot:
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhH750hhELvm3y1Mlc3ztW_DccJiK6D6-aJIE13sG-SsjceSPZogF-uCxMYC9QR0QDRQktaGHfClnjbUQGQvtO7ddvGzkH11rFeaUpUI0bNsh9XqCGn_qs51cVVILJ-i6Zk3RE3lD00sePN/s5000/%255BUNSET%255D)
 
 
 Photography gear

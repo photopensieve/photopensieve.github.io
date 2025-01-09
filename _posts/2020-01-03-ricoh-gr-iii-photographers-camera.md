@@ -25,38 +25,38 @@ During the last 14 years as a photography enthusiast, I’ve owned my fare share
 I have liked some of these cameras (notably the 5D and A7R II, because of shallow DOF possibilities, and those gorgeous files they make), didn’t like some as much (NEX-6 and WB200, because of their color renditions), and had love/hate feelings about the Merrill (long story short, phenomenal IQ at ISO100 only, above anything I've seen from any other camera, but not worth shooting at anything above ISO100, and a horrible camera/shooting experience due to laggy interface and bad design). As you guess from the title of this post, I now own the Ricoh GR3, and I like it a lot! Let me tell you why I bought it, and what I think about it. Note that this is just going to be about my personal opinion, and is by no means a full review.
 
 
-Why am I buying another camera again?
+## Why am I buying another camera again?
 
 (Question asked by my wife as well) To cut the long story short, I'm not taking as many photos as I'd like to these days, and I want to change it. The reason is that unless I know there is a good opportunity for photography, I do not carry my Sony A7R II with me. Having a pocketable camera like GR3 allows me to be more casual about photography, and carry it in more places.
 
 
-The case against the smartphone as a daily driver camera
+## The case against the smartphone as a daily driver camera
 
 One of the quandaries I had before buying the GR3 was whether I should instead upgrade to a latest smartphone like iPhone or Pixel. Computational photography has dramatically improved the quality of photos that smartphones take these days. They do a great job at HDR, simulated DOF, low light photography, and even have multiple focal lengths in one package. On top of that, as the saying goes, "the best camera is the one that you always have with you", so wouldn't that make a smartphone the best tool for photography? Well, my answer to this is "no", because smartphones do not inspire me to take photos. Let me elaborate: A smartphone is a multi-purpose tool; it does a lot of things other than taking photos, so I don’t see it as "a tool for photography". It also doesn’t help that I have it on me 24/7: I don’t (actively) think of taking photos with it. If there is an occasion, e.g. being in a nice place, or with good company, I do use my smartphone to memorialize the moment. And smartphones are great at that. But my smartphone doesn’t inspire me to take photos when I’m walking in a seemingly ordinary place. In contrary, if I have a proper camera on me, "I think photographically"; I see things that otherwise I would not have noticed. On top of that, no smartphone has nowhere near the level of customizations that a photographer needs to capture the moment: They lack physical buttons, they don’t provide full manual control, etc. Let alone the fact that the image quality is not comparable between the GR3 and any smartphone.
 
 
-Replacing my full-frame kit?
+## Replacing my full-frame kit?
 
 So now that I’ve got the GR3, will it replace my [Sony kit](https://photopensieve.blogspot.com/2019/09/my-holy-trinity-of-lenses.html)? Well, not really. When it comes to serious people or landscape photography, I think I would still go for my trusted Sony A7R II, and the three excellent prime lenses I have. But anything short of that, I think the GR3 would do the job. I recently brought the GR3 during a vacation to Caribbean, and enjoyed shooting with it a lot. This was an example of a situation that I probably would have left the Sony kit at home, since it was mostly about relaxing and enjoying the vacation. But having the GR3 almost always with me, allowed me to take a lot of high quality photos during this trip.
 
 So how did I find the GR3? Here are my thoughts.
 
 
-It is tiny and lightweight
+## It is tiny and lightweight
 
 I had seen a lot of review videos on GR3, but when it arrived, I was surprised how small it was! This is by far the most important appeal of this camera for me.
 
 The small size along with unassuming design also make the GR3 an inconspicuous camera. It might be in my head, but I think people don’t notice you as much with such a small camera, and won’t react like, oh here’s a photographer with his big camera, and instead, they would see me as an old-fashioned tourist who is just snapping his way around!
 
 
-It has a well-thought-out design
+## It has a well-thought-out design
 
 The GR3 has the best design - both in terms of hardware and software - of any camera I've ever used. It's like real photographers designed this camera for photographers! Every detail is well thought out, and it is highly customizable. Importantly, they have designed it such that it is optimal for one-handed control. Given that it doesn't have an EVF, there is no need to bring this camera up to your face and support it with two hands, so you would naturally tend to use it with one hand by extending your arm to the subject and shoot, and the ergonomics and button placements fully support this operation.
 
 It also turns on and is ready to shoot in a fraction of a second. That encourages me to turn it off when I don’t foresee using it for a few minutes, conserving the battery, and avoiding the heat issue (more below).
 
 
-It creates beautiful files
+## It creates beautiful files
 
 The APS-C sensor in GR3 is on par with the bests in this class (as pointed out by [dpreview](https://www.dpreview.com/reviews/ricoh-gr-iii/5)). It produces very respectable high ISO images; it has great dynamic range, and due to the lack of AA filter and being coupled with a sharp lens, it produces sharp and crispy photos.
 
@@ -65,17 +65,17 @@ The teeny-tiny retractable 28mm F2.8 equivalent lens is also another shining sta
 One key factor in choosing a camera for me is whether it produces great colors. I find GR3’s colors to be very good and pleasing. On top of that, Ricoh has baked in some nice jpg modes in the GR3. They are also highly customizable, so you can change them, or add some custom ones, if you like. I treat them as “different films”, and before the shot, I determine which mode is more suitable.
 
 
-It has a well-implemented focus tracking mode
+## It has a well-implemented focus tracking mode
 
 Focus and face tracking features are very handy, though not perfect. The GR3 is nowhere close to Sony A7R II in terms of focus tracking capability, nevertheless it is highly welcomed. I am, in particular, very fond of the focus tracking capability that locks on a part of the image, and enables me to move around and re-frame. I have re-programmed the wifi button to toggle between the center focus and focus tracking modes. I used this a lot for macro shooting, and it worked well.
 
 
-It is great at casual macro photography
+## It is great at casual macro photography
 
 I was pleasantly surprised by how capable the macro mode is (check out the butterfly pictures below). No need to bring a macro lens with me anymore! Also, the fact that the camera is so light and can be operated by one hand allows me to get the camera close to the subject at tough angles, without bringing my body closer to the subject. It would have been fantastic, if the GR3 had an articulating screen.
 
 
-... and it has a few more handy features
+## ... and it has a few more handy features
 
 Snap focus: This is one of the most popular features of GR cameras, and it is great for street photography, although I still haven't got the hang of it completely. Sometimes I press the shutter button fully, but it turns out that it hadn't taken a photo.
 

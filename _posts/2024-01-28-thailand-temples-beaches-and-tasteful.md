@@ -8,7 +8,7 @@ Our major travel destination in this [round-the-world journey](https://photopens
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjcTToeOKxxQLOkMEkVRsUui0Glendngq7IkD41z25njsYPQhfuQsx0etVwW-YOYqxHPA6kVWvMNUvjFju7R0DtRvap1K8RLH3YaE_GJ8rjHyV2LPv63EzTxaQ7TtQP2Oa860ZnBJ4W63xy6B6s9U1ARm_sdZx9T3L9pcEY70Xhw0Mc9efXTMexsNU_KWIf/w426-h640/R0006908.jpeg)
 
-# Bangkok
+## Bangkok
 
 We took a direct overnight flight from Tehran to Bangkok on Mahan Airline, and arrived in the morning in BKK airport. There is a special feeling when you arrive in a totally new place for the first time. Everything feels new, including the air. This is especially true in Bangkok, as the first thing you notice when you get off the plane is the temperature and humidity. It’s stifling, compressing around you like a wet shirt. Actually, that is your shirt, drenched with sweat almost instantly from the intense heat!
 
@@ -30,7 +30,7 @@ Getting around Bangkok is best done using its metro system, complemented by rive
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg5DdLaXA80R5tF1zsHy45zgqQrUAM2pGSSk-LqhxfAgU_hbbHmzzmjclsPyr57VPwrizPS_VwQlbXjVxoSBSPp-mpm5Y0tWRQK4uuzD75PXYScP48I9YPAtTREVouxqnuzlFUyheuCYrC_QEl_mM9GGVHvUfH3YT4remMdHx2ksacHYlkmAsjYnVGZ-fDH/w512-h640/DSC09566.jpeg)
 
-# Ayutthaya
+## Ayutthaya
 
 Ayutthaya, a historic city just one hour north of Bangkok, is often visited on a day-trip, but we decided to stay for two nights for a more relaxed experience. We took the train from Hua Lamphong station, which turned out it only has old trains with 3rd class wagons. In the hindsight, I would have used the newer train station north of Bangkok. The upside was the incredibly low cost, just 50 cents per person (!), and the chance to interact with friendly locals. However, the downside was the lack of air conditioning, as the trains only had fans, many of which weren't functional, making the journey quite sweaty. Additionally, there were no assigned seats, so during peak hours or seasons, standing the entire way was a possibility. Despite the loud and bumpy ride, it was an overall interesting experience.
 
@@ -40,7 +40,7 @@ We had a blast exploring Ayutthaya over two days. The ruined temples, reminiscen
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkPoGnbjaWh6oBJJO1hA_bCrNXp5iyPoRkA6f65vB5sg5bHYxZkHNMxcvN2tLS1KOm_I9zJ2-NXhNpRyIkX3vvEPKwEx3I_myOhRi-mepcUNRwre6jrDtsR7ucn-AoVt6zO895iI7oct5lU5J6756xdaxY8BdZmZNJAAFYmjwZ-kcQPDZhX-NMgaM9ijEf/w640-h360/DSC09835.jpeg)
 
-# Krabi
+## Krabi
 
 No visit to Thailand is complete without visiting its beaches, of course. So after Ayutthaya, we got a flight from Don Muang Airport to Krabi with Air Asia. From there, we took a Grab to the coastal town of Ao Nang.
 
@@ -56,7 +56,7 @@ Most people use Ao Nang as a departure point for the most well-known Thai island
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnB-L6vmOMbZUOn-f_JJoPIIwyr4kfUhzfWUWNejAPDGql1MCpV6kCXgh0n8aACLcyh5LGUppxvYRh7OYj-cv8jcYCUmZ3Hd1tsDM_EUs2cdZ7sLSUlSDezFOhL__sYEuw6Y6edPA6J8zS_HcVQBpupaRL79DzxS8RS6070by4rw_ZGlkpYtDbB3W9rah7/w640-h426/R0007241.jpeg)
 
-# Koh Yao Yai
+## Koh Yao Yai
 
 Koh Yao Yai, literally meaning Big Yao Island, is nestled in the Andaman Sea between the more well-known Krabi and Phuket, and it offers a serene escape from the hustle of its more touristy neighbors. Its tranquil atmosphere and original charm make it a haven for those seeking a laid-back experience. Unlike its more developed counterparts, Koh Yao Yai maintains a rustic vibe with fewer crowds and untouched landscapes. The island's predominantly Muslim population adds a unique cultural flavor to the experience, with friendly locals and a relaxed pace of life. If you appreciate authenticity and a quieter getaway, Koh Yao Yai is definitely worth a visit.
 
@@ -66,7 +66,7 @@ We visited Ao Muong beach for three days in a row, as it was serene and beautifu
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVJCPSJavf9LPBIPUv3oWpzN6WDVgWEekYmzGRGg3DBB2uBIy_BKIvO_nWdAEtML-BAAuELkOnZ_JJeePXdnMSNE50z2nlhQGIni_Oq0Nz8Aqe2frpABlWotoFGQ-a6_1HE4INuiW5AA440UPhuNKes5g_kc5Q_OQu6ABULhfPKiQOih_mQM3-uGbPymtQ/w640-h640/R0007357.jpeg)
 
-# Phuket
+## Phuket
 
 On our last day in Koh Yao Yai, we got a speed boat from a pier in southwest of the island to Phuket, which took only 30 minutes or so. Phuket is largest island in Thailand, and is renowned for its beaches and water activities. It even has an international airport, with connections to many countries around the world. For this reason, it is also the most visited island in Southern Thailand, and is packed with tourists.
 
@@ -80,7 +80,7 @@ The last day before taking our flight to our next destination, Ho Chi Minh City,
 
 To be honest, if I planned our visit again, I would skip Phuket altogether: It’s super touristy, it is too big, you need a car or bike to go around, it’s expensive, and doesn’t really have any outstanding natural or historical feature. Instead, I would use the time to visit more secluded beaches and islands.
 
-# Random observations about Thailand
+## Random observations about Thailand
 
 When you go somewhere for the first time, many things stand out as new, interesting, or right out strange. Here are a collection of some of the things that caught my eyes.
 
@@ -94,10 +94,10 @@ When you go somewhere for the first time, many things stand out as new, interest
 * Since Thailand is close to the equator in the northern hemisphere, the moon crescent looks like an upright U, instead of a slanted U. The first time we saw this, we were like huh? But it only makes sense.
 * Unlike other Asian countries, Thai people eat with fork and spoon!
 * We had a hard time finding public trash cans everywhere in Thailand, which was a bit frustrating. Not sure why that is the case.
+
 # FAQ
 
-
-# How is traveling with a toddler in Thailand?
+## How is traveling with a toddler in Thailand?
 
 Our son is now three months short of three years old, and things are quite a bit different than the last time we traveled in Europe. He is quite a pro traveler, and he specifically loves airports and air travel, so we have an easy time flying with him, which is fantastic. We also co-sleep during the trip, as it is difficult to secure a bed for him. It’s not the best, but what can you do.
 
@@ -106,6 +106,6 @@ One big challenge is food, as our son is a pretty picky eater. We always had to 
 Thailand was the first trip with our son without a stroller, which we left back in Iran. If you look around internet, most people recommend against bringing stroller to this part of the world, and I can see why. However, I think they exaggerate it a bit, and you still see many people rocking strollers in Thailand. We were okay not having one though, as our son is old enough that he can walk around more easily. He sometimes got tired and wanted to be carried, but that didn’t happen too often. But if he was younger, I would not hesitate to bring a stroller to Thailand. You have to leave it at the hotel when going to the beach, but that’s of course is a given.
 
 
-# How much does it cost to travel in Thailand?
+## How much does it cost to travel in Thailand?
 
 Thailand is famous for being an affordable destination. It is certainly more affordable than say Europe, and we spent on average \$140 per day for a family of three, excluding the flight to and out of Thailand. In Europe, we spent like \$240 per day on average, in [our last Euro trip](https://photopensieve.blogspot.com/2022/04/sabbaticallong-term-travel-in-europe.html). Keep in mind that you can spend less or more than this, if you level up or down your accommodations, where you eat, and how you travel around.

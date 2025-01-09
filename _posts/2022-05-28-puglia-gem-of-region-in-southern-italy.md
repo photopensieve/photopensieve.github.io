@@ -46,16 +46,18 @@ Per usual, here is a link to my instagram account:
 
 Follow me to see the latest photos of the trip. I’ll end the post with an FAQ.
 
+# FAQ
+
 ![](https://lh6.googleusercontent.com/j1MRD51S5KA5LUm2Abv0E665sTQi2a1MKJp0CiStyHvRSQx8mOjcjfSDSSeAK64W8Og)
 
-How were the beaches in Puglia?
+## How were the beaches in Puglia?
 
 Puglia has amazing beaches with turquoise waters, and offers both rocky and sandy beaches, depending on where you go. One of the more unique beaches is a place called “Calette di Torre Cintola” which is at the site of the remains of a 16th century coastal watchtower. That was a pretty cool place, and it was free! On that note, there are two types of beaches in Puglia: Free, and paid (Lido in Italian). We opted to go the paid places, because for 10-30 euros for two, you got a nice clean beach, with amenities like umbrella, beds, shower (though they are coin-operated), and access to a bar/restaurant. It is of course more economical to bring you own umbrella and bed, and go to a free beach, but we didn’t want to deal with the hassle.
 
-How was the food in Puglia?
+## How was the food in Puglia?
 
 Puglia has a rich gastronomic history, so it is no surprise that the food is pretty unique to the region. There are lots of seafood, of course, as well as some local specialties like Bombette, Panzerotti, and pastries like Pasticciotto and Rustico. They even have special pastas like Orecchiette, and Maritati, that I had not seen before. However, I can’t say that in Puglia, we had as delicious produce as we had in Naples region, though that is probably a testament on how good the produce was in Naples rather than the quality of produce in Puglia.
 
-How is the driving like in Italy?
+## How is the driving like in Italy?
 
 In a nutshell, not so good, but not as bad as some people make it sound like. First of all, the speed limits are more of mere suggestions! The speed limit is 40, for example, and you have to go 80 because another car is ferociously tailgating you. On that topic, something I don’t appreciate at all - and I’m not used to in the US - is tailgating. It’s like the norm here. The car behind you is only 1-2 meters away, even though you’re going way above the speed limit, as you’re afraid they might rear you. Italians are all talking about slow life, slow whatnot, but when they get behind the wheels, they become speed demons! Having said all that, Italy is far from a lawless country, and apart from the tailgating and excessive speed, they respect the law for the most part. There are many other countries in which driving is a nightmare compared to Italy, so I don’t want to frighten people from driving here. Also, my experience is mostly from driving in the south, though if my memory helps, the northern part wasn’t much better either.

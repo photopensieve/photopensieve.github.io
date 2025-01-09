@@ -6,7 +6,7 @@ When we were planning our long-term European trip, we thought to start from the 
 
 ![](https://lh4.googleusercontent.com/P23gN_WCUDMtAvCWmU0M4jpGzK84s68RyfDyNLdBccd8fqrdEzIDdodA3Qz04GaJrmM)
 
-London area
+## London area
 
 ![](https://lh3.googleusercontent.com/2pgne0IBIigWav1SQItZ9IxZWHBQbQi-O7do5a3FXzcU3__oAOI2WH9_8u9vGwCLn4E)
 
@@ -22,7 +22,7 @@ London is of course one of the most famous cities in the world, and a short vis
 
 ![](https://lh4.googleusercontent.com/OSnoU2BSManqodWgdTbea4vROMFU6ozOtWgHNg8nVzhogTC-lyOLw11iBI8rdTCcNq8)
 
-Yorkshire
+## Yorkshire
 
 Yorkshire is a historic region on the north-east of England, most famous for its Roman and Scandinavian connections in the past, and its natural beauty. We wanted to visit two places in Yorkshire: The historical and quaint city of York, and the coastal town of Whitby, mostly for the landscape and its ruined abbey. Given we had just a few days in the region and the 2 hour distance between the two, we decided to stay in Scarborough instead, that sits right between the two. Scarborough is sort of an old resort town that clearly had its heyday many decades ago. It is basically a fishing village turned into a resort town when traveling became fashionable, but (I’m guessing) as traveling abroad became more and more economical, it lost its popularity. It sort of reminded me of the Fremont district in Las Vegas, if you’ve ever visited (if you haven’t visited, it’s much more fun that the Strip, IMO). Scarborough can be a good base if your intention is to visit York and Whitby (or Robin Hood’s Bay), but there is not much to do/see over there.
 
@@ -32,7 +32,7 @@ Whitby is a charming fishing village turned into a resort, and it is famous for
 
 ![](https://lh6.googleusercontent.com/MwFjTaq0yelqJjZ61PszZVp-N2_7zujHO8sQ2_rbgxQdvOegDfi7JLA02pQWyE1dvs4)
 
-Scotland
+## Scotland
 
 Edinburgh needs no introduction, of course, as it is one of the most beautiful cities in the UK. The temperature in Edinburgh was far more appropriate, and we even had to wear jackets some days. We loved walking around in the old town, especially around the Royal Mile. We also visited the Holyrood Palace, which is the royal residence when the Queen visits Scotland. There was a lot of history there as well, especially its connection with Mary, the Queen of Scots. If you don’t know about her, very briefly, she was the daughter of James V, King of Scotland, who became the queen when she was six days old, but she had a tragic life ahead of her. She reigned at the time of reformation - when Scotland vehemently rejected Catholicism, and turned Protestant - while she was an adamant Catholic. Needless to say, this did not bode her well, and she had to flee to take refuge in England at her cousin’s, Elizabeth I. But Queen Elizabeth I actually imprisoned her because of the suspicion that Mary could have a claim to the English throne. She was tossed around different castles for 19 years, until she was sentenced to death by her due to allegation of plotting to kill Elizabeth, and was hence beheaded. She is the emblem of a Scottish monarch, and her tragic life reverberates through history. We also visited Stirling, and its famous castle, which also has some historical ties to Mary, the Queen of Scots, and William Wallace, which you all know from the movie Braveheart. During the trip, I took advantage of being in Scotland, and visiting all these historical places to educate myself about the history of Scotland, and I immensely enjoyed it.
 
@@ -50,14 +50,16 @@ Our next destination is going to be Scandinavia, where we are going to mostly vi
 
 Follow me to see the latest photos of the trip. I’ll end the post with an FAQ.
 
-British Museum is basically like a collection of souvenirs from colonial times, isn’t it?
+# FAQ
+
+## British Museum is basically like a collection of souvenirs from colonial times, isn’t it?
 
 Well, it’s certainly true that many of the artifacts in museums around the world, including British Museum are either outright stolen, or dubiously collected in the last few hundred years. In 21st century, the legality and ethics of such museums should be openly discussed. But looking at British Museum just as a collection of colonial souvenirs is neglecting the pioneering works of archeology, anthropology, and history that has gone into procuring, identifying, preserving and displaying such objects. Thanks to these efforts, we now understand the history of humankind far better. In a way, it’s because of these groundbreaking discoveries and painstakingly deciphering and remodeling these objects that the same objects now have a tremendous value for their countries of origin.
 
-How is the trip with the baby?
+## How is the trip with the baby?
 
 Well, like a normal life with a baby, we have good days and bad days. The period of time around teething is especially trying, but they pass. Honestly at this point, I can’t say that traveling with a baby is much different from staying home. The only big advantage of staying home is having help from family, and nanny/daycare. Due to that help, you get to spend a good portion of the day away at work, unlike travel that you are together 24/7 - which is great, but can be tiresome at times. On the other hand, the advantage of traveling is that our son gets to experience new things everyday, keeping him busy and happy. When visiting most places, our son finds a way to enjoy himself often without much help. We of course avoid activities that he won’t enjoy at all, or it would be hard for him, so as long as he can explore and play around, he is happy! His favorite game is running after pigeons, and we let him indulge in it as much as he likes. He also loves to run around in the stores, and to our dismay, re-arrange the goods.
 
-What are you reading these days?
+## What are you reading these days?
 
 After finishing the fantastic “Italians Before Italy” audiobook, I picked up another audiobook about the Roman republic called “The Storm Before the Storm”, which is about the period of Roman history before the beginning of the end of Republic, aka Caesar era. The premise of the book is that what happened during this period was actually a precursor to the end of the republic. History as they say does repeat itself, but no one knows when. We are at a historical crossroad in the US, and it does bear some similarity to this period in Roman republic, so it’s worth a read/listen. Now, I’m listening to “The Time Traveller’s Guide to Medieval England”, which basically talks about how life was in 14th century in England. Most history books recount the political or military events of the period, but this book answers the hypothetical question of what would you experience, if you were to timetravel to 14th century England. So instead, it discusses how life was during that period, and what you would likely encounter. It’s a refreshing way of learning about history, and quite relevant to the trip we finished in the UK - just a 700 years later!

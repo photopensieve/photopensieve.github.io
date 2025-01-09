@@ -4,7 +4,7 @@
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBNSDlvTcWFZowZmV5AWBtN96H8zVPVwo6xbtwtwYXmyGJHAfHVVspOuhBbMvTUyyNX3aKR-sGvTguv0fzVWp2tuae5qz6y3_mh01YiuovEss25t0r3Ob47CF2GSUS8Y1DtbEB_agCFUxlHLgA4QwhSNi__dv8H50u1YP7Fw9PRmxE3hd3VDS8LjmokF0p/w640-h360/DSC04633.jpeg)
 
-The final stretch of our round-the-world adventure took us to French Polynesia, perfectly nestled between New Zealand and Seattle. French Polynesia, especially Bora Bora, had long been a top destination on our bucket list, making this a dream come true. It was a no-brainer decision since adding French Polynesia to our itinerary only cost us an extra \$400 on our airfare from New Zealand to Seattle. Had we flown from Seattle directly, the round-trip tickets would have set us back \$3000 or more. With this opportunity in hand, we couldn't resist turning our dream into reality! It turned out to be the most spectacular finale to our epic journey around the globe.
+The final stretch of our round-the-world adventure took us to French Polynesia, perfectly nestled between New Zealand and Seattle. French Polynesia, especially Bora Bora, had long been a top destination on our bucket list, making this a dream come true. It was a no-brainer decision since adding French Polynesia to our itinerary only cost us an extra 400 dollars on our airfare from New Zealand to Seattle. Had we flown from Seattle directly, the round-trip tickets would have set us back 3000 dollars or more. With this opportunity in hand, we couldn't resist turning our dream into reality! It turned out to be the most spectacular finale to our epic journey around the globe.
 
 
 Superposition of FP islands on Europe, to show how large and spread-out the archipelago is.
@@ -71,7 +71,6 @@ With this, our 9-month-long round-the-world trip came to an end, and we got home
 
 # FAQ
 
-
-# How expensive is it to travel in French Polynesia?
+## How expensive is it to travel in French Polynesia?
 
 French Polynesia is no doubt an expensive tourist destination due to its remote location, and the prevalence of luxury resorts, especially in well-known spots like Bora Bora. High-end accommodations, gourmet dining, and exclusive activities like private lagoon tours contribute to its reputation for being costly. However, it doesn't have to be prohibitively expensive. In fact, in my experience, it is almost as expensive as Hawaii. Budget-conscious travelers can find more affordable options, such as family-run guesthouses (pensions) or airbnbs, local eateries, and (scarce) public transportation. Additionally, less touristy islands within the archipelago offer a more economical yet equally stunning experience, allowing visitors to enjoy the natural beauty and rich culture of French Polynesia without breaking the bank. There are two other main costs as well: 1) airfare to travel between the islands, though it can be cheaper, if you take a ferry, and 2) activities like snorkeling, 4WD or ATV tours, etc, can be pricey. However, I would not skimp on activities, otherwise there is not much to do in say Bora Bora, and you’ve already paid a lot to get there anyways.

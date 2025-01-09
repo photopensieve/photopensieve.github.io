@@ -14,27 +14,27 @@ Caserta is half an hour north of Naples, and it was a perfect place to spend a 
 
 We are super happy that we took the time to visit these two places, but a small problem we had was the abundance of mosquitoes in both places. We’ve never been bitten so much before by near-silent ninja mosquitoes!
 
-The Mishap
+## The Mishap
 
 Our next destination was Dubrovnik, flying from Naples with EasyJet, but unfortunately we missed our flight! This is something that has never happened to me before in over 15 years of traveling on my own, and now it has to happen with a baby. Suffice to say, it was super stressful, but luckily there was another flight the day after that I had to book on my own for double the price of the first one. We also had to stay a night in Naples again, and we didn’t get to do much other than walking around in the historical center, and having dinner. This was a major bummer for us, as we had my cousin and his wife waiting for us in Dubrovnik, and we had to get there. 
 
 When a major mishap like this happens at Amazon, we tend to write a doc called Cause Of Error, or COE. In this doc, we ask a few “why” questions to bottom out the reason, learn from it, and take actions so it doesn’t happen again. So here is my COE for the missed flight. 
 
-Why did you miss the flight?
+## Why did you miss the flight?
 
 We had to get the flight from Naples airport at 13:00 with EasyJet, so we planned accordingly to return the car, and be there around 2 hours before. When we arrived at the airport, I got a notification on my phone from EasyJet app that the flight is being delayed, and will depart at 14:00. I checked the departure time board at the airport, and the flight was delayed, and there was no gate assigned yet. The app said the same, and it indicated that it will update when that information is available.
 
 So after passing the security, we had like 2 hours until the departure, and since we have lounge access by our Capital One Venture X card, we decided to go there. We had food and drink, and relaxed a bit, while one of us was constantly trying to entertain our son. By around 13:30, there was still no update from the app, so I became concerned what is happening, and found a board, and low and behold, it said the flight is leaving at 1:35! We ran to the gate, but there was no one there. Meanwhile, there was this mega loud ear-piercing alarm going off in that area, so loud that our son started crying. I was running around to find an EasyJet representative, but there were none. That was the time I realized we have missed the flight.
 
-Why did you only rely on the EasyJet app to check for the update?
+## Why did you only rely on the EasyJet app to check for the update?
 
 I tend to rely on online sources for checking the updates of our flights, as (at least in the US), they are spot on, and even sometimes faster than the airport announcements. So it was natural for me to keep checking the app.
 
-Why didn’t EasyJet help you to rebook?
+## Why didn’t EasyJet help you to rebook?
 
 Well, EasyJet, and other budget airlines are infamous for their cost-cutting measures, and that’s how they manage to lower the prices, and despite that, turn a profit. Their website says if you miss a flight, they will rebook you the next flight with a fee, but when you call them, no one answers, and their website does not have such an option. Overall, you get crappy customer experience for the comfort of flying direct from two not so popular destinations with a low cost.
 
-What did you learn?
+## What did you learn?
 
 1. Never trust an app, or website for the flight information, and instead only rely on the departure info board at the airport.
 2. Don’t kick back and relax at the airport, unless you know the gate and boarding time.
@@ -47,10 +47,12 @@ Per usual, here is a link to my instagram account:
 
 Follow me to see the latest photos of the trip. I’ll end the post with an FAQ.
 
-Any updates on the traveling with a baby?
+# FAQ
+
+## Any updates on the traveling with a baby?
 
 Well, it hasn’t been very easy lately, since our son has been unwell a bit. He hasn’t been eating well, and has been unusually cranky during the day and over night. After checking with a doctor, we realized that he might have contracted hand-foot-and-mouth disease — a mild, contagious viral infection common in young children. Poor little thing. It’s tough to have a sick baby, but even tougher when you are on the go. He is recovering though, and hopefully in a few days, he will be fully well.
 
-How is photography going?
+## How is photography going?
 
 Pretty well! It’s not too hard to capture good photos in scenic places like the ones we have visited, and I have been enjoying it immensely. I’m also happy I have brought both cameras, the Sony A7R2 with three primes, and the Ricoh GR3. The Sony is indispensable when I want to do serious photography and I need ultrawide, normal and telephoto lenses. Ricoh, on the other hand, has been great to carry around on a given day, when the first goal is not photography. It is basically my pocket camera that allows me to capture high quality photos when needed.

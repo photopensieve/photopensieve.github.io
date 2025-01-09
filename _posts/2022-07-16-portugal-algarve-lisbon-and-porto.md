@@ -36,10 +36,12 @@ Our next destination is going to be the United Kingdom! Stay tuned for that! Per
 
 Follow me to see the latest photos of the trip. I’ll end the post with an FAQ.
 
-How family-friendly is Portugal?
+# FAQ
+
+## How family-friendly is Portugal?
 
 Portugal is the most family-friendly country we’ve ever visited. Not only people are nice and caring when they see you with a baby (which for the most part all countries we have visited have been too), but also there are laws to prioritize parents of young children in pretty much any line, be it in the airport, grocery, transportation, etc. We enjoyed it so much that we don’t know how we are going to deal with going back to ALL other countries that don’t give such privileges to parents! We also found changing tables, and even dedicated changing rooms everywhere we went - we cannot say the same thing about any other country (I’m looking at you, Italy!)
 
-Is July a good month to visit Europe?
+## Is July a good month to visit Europe?
 
 Well, I used to think like that at least Northern Europe would be best in July and August. But two things make me rethink this: 1) Revenge travel after Covid, aka overcrowded everywhere you go, and 2) global warming that has resulted in unprecedented heat waves. Even Switzerland and UK are having 35+ or close to 40 degrees temperatures these past few years, and given that the accommodations and many public places and public transportations in these countries aren’t typically equipped with air conditioning means that you’re going to suffer during the heat waves, much more so than a traditionally hot place. We didn’t have these problems in late April, May and even into June. Moving on, I would think twice about visiting (most places in) Europe in July and August.

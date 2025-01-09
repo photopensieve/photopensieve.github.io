@@ -1,4 +1,4 @@
-# Vietnam: King of Value Travel Destination! - Part 2
+# Vietnam: King of Value Travel Destination - Part 2
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/02/vietnam-king-of-value-travel_24.html)*.
 
@@ -8,7 +8,7 @@ In the second part, I’m going to discuss our travels in central and northern V
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikMjCwX3ENNa5sb0IWJulQTnCi0gwq6gTh_M-McKJd0i3EcgPRob80e0n-shW51MMa6hDmRt-F3E6XptMohZeJ-LwgOGuyzmlue5oAAV4H0bqJXwywK3uacysGNceC7Ey3mvdu7S8eSNouKcb3cEY-MeRRqXnRvCtjetlvkyWpKzPi6vfOBUPIZhWAGOOc/w640-h480/DSC00028.jpeg)
 
-# Hoi An
+## Hoi An
 
 Traveling in Vietnam during the Tet holiday presents challenges, such as transportation being fully booked in advance. This was the case when we attempted to secure train tickets from Nha Trang to Da Nang, near Hoi An, but found none available. With bus travel being lengthy and inconvenient, we chose to fly despite the premium cost during this peak period. Upon reaching Da Nang, we used Grab to get from the airport to our accommodation in Hoi An, which took around 45 minutes or so.
 
@@ -20,7 +20,7 @@ Hoi An is renowned for its tailors, offering complete suits for (allegedly) as l
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtNOcsGSaUzT24xtXKx0ZbjjrYLZzphREf2UcAg-3Tq8b-s1bKeyiFCzcErTfPQ7pFa-8dk7QhDKp1o3yvXuS-AvN7-b6M210luiqw1Y6_S6DTeughMD9OQCOsCs9xG5tLAWhjl2rou004LokVsM76VFXpC-pd643VASXnI7upLHJ-Tex1-VNxc6AlLiQy/w640-h480/DSC00230.jpeg)
 
-# Da Nang
+## Da Nang
 
 Da Nang is the third largest city in Vietnam, and it is 30 minutes north of Hoi An. We stayed 3 nights in Da Nang, but we could have stayed another 1-2 days easily.
 
@@ -30,7 +30,7 @@ We also visited Marble Mountains which are a collection of limestone and marble 
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhRm4sLFbsrwUvx2X8B_B-KOgM7dFtwbyLSp3aGyTSMYBnmJi-0V4nSl_AqL0Xc00wMsO6h6ybJKbEWcNgd04WVduf1wWb7pUuf_X1OOQ6iyHmjqOaBu4FjsPhTmpSrTevvtWO7Focz1Wl9LwPdIQDx_z-3N2e2OgJDtDv74rcr-1Yo3fGerOdARHejAmpz/w640-h426/DSC00313.jpeg)
 
-# Hue
+## Hue
 
 We took a van, or what they call a limousine here, to Hue, which is 2 hours north of Da Nang. Initially, there was some confusion about the pick-up point, but fortunately, the van arrived on time, and we boarded without any issues. Along the way, we enjoyed the scenic views of the ocean, rice paddies, and lush green hills.
 
@@ -42,7 +42,7 @@ Unfortunately, the weather in Hue didn't cooperate during our visit, with consta
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEitWMkECYZ00GdfAMzADfv_t6oC05qgkMznoxtFmVt6csAKqhMKwJaT7ipCfgn1nUf0b4q00R8yXMXauEnvLtU6Evtqiv6doQDe7JWnqiSxScJg1IUMrJnXtbhe1fptdUvrLITo3puQT5f_baPcnSShPTQco8AGA-TD-rymS_On6lAYZiM2mJ6L4pFu6x5B/w640-h480/DSC00504.jpeg)
 
-# Ninh Binh
+## Ninh Binh
 
 Our train arrived in Ninh Binh in the morning. The train ride was comfortable, and our son slept the whole way. We got a Grab to our accommodation, and after check-in, went to take a boat tour in Trang An. Ninh Binh is famous for its natural beauty, sometimes dubbed as “Halong Bay on Land”, as it also has large limestone formations covered partially with lush green trees, and you can ride a boat along shallow waters adjacent to rice paddies meandering through the rock formations. In fact, we skipped Halong Bay altogether because 1) we were running out of time in Vietnam due to the visa mishap, 2) it was easier to visit Ninh Binh since it was on route from Hue to Hanoi, whereas to get to Halong Bay we first had to go to Hanoi, and then take a 3 hour bus ride to Halong Bay and back, and 3) we thought Halong Bay will be too crowded, as it is one of the most famous attractions in Vietnam. Little did we know that Ninh Binh would be super packed with tourists too.
 
@@ -54,7 +54,7 @@ Tet holiday and over-tourism aside, Ninh Binh was pretty challenging for us, as 
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-zLNK31oVGcEFiHBWOIEmy_j4cTb0BwsllQ6ZthORcWUE_9UDnpMeOnOL47Pf3MmGpasucVeTFsmQpcyfz87LI04V2l9yHkcffuvo9XCGbDMpKgc8tbYJHyqW3Jw1B0l4Ag4SqhzG7why70hAIO-2_qI4goHTiMUCAoApFelELVjZZ2VQzRaJqWgCZwvr/w640-h634/DSC00884.jpeg)
 
-# Hanoi
+## Hanoi
 
 From Ninh Binh, we took a train to our last destination in Vietnam, Hanoi. Hanoi is the capital of Vietnam (since 1976), and it is famous for its vibrant Old Quarter, where narrow streets buzz with motorbikes and the scent of exotic foods waft through the air. Wandering through the labyrinthine alleys, packed with parked scooters and sidewalks turned into eateries, visitors encounter a tapestry of ancient temples, colonial architecture, and bustling markets.
 
@@ -71,21 +71,21 @@ With that, our nearly 4-week-long trip to Vietnam ended, and we flew to our next
 # FAQ
 
 
-# What exotic foods did you try?
+## What exotic foods did you try?
 
 Vietnam is famous for its exotic cuisine, and even though I am not an adventurous eater, I tried a couple of things: 1) Rare beef with ant eggs, which was a recipe from the Central Highlands region of Vietnam. The ant eggs didn’t taste like muchl; it was like a sour garnish with some texture. 2) Grilled frog, which surprisingly tasted okay, something in between fish and chicken.
 
 We also tried many different exotic fruits there such as mangosteen, passion fruit, rambutan, longan, pomelo, star apple, guava, dragon fruit and jackfruit, in the order of preference. We didn’t dare to try durian, as the smell is way too strong, but we tried the durian ice cream which had a pretty unpleasant aftertaste.
 
 
-# How was visiting Vietnam during Tet holiday?
+## How was visiting Vietnam during Tet holiday?
 
 Visiting Vietnam during Tet holiday offers a unique opportunity to immerse oneself in the country's vibrant cultural celebrations and witness traditional customs firsthand. The streets burst with colorful decorations, lively parades, and the aroma of festive foods, providing a captivating experience for travelers. However, it's important to consider the challenges that come with traveling during Tet, such as crowded transportation hubs and limited availability of public services as many people return home to be with their families, and most importantly the domestic over-tourism. Additionally, some businesses and tourist attractions may be closed or operate on reduced hours, potentially impacting travel plans and access to amenities. Frankly, I would highly advise against traveling to Vietnam during Tet holiday, if you can. Maybe travel up to a week before the holiday, but certainly skip the week before and after.
 
-# How was traveling with a small child in Vietnam?
+## How was traveling with a small child in Vietnam?
 
 Vietnam is the first country in our trip that I would strongly advise against bringing a stroller! I’m happy that we got rid of ours beforehand, as it would have been totally useless there. I saw very few strollers there, and for good reasons. The sidewalks are always packed with scooters, or had turned into eateries, and you have to constantly switch between sidewalk and the road. No matter where you are, there are motorbikes coming right at you from every possible direction! Moreover, unlike the US, Europe, or even Thailand, the Vietnamese drivers do not give the right of way to pedestrians - even if you are with a small child - and want to out-maneuver you. But as long as you are super vigilant and do not let go of your child’s hand, you will be fine. On the bright side, the food was great, and our son, who is almost three now, loved having pho - or as he called it “noodle in the soup” - every day while we were there.
 
-# How was photography in Vietnam?
+## How was photography in Vietnam?
 
 I had a blast doing photography in Vietnam, especially doing street photography in Hoi An and Hanoi, and landscape photography in Ninh Binh. Vietnamese iconic conic hats, and simple, colorful and elegant Vietnamese dresses make for great photo opportunities, be it in bustling city streets and market, or in rice paddies in rural areas.

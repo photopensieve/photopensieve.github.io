@@ -6,7 +6,7 @@
 
 Vietnam is the second stop in our trip to Southeast Asia as part of our round-the-world trip. We stayed close to a month there, but we wished we could have stayed more. We loved the food, the culture, the nature, and the highest bang-for-the-bucks travel experience we’ve ever had!
 
-# Overview of Vietnam
+## Overview of Vietnam
 
 Vietnam, located in Southeast Asia, is a vibrant and culturally rich nation with a tumultuous history and breathtaking landscape. From its stunning natural beauty, including lush rice paddies and picturesque coastline, to its bustling cities and vibrant street life, Vietnam offers a diverse array of experiences for travelers. Steeped in history, Vietnam has been shaped by centuries of conflict, colonization, and resilience. China has long impacted Vietnam, but in recent centuries, the French and Americans played a big role in its history too. The country gained independence from French colonial rule in 1954 after the First Indochina War, followed by decades of internal strife and the devastating Vietnam War, which ended in 1975. Since then, Vietnam has undergone significant economic reforms, leading to rapid industrialization and modernization while retaining its unique cultural identity. With a population known for its warmth and hospitality, Vietnam welcomes visitors to explore its rich heritage, delicious cuisine, and dynamic cities, making it a captivating destination in Southeast Asia.
 
@@ -16,7 +16,7 @@ Vietnam is an elongated country, so planning a trip in Vietnam is pretty straigh
 
 Vietnamese cuisine is famous for its fresh, vibrant flavors influenced by French, Chinese, and Southeast Asian culinary traditions. From the iconic “pho” to “banh mi” sandwiches and spring rolls, Vietnamese dishes are known for their balance of sweet, sour, salty, and spicy flavors. Herbs, vegetables, and seafood play key roles, while dipping sauces like “nuoc cham” add an extra layer of taste. I personally love Vietnamese food, especially the pho, which I can’t get enough of.
 
-# King of Value Destination
+## King of Value Destination
 
 Disclaimer: I haven't visited every country, nor have I researched them all. This is based on my personal travels, and what I have read online.
 
@@ -28,7 +28,7 @@ Thailand is often mentioned when it comes to traveling cheap, but in my experien
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiB9TnagJ3kA-VI8YWcLOocsb7rqyHnlmvQDcSV9mh8GUOhibVcosRbehT-lgaTkI3Sg3OGS4Tnea8Zt8Hajvrh_yvZwhea1XSPCMNbHUv9MZsNTZUog-6BvKrYYdibbrKCtZ8xEIbhpx3JtCnt2CAgBLstiP0cF4Umxolm358qe4SQ-pkJUxdz5K7okGm3/w426-h640/R0007544.jpeg)
 
-# Ho Chi Minh City
+## Ho Chi Minh City
 
 We arrived in Ho Chi Minh City (HCMC), aka Saigon, via direct flight from Phuket. During the immigration process, I realized that there has been a mishap in our visas: My son got a 3-month visa, but my wife and I got only 1 month, with different starting dates, which made the overlapping period even shorter. We had applied for e-visa online, and I’m not sure how this happened. This was quite frustrating, since we were to stay in Vietnam for 6-8 weeks, and had planned the first few locations accordingly. The officer told us that she can’t do anything, and we should go to the main immigration office in HCMC to extend our visa (which we did the day after, and they told us rather curtly that you can’t extend e-visas). That was a bummer…
 
@@ -44,7 +44,7 @@ One of the must-visit attractions in HCMC is the War Remnants Museum, which hous
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi3xtT13NTK3LtyvRB0e6C20Y-pU4TkWtv9te9N4hdH5mk0xX_Wwl45kumWmvMEqhZv10iEf5wuwzTliAfzh-1aoY99rjOx9JJ-eGzjoweHalCKDo6e45M-KF8ouw67BTBdBzW2N5HEDZAl4T2v_TBFavD64Toz5wnZaFSDyRSqta4Rs6Odn7S88eCOk7q2/w480-h640/R0007648.jpeg)
 
-# Nha Trang
+## Nha Trang
 
 We took a day train from HCMC to Nha Trang, taking around 9 hours. We had booked three seats in a cabin of four, and the ride was pleasant, though a bit too rocky. The cabin was relatively clean, but was quite basic. It was interesting that each number in the cabin was associated with a bed, and not a seat. So for example, we had the two lower benches and one on top, and the other guy had the other top bed, where he spent most of his time. We booked all of our train tickets through the official railway website ([https://dsvn.vn](https://dsvn.vn/)), which was pretty straightforward.
 
@@ -54,7 +54,7 @@ After Nha Trang, we went up north, but more on that in the second part of the bl
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDPe242xmDCztTSZH8hlGPfGHvu6FM6hq69RhciROIAhbSS1TW9Y-V0kCelwHNomefxIzd-icU9RI122xR4MCGc_rUqFc-xQtDCj3zcpDgTe8Em5T5wPDGWMW6HbEUIAVI0t0VJMgJVx5376GcNmJQ2QiL0fSPDLDQvWx83JxaZomuOg0t2PHy-kmx5a4_/w640-h486/IMG_5601.jpeg)
 
-# Vietnam War
+## Vietnam War
 
 The visit to the War Remnants Museum in Ho Chi Minh City sparked an interest in me to learn more about Vietnam War. Of course, we all have heard about it, and have seen many Vietnam War movies before, but I didn’t have a good grasp of how/what/why of the war, and its timeline. If you are in that camp, here is a short explanation of what lead to the war, and how it unfolded.
 
@@ -78,7 +78,7 @@ Given that I am a photographer, and a data scientist, here are two thoughts from
 
 2. A geeky learning lesson from the Vietnam War is the critical importance of choosing the right metrics for assessing success or failure in any significant undertaking, be it a business venture or, in this case, a military campaign. Having the wrong metric can lead you off course. Consider this analogy: if a search engine like Google were to measure success, it might seem logical at first to track the total number of searches per user within a given time frame as a metric. After all, more searches typically indicate higher user engagement and potential for ad revenue. However, such a metric could incentivize teams to prioritize quantity over quality, by not showing what users want in the top results, and make them do additional searches, which in reality diminishes user experience. Similarly, in the Vietnam War, conventional measures of success, such as territorial gains, were inadequate due to the nature of the conflict. Instead, the metric of "body count" - the number of Viet Cong fighters killed - was adopted. This proved disastrous, as it incentivized killing civilians, and misreporting them as enemy combatants to increase the body count, while creating the false perception of progress in Washington. Moral of the story: Make sure you track the right metric, and set the right goals!
 
-# Random Observations in Vietnam
+## Random Observations in Vietnam
 
 * English is not widely spoken in Vietnam, and in some places, even the hotel employees were not able to speak English. People instead proactively use Google Translate to communicate with you, which works pretty well.
 * Sidewalks in Vietnam are either scooter parking, or have been turned into eateries. In city centers, you simply cannot walk on the sidewalks. Forget about bringing a stroller to Vietnam!
