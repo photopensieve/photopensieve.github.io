@@ -1,1 +1,1 @@
-I am an ex-Amazon senior applied scientist, and in this blog, I plan to share my thoughts on AI, and my experimentations with learning more about AI.
+Welcome to PhotoPensieve, a blog dedicated to photography and travel. The name comes from the Pensieve in Harry Potter, a device for storing and revisiting memories. Here, I capture experiences through images and share stories from my travels around the world.

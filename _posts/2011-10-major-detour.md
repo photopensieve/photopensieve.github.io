@@ -1,0 +1,40 @@
+# A major detour!
+
+*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/10/major-detour.html)*.
+
+<div style="text-align: justify;">
+I was supposed to go to Delhi from Jaisalmer, to spend one day over there, and then fly to Goa. But now, it's all changed! No Delhi, and no Goa! I'm heading to Gujarat!&nbsp;</div>
+<div style="text-align: justify;">
+Gujarat is south of Rajasthan, and north of Maharashtra, were Mumbai is located. Gujarat is off the map of most tourists, and they just skip it to reach the other side. But why am I making such a detour and going there? It all started with the photos that Harry, the Australian photographer, showed me in Khuri. He has travelled to many villages around Bhuj, in northwest Gujarat, and has taken a lot of photos from the people over there. When he showed me the photos, I was dumbfounded by the beauty of the clothes and ornaments the women and children were wearing. They wear such exquisitely embroidered dresses like nothing I have seen before. I asked Harry if this was during a festival, and he said no, this is their everyday dress! Moreover, the villages around Bhuj need special permit to enter (which can be obtained in Bhuj), so they are less visited, i.e. less photographed. Gujarat was immediately put in my wish list for the next trip to India. But at that time, it didn't occur to me that I can change my plan now. It would have been much easier, and I could get more information from Harry!&nbsp;</div>
+<div style="text-align: justify;">
+In the train from Jaisalmer to Delhi, l was reading my Rough Guide on Goa, and to my disappointment, I didn't find anything that excited me. People go to Goa for the beach, party, and etc (!), but I was not into it. The initial plan was to go there to the beach and relax, and perhaps do some snorkelling. But I found out that Goa is not suitable for either of them. Also, when I got my plane ticket, I was in Varanasi, and back then I thought I need some rest from the craziness of Indian cities, so I decided to go to a beach. But now I had recharged my batteries in Khuri, and wanted to do more photography, especially after I had so much fun shooting villagers in Khuri. I looked around Goa, and didn't find anything that interested me. There came the idea of going to Gujarat! I had not arrived to Jodhpur yet, so I had sometime to decide. I thought, what can be the best outcome of this trip for me. The answer was clear: GREAT photos. So it was a no-brainer. Why would I postpone going to Gujarat for my next trip to India, while I can do it now? And why would I spend 10 days in Goa and around, when it was not all that interesting to me? I had bought the plane ticket for Goa, and in case of changing the plan, I would most probably lose the money (I might be able to reimburse it through the agent I bought my ticket from), but what's the point? I won't miss a good chance for photography, and perhaps once in a lifetime experience, due to the mere reason of losing some 100 bucks! So there I go to Gujarat!&nbsp;</div>
+<div style="text-align: justify;">
+I quickly asked the train conductor about going from Jodhpur to Ahmedabad, the capital of Gujarat, and he said there is a train early in the morning. I asked him about the ticket, and he said I can buy it from the station half an hour earlier. I made my mind, and got off the train at Jodhpur. I found a hotel close to the train station. The name was Hotel Govind, and I got a dorm bed for 150 rupees. Next morning, I woke up at 4h30 and went to the train station. There were no AC class seats available and I had to buy a general ticket (lowest class). I asked the guy if I can upgrade to a higher class, and he said I should see with train conductor. Apparently, if there are some seats available in the higher classes, you can pay to the conductor and buy it, but you need to have a lower class ticket. When the train arrived, I found the train conductor and he said there is no seat available. As I knew that asking once doesn't work in India (!), I asked him some minutes later, and he said there is! Awesome! I got myself a 3-tier AC seat, 5 times the price of the general seat (but it is everybit worth it! I still haven't forgotten the experience from Gorakpur to Varanasi!), and got in the train to get some rest!&nbsp;</div>
+<div style="text-align: justify;">
+I arrived in Ahmedabad around 4 PM, and fortunately found a locker room in the station and put my backpack there. Then I went to the ticket counter and bought a ticket for that night to Bhuj. But I was in the waiting list, and didn't make it to the confirmed list half an hour before departure, and had to reimburse it. But to my luck, there was place in the sleeper compartment, which I happily took. Next morning, I arrived in Bhuj!&nbsp;</div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+Side notes:&nbsp;</div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+- In the way to Ahmedabad, the train stopped beside a slum for some unknown reason, and after a while, a boy of 8-9 year old ran to the train and started throwing stone to the train (thankfully not the windows) with such resentment that was a shear astonishment to me! He was crying and throwing stones at the top of his strength. After some time, the train started to move and he stopped. Such a bizarre and shocking scene!&nbsp;</div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+-A peculiar thing about some Indians is that when they don't understand you, they don't say they didn't, but they start answering to another question, or they just say yes! This can be at times very frustrating. Like this guy that I asked from, if we are going to station A or B, and I showed him on the map. He answered yes, at 4 o'clock! And I repeated and repeated the question without getting any meaningful answer! Moral of the story: In India, never ask a question that the answer is yes or no! There is 100% chance of hearing back, yes!&nbsp;</div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+- Gujarat is a dry state. You can't find alcohol here, except in large hotels.</div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+- Ahmedabad is one the most polluted cities I've ever seen! And extremely hot and humid.</div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+- I am hearing from the people here that tribal women here mostly don't let you take their photos! We'll see...</div>

@@ -1,0 +1,59 @@
+# An epic day in villages around Bhuj!
+
+*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/10/epic-day-in-villages-around-bhuj.html)*.
+
+<div style="text-align: justify;">
+Bhuj is one of the calmer cities in India, although it has its own share of rickshaws and noise. The city has a charming old town which was seriously damaged in the earthquake of 2001. But now it's all restored, and you don't see much ruins, except in the old palace. Bhuj is the center of the Kutch district in northwest Gujarat, and it's a perfect base for traveling to the charming nearby villages.</div>
+<div style="text-align: justify;">
+The first day in Bhuj, I just walked around the old bazaar and chatted with locals, found a good restaurent, and went to the tourist office in Bhuj. Over there, I met with Mr. Pramod Jethi, who knows a lot about the region and has written a booklet on it (you can obtain it there). I told him that I am interested to meet village people, and he proposed a one day tour in the nearby villages by rickshaw (for 1200 INR). The tour was a good idea, because the transportation between villages is difficult, and he also could be the translator and guide. I booked a tour for the next day. I returned to the hotel I stay in (City Guest House), and over them I met Charisse, a Canadian girl, who also wanted to do the tour. She was also interested in people, so she was a perfect partner for the trip!<br />
+<br /></div>
+<div style="text-align: justify;">
+Next day, we met the driver at 9 AM, and headed for the first village. First I should explain that in Kutch, there are different tribes with different looks, traditions, dresses, and occupations. They are very distinct, and it's easy to tell them apart. The tribes are called Harijans, Ahirs, Rabaris, and Jats. The first three are Hindus, and the latter are Muslims. In this tour, we were going to see the first three tribes in their villages. Our first stop was Loriya, where we visited few houses of Harijan people. Harijans do a lot of embroidery and leather work. We visited a house, where we saw the father making leather slippers, and the mother had a lot of embroidered clothes. They were very hospitable, but they also would have liked to sell us some handcrafts. We were there to visit and had no interest in buying stuff, so we told the driver, and he quickly agreed to take us to people, rather than workshops. I started walking around the village, and I saw these two beautiful kids running towards their grandmother. I later found that they were kind of afraid from me! I tried to speak with the grandma, but quite expectedly, she didn't know a word of English. There came the rickshaw driver, and acted as the translator. She told us about her home, family, and showed us around. I took some photos of the kids, especially the one with big beautiful eyes! The grandma was more reserved, and I didn't want to bother her for photo. The Harijan women wear beautifully embroidered colorful clothes. I can't say enough about the beauty of their clothes, and that was only their everyday dress! We visited a few more houses, and in some, I was allowed to take picture of the women. The young girls were most difficult to photograph, as they were very shy.</div>
+<div class="separator" style="clear: both; text-align: center;">
+<a href="http://www.flickr.com/photos/8413680@N08/6496116269/" style="margin-left: 1em; margin-right: 1em;" title="Faces of India - 55 by Alireza202, on Flickr"><img alt="Faces of India - 55" height="512" src="http://farm8.staticflickr.com/7153/6496116269_389059aa7b_z.jpg" width="640" /></a></div>
+<div class="separator" style="clear: both; text-align: center;">
+<a href="http://www.flickr.com/photos/8413680@N08/6362323587/" style="margin-left: 1em; margin-right: 1em;" title="Faces of India - 11 by Alireza202, on Flickr"><img alt="Faces of India - 11" height="514" src="http://farm7.staticflickr.com/6057/6362323587_cd045ce8f7_z.jpg" width="640" /></a></div>
+<div style="text-align: justify;">
+We then headed to Dhori, where we met some Ahir people. The Ahir men dress all in white, and wear white turbans. Some men were sitting in the main square of the village, drinking Chai, relaxing in the shadow, and chatting together. There was this happy old man who loved to be photographed! He was 90 years old, but very lively and laughing (without teeth) all the time! The women wear colorful clothes with little embroidery, and much simpler than Harijan women. The Ahir people are mostly farmers, and their houses are more modern, sort of way, than the Harijan people.</div>
+<div class="separator" style="clear: both; text-align: center;">
+<a href="http://www.flickr.com/photos/8413680@N08/6352215037/" style="margin-left: 1em; margin-right: 1em;" title="Faces of India - 8 by Alireza202, on Flickr"><img alt="Faces of India - 8" height="640" src="http://farm7.staticflickr.com/6240/6352215037_5d6dace782_z.jpg" width="530" /></a></div>
+<div style="text-align: justify;">
+The next stop was Kotay, where we met Rabari people. Rabari people are mostly herders. The women wear black clothes with a bit of embroidery on their chest. They were also not so keen to be photographed, but the kids loved it! In the beginning, some of the girls, and as usual the most beautiful ones, shied away. But gradually them became friendlier and wanted to have their photos taken. But soon, things went out of control with the kids, and all the kids in the village knew about our presence and surrounded us, wanting to have their photos taken! This is when you should leave!<br />
+<div class="separator" style="clear: both; text-align: center;">
+<a href="http://www.flickr.com/photos/8413680@N08/6381980967/" style="margin-left: 1em; margin-right: 1em;" title="Faces of India - 18 by Alireza202, on Flickr"><img alt="Faces of India - 18" height="452" src="http://farm7.staticflickr.com/6219/6381980967_4c5828903b_z.jpg" width="640" /></a></div>
+</div>
+<div style="text-align: justify;">
+In the way, we stopped anywhere we saw some interesting thing. We saw this family traveling on camel cart, an old couple making toothbrush sticks (people use it instead of a modern toothbrush), a Rabari cattle herdsman, and we chatted with them and took their photos!</div>
+<div class="separator" style="clear: both; text-align: center;">
+<a href="http://www.flickr.com/photos/8413680@N08/6428197167/" style="margin-left: 1em; margin-right: 1em;" title="Faces of India - 32 by Alireza202, on Flickr"><img alt="Faces of India - 32" height="433" src="http://farm8.staticflickr.com/7143/6428197167_336fa5326b_z.jpg" width="640" /></a></div>
+<div style="text-align: justify;">
+The next village was called Loday. Over there we met this Muslim family, who were doing pottery and were very hospitable. They had a girl called Rashidah who was around 10 years old. She was so sweet and photogenic, and of course a bit shy! We chatted with them for a while, and watched the pottery making process. Outside, all the kids were playing, and upon seeing us, they all gathered around us and started giggling and jumping around! They even taught Charisse how to play some kind of girlish game.<br />
+<div class="separator" style="clear: both; text-align: center;">
+<a href="http://www.flickr.com/photos/8413680@N08/6474572183/" style="margin-left: 1em; margin-right: 1em;" title="Faces of India - 48 by Alireza202, on Flickr"><img alt="Faces of India - 48" height="640" src="http://farm8.staticflickr.com/7024/6474572183_3ff911bb1c_z.jpg" width="609" /></a></div>
+</div>
+<div style="text-align: justify;">
+The last village we visited was called Habai. There was a colorful temple over there, with a spring of water beside it, where women collected water from. As soon as we arrived there, we were invited in a house. They greeted us warmly and we started talking. The father of the family was incredibly energetic and hospitable. He was a priest in the nearby temple, and a Brahman of Goswami caste. The interesting fact about this caste is that when they die, they are not burned, but buried in a sitting-and-thinking condition in the ground. Anyways, they offered us food, drink, chai, everingthing, but we politely refused. The father then asked the kids to play Gujarati music for us! We took a lot of pictures together, all friendly and nice. They asked us to send the prints to them by mail (it happens a lot here), and even offered us money for that (!!!) which we did not accept. They were insanely hospitable!</div>
+<div class="separator" style="clear: both; text-align: center;">
+<a href="http://www.flickr.com/photos/8413680@N08/6539830555/" style="margin-left: 1em; margin-right: 1em;" title="Faces of India - 71 by Alireza202, on Flickr"><img alt="Faces of India - 71" height="640" src="http://farm8.staticflickr.com/7161/6539830555_4d7dcc0bc2_z.jpg" width="526" /></a></div>
+<div style="text-align: justify;">
+Once thing that fascinated me in this trip was that NONE of the people that I photographed asked me money for it! In Khuri, which was a village deep down in Rajasthan, almost all the kids and women asked for rupee for the photo (though I never paid them). But here, this didn't happen once! I believe it's because these villages have seen very few tourists, and they are not spoiled by the well-meant disastrous charities that the normal tourists give. Obviously, when the kids see that they can earn fat easy money by stretching their hands, they do it. I bet the phenomenon of begging kids that is prevalent in India nowadays is the fault of the tourists. I bet they started giving money/chocolate/whatever to the kids out of pity. I don't have any proof for this statement, but at least the absence of begging in these non-touristy villages are evidences for that.</div>
+<div style="text-align: justify;">
+We left the family as happy as we could get, thinking that we had the best day ever. But we didn't know what was waiting for us next! We got into the rickshaw and headed back to the city. The sunset was the most beautiful with a red sky and sparse clouds. But suddenly. it started to rain! It was a light drizzle and it was a cherry on the top! The smell of the earth and the beauty of the sunset was just mesmerizing. BUT, the light drizzle grew to a giant thunderstorm and a heavy downpour! Rickshaws has no doors, so I got DRENCHED to my bones! It got so cold, that I was literally shivering! Unbelievable! The monsoon is way over, and it highly unlikely and bizarre to get such a heavy downpour at this time of the year in Gujarat. Anyways, this was an epic end to an epic day!</div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+Side notes:</div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+- I had an awesome and unforgettable day. I do not regret the detour and not making it to Goa!</div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+- The first day in Bhuj, I went around to find a wifi internet connection, but couldn't find any. I ended up going to the "Hospital Road", where I could find wifi outside a jewellery for free and inside a cybercafe. This is just for the record, as I couldn't find any information of wifi access in Bhuj in google!</div>
+<div style="text-align: justify;">
+<br /></div>
+<div style="text-align: justify;">
+- Indian government loves paper-work! To use internet in cybercafes, one should fill in a form or two and give a copy of his passport (or let it be scanned)! For calling abroad, you have to fill in a form and write down the number you dialed! In hotels, you should fill in two forms with identical information, and give in your passport for making a copy! You need a few copies of your passport everyday!</div>
