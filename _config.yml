@@ -24,6 +24,7 @@ custom_css: assets/css/style.css
 rss: rss
 
 kramdown:
+  math_engine: none
   syntax_highlighter_opts:
     disable: true
     
