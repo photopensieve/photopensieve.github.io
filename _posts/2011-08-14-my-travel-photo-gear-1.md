@@ -11,6 +11,4 @@ I'm not sure if I want to take all of my lenses with me though, because of the w
 
 Another change in my kit might be the camera. I love 5D and it's such a great camera despite the fact that the technology is almost 6 years old, and 6 years in digital photography is like 30 years in car industry! The only issue is that "my camera" backfocuses a little bit, and this can be a great deal when I use large apertures. When I focus on the eye, for instance, it often focuses on the sideburns, and this is highly problematic with lenses like 135mm f2.0 or 85mm f1.8. If I want to repair that, it will cost me a couple of hundreds of bucks. So instead, I might upgrade to a 5D mark II. I also get higher megapixel (21MP vs 13MP), and sensor cleaning which is essential in dusty streets of India. But on the other hand, it's not exactly cheap, and it won't be long before the next version of 5D comes out, and the price of the camera falls drastically. But heck, if I need the camera now, I need it now, not in 6 months.
 
-I'll write a [follow-up post](http://photopensieve.blogspot.com/2011/08/my-travel-photo-gear-2.html) when I finalize my photo gear, and I'll go more into details of my camera bag, my tripod, and extra accessories.
-
-![The Trinity](http://farm6.static.flickr.com/5219/5533063386_01f80e5f35.jpg)
+I'll write a [follow-up post](https://photopensieve.github.io/2011/08/23/my-travel-photo-gear-2.html) when I finalize my photo gear, and I'll go more into details of my camera bag, my tripod, and extra accessories.
