@@ -199,6 +199,5 @@ Surprisingly, just a few things come to mind, and even those were minor anyways:
 
 * Bus attendants in Greece who were sometimes a bit too curt and aggressive
 * A few of our stays like the ones in Taipei, Raiatea, and Hambourg
-* Our tense flight connection from Taipei to Siem Reap with Vietjet.
-
+* Our tense flight connection from Taipei to Siem Reap with Vietjet
 This trip was our dream for the longest time, and we are enormously fortunate and proud to finally make it happen. **You live once, and only once, so if you have a dream, chase it!** You won’t regret it.
