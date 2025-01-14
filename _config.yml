@@ -42,7 +42,3 @@ defaults:
       type: post
     values:
       tags: Other
-
-header_pages:
-  - archive.md
-  - search.html
