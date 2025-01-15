@@ -42,12 +42,16 @@ layout: default
           or first_image contains '.gif' 
           or first_image contains '.webp' 
           or first_image contains 'googleusercontent.com' %}
-            <img src="{{ first_image }}" alt="{{ post.title }}" class="post-preview-image">
+            <a href="{{ post.url }}">
+              <img src="{{ first_image }}" alt="{{ post.title }}" class="post-preview-image">
+            </a>
             {% assign image_found = true %}
           {% endif %}
           
           {% unless image_found %}
-            <img src="{{ first_html_image }}" alt="{{ post.title }}" class="post-preview-image">
+            <a href="{{ post.url }}">
+              <img src="{{ first_html_image }}" alt="{{ post.title }}" class="post-preview-image">
+            </a>
           {% endunless %}
         </div>
         <div class="post-title">
