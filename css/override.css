@@ -60,10 +60,15 @@ hr {
   margin-right: auto;
 }
 
+.post-content {
+  text-align: justify;
+}
+
 .intro {
   margin-bottom: 2rem;
   font-size: 1.1rem;
   line-height: 1.6;
+  text-align: justify;
 }
 
 .posts h2 {
@@ -73,6 +78,11 @@ hr {
 
 .post {
   margin-bottom: 1.5rem;
+  text-align: justify;
+}
+
+.posts {
+  text-align: justify;
 }
 
 .pagination {
