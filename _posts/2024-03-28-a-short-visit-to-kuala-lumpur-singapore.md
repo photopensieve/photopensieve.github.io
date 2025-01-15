@@ -47,10 +47,6 @@ One of the top attractions in KL is Batu Caves, which is a short Grab ride from 
 * For authentic Chinese and Indian cuisine, you can head to Chinatown and Little India neighborhoods.
 * Most Malaysians speak good English, so we had no issue communicating.
 * We didn’t need cash much, except for street food. Most places accept credit cards.
-* As I said, Singapore is very expensive, so make sure you budget accordingly. The hotel rooms are pretty small too, and we had a hard time finding a place that would work for us with a toddler.
-* You can pay almost everywhere with a card, except in some hawker stations, where they serve street food.
-* Singapore’s weather is much like Malaysia, so it is always hot and humid, and often rains in the afternoons.
-* Like Malaysia, they drive on the left side, and use the UK-type power outlets, so do bring an adaptor.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkUsVIN9bZgHCoeAkuGYAmKLg8M3b-uKEKewLYpfgIjVTd1y_Jv4HchXTEO_OnpcmJ7wZN-ABOX6NAe3uYE56Yr6ck_Y04AOU5KZesko-EwspxNXjxL1PWa10DpTy7omiTbTQvc3x3sMgIo836aj2WExbc3NrM3slq86WEwT_pu40ZkqUum18gUawpHzYf/w640-h426/DSC02127.jpeg)
 
