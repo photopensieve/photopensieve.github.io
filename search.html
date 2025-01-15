@@ -71,8 +71,35 @@ input[type="submit"] {
 <script src="/js/search.js"></script>
 <script>
 (function() {
+  function getSearchContext(content, searchTerm, contextLength = 50) {
+    const lowerContent = content.toLowerCase();
+    const lowerSearchTerm = searchTerm.toLowerCase();
+    const index = lowerContent.indexOf(lowerSearchTerm);
+    
+    if (index === -1) return content.substring(0, 100) + '...';
+    
+    const start = Math.max(0, index - contextLength);
+    const end = Math.min(content.length, index + searchTerm.length + contextLength);
+    
+    let excerpt = content.substring(start, end);
+    if (start > 0) excerpt = '...' + excerpt;
+    if (end < content.length) excerpt += '...';
+    
+    // Highlight the search term
+    const termIndex = excerpt.toLowerCase().indexOf(searchTerm.toLowerCase());
+    if (termIndex !== -1) {
+      excerpt = 
+        excerpt.substring(0, termIndex) +
+        '<strong>' + excerpt.substring(termIndex, termIndex + searchTerm.length) + '</strong>' +
+        excerpt.substring(termIndex + searchTerm.length);
+    }
+    
+    return excerpt;
+  }
+
   function displaySearchResults(results, store) {
     const searchResults = document.getElementById('search-results');
+    const searchTerm = getQueryVariable('query');
     
     if (results.length) {
       let appendString = '';
@@ -81,7 +108,7 @@ input[type="submit"] {
         let item = store[results[i].ref];
         appendString += '<li><a href="' + item.url + '">';
         appendString += '<h3>' + item.title + '</h3>';
-        appendString += '<p>' + item.content.substring(0, 150) + '...</p>';
+        appendString += '<p>' + getSearchContext(item.content, searchTerm) + '</p>';
         appendString += '</a></li>';
       }
 
