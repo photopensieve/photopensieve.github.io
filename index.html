@@ -4,7 +4,7 @@ layout: default
 
 <div class="intro">
   <p>
-    Welcome to PhotoPensieve, a blog where I capture my travel experiences, with a focus on photography and history of the places I visit. 
+    Welcome to PhotoPensieve, a blog where I capture my travel experiences, with a focus on photography and the history of the places I visit. 
     The name “PhotoPensieve” is inspired by the magical Pensieve from Harry Potter—a device used to store and revisit 
     memories. Similarly, this space serves as my personal repository for cherished moments, captured through my lens 
     and enriched by the tales of my journeys around the globe.
@@ -26,27 +26,28 @@ layout: default
           {% assign image_found = false %}
           {% assign content = post.content | downcase %}
           
-          {% if content contains '![' and content contains '](' %}
-            {% assign markdown_parts = post.content | split: '![' %}
-            {% assign first_image = markdown_parts[1] | split: '](' | last | split: ')' | first %}
-            {% if first_image contains '.jpg' or first_image contains '.jpeg' or 
-                  first_image contains '.png' or first_image contains '.gif' or 
-                  first_image contains '.webp' or first_image contains 'googleusercontent.com' %}
-              <img src="{{ first_image }}" alt="{{ post.title }}" class="post-preview-image">
-              {% assign image_found = true %}
+          {% capture image_url %}
+            {% if content contains '![' and content contains '](' %}
+              {% assign markdown_parts = post.content | split: '![' %}
+              {% assign first_image = markdown_parts[1] | split: '](' | last | split: ')' | first %}
+            {% elsif content contains '<img' %}
+              {% assign html_parts = post.content | split: '<img' %}
+              {% assign first_html_image = html_parts[1] | split: 'src="' | last | split: '"' | first %}
             {% endif %}
+          {% endcapture %}
+          
+          {% if first_image contains '.jpg' 
+          or first_image contains '.jpeg' 
+          or first_image contains '.png' 
+          or first_image contains '.gif' 
+          or first_image contains '.webp' 
+          or first_image contains 'googleusercontent.com' %}
+            <img src="{{ first_image }}" alt="{{ post.title }}" class="post-preview-image">
+            {% assign image_found = true %}
           {% endif %}
           
           {% unless image_found %}
-            {% if content contains '<img' and content contains 'src=' %}
-              {% assign html_parts = post.content | split: '<img' %}
-              {% assign first_html_image = html_parts[1] | split: 'src="' | last | split: '"' | first %}
-              {% if first_html_image contains '.jpg' or first_html_image contains '.jpeg' or 
-                    first_html_image contains '.png' or first_html_image contains '.gif' or 
-                    first_html_image contains '.webp' or first_html_image contains 'googleusercontent.com' %}
-                <img src="{{ first_html_image }}" alt="{{ post.title }}" class="post-preview-image">
-              {% endif %}
-            {% endif %}
+            <img src="{{ first_html_image }}" alt="{{ post.title }}" class="post-preview-image">
           {% endunless %}
         </div>
         <div class="post-title">
@@ -67,6 +68,7 @@ layout: default
 </div>
 
 <style>
+/* General post layout */
 .post {
   margin-bottom: 2rem;
 }
@@ -108,6 +110,7 @@ layout: default
   text-decoration: underline;
 }
 
+/* Responsive design */
 @media (max-width: 768px) {
   .post-grid {
     flex-direction: column;
