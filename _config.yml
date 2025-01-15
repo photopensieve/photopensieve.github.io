@@ -42,3 +42,6 @@ defaults:
       type: post
     values:
       tags: Other
+
+paginate: 10 # Number of posts per page
+paginate_path: "/page:num" # Path for paginated pages
