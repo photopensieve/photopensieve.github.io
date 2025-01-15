@@ -21,6 +21,10 @@ github_username: "PhotoPensieve"
 theme: "minima"
 custom_css: assets/css/style.css
 
+exclude_from_search_engines: false
+plugins:
+  - jekyll-sitemap
+
 rss: rss
 
 kramdown:
