@@ -28,7 +28,7 @@
   position: relative;
   z-index: 2;
   display: flex;
-  align-items: flex-end; /* Aligns content to the bottom */
+  align-items: flex-end;
   height: 100%;
 }
 
@@ -41,7 +41,7 @@
   padding: 0;
   text-align: center;
   cursor: pointer;
-  margin-top: auto; /* Pushes the icon to the bottom */
+  margin-top: auto;
 }
 
 .site-nav .trigger {
@@ -49,13 +49,10 @@
   top: 100%;
   right: 0;
   display: none;
-  background-color: #fdfdfd;
-  border: 1px solid #e8e8e8;
-  border-radius: 5px;
-  text-align: right;
-  padding: 5px 10px;
-  min-width: 160px;
-  margin-top: 5px;
+  text-align: center;     /* Center the text */
+  background-color: #fff; /* Add background for visibility */
+  min-width: 160px;       /* Ensure enough width for menu items */
+  padding: 10px 0;        /* Add vertical padding */
 }
 
 .site-nav .nav-trigger {
@@ -68,11 +65,9 @@
 }
 
 .site-nav .page-link {
-  color: #111;
-  line-height: 1.5;
-  display: block;
-  padding: 5px 10px;
-  margin-left: 20px;
+  display: block;         /* Make links full width */
+  padding: 8px 0;        /* Add padding around links */
+  width: 100%;           /* Full width for clickable area */
 }
 
 .site-nav .page-link:hover {
