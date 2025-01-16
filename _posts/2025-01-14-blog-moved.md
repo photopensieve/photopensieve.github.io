@@ -12,6 +12,8 @@ For the blog itself, I used a [GitHub Pages template](https://chadbaldwin.net/20
 
 That said, this solution isn’t for everyone. If you’re not familiar with coding, the learning curve can be steep. Managing your blog involves maintaining a GitHub repository, where every change feels like a small coding project. Customization requires basic knowledge of HTML, CSS, and JavaScript. However, modern tools like LLMs make these tasks far less daunting, providing guidance and generating code snippets when needed. For example, I managed to add search capability to my blog, and changed its layout considerably using Claude and ChatGPT.
 
+You might wonder how you can blog when traveling without a laptop. This is actually not a problem because you can modify or creat new files/posts on GitHub website using your phone or tablet, and then commit the changes. You can also upload your photos to a folder in the repo, and use them in the posts.
+
 For me, the move to GitHub Pages was worth it. My blog now reflects my vision, runs fast and smoothly, and feels more future-proof. If you’re comfortable with a bit of coding and want full control over your blog, it’s an option worth considering.
 
 Creative Credits: The image in this post was generated using Meta AI, with a lot of prompt tuning to achieve the desired result.
