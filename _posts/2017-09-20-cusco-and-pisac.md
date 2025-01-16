@@ -2,10 +2,10 @@
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2017/09/cusco-and-pisac.html)*.
 
-Cusco was the capital of the Incas, and the most important city in South America in its heyday. The Spanish of course conquered it, and ransacked the temples (which were full of gold and silver), and converted the remaining of the people to Christianity. Also like all other catholic states, they built a ton of churches, like 6 of them literally side by side in the main plaza of the city!Anyhow, we arrived from Machu Picchu by train pretty late, and got a taxi to our hotel (Fahimeh is the master of haggling now!). It is close to the city center with killer views of the city. They also have laundry service, which we took advantage of. The next day, we started exploring the city, and visited a few museums. We learned some interesting facts:
+Cusco was the capital of the Incas, and the most important city in South America in its heyday. The Spanish of course conquered it, and ransacked the temples (which were full of gold and silver), and converted the remaining of the people to Christianity. Also like all other catholic states, they built a ton of churches, like 6 of them literally side by side in the main plaza of the city! Anyhow, we arrived from Machu Picchu by train pretty late, and got a taxi to our hotel (my wife is the master of haggling now!). It is close to the city center with killer views of the city. They also have laundry service, which we took advantage of. The next day, we started exploring the city, and visited a few museums. We learned some interesting facts:
 
 - Machu Picchu was actually built as a royal retreat for the Incas by the most famous and accomplished Inca, Pachacuti.
-- The first rebellion of the indigenous people against the Spanish was led by Tupac Amaru II, who was a descendent of Incan royalty (Tupac the late rapper named himself after him). He had some initial successes, but then he was captured, and the savagely tortured and killed in the main plaza of Cusco, to teach a lesson to others (I spare you the gory details). In general, Spanish conquistadores were not the good guys, to put it mildly. 
+- The first rebellion of the indigenous people against the Spanish was led by Tupac Amaru II, who was a descendent of Incan royalty (Tupac, the late rapper, named himself after him). He had some initial successes, but then he was captured, and the savagely tortured and killed in the main plaza of Cusco, to teach a lesson to others (I spare you the gory details). In general, Spanish conquistadores were not the good guys, to put it mildly. 
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMGrUq-osFRa0BzpVNIKOQ2JDim0Yh0j0OGqPMIuofsVhN8w3VbthfXqoEVc6tjhSEJfgi7qwz-2l50MJdPmZQexfkikIn75yeVR38b7dykHiIeQxNOCNtPYATQ0q-t6V0bEkJjccKcOYu/s5000/%255BUNSET%255D)
 
@@ -25,5 +25,5 @@ We're going to Pisac tomorrow, and then will be back for one last day in Cusco, 
 
 Anecdotes:
 
-- Two noises that you hear constantly at night are dogs constantly barking, and the trains honking their horns A LOT.
+- Two noises that you hear constantly at night are dogs barking, and the trains honking their horns, A LOT.
 - I thought by now we should have been acclimatized to the altitude, but since Cusco is higher than other cities that we visited (and even Machu Picchu), we still feel it, especially when walking up the steep alleys of Cusco.
