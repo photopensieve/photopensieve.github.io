@@ -77,93 +77,86 @@ I was pleasantly surprised by how capable the macro mode is (check out the butte
 
 ## ... and it has a few more handy features
 
-Snap focus: This is one of the most popular features of GR cameras, and it is great for street photography, although I still haven't got the hang of it completely. Sometimes I press the shutter button fully, but it turns out that it hadn't taken a photo.
+**Snap focus**: This is one of the most popular features of GR cameras, and it is great for street photography, although I still haven't got the hang of it completely. Sometimes I press the shutter button fully, but it turns out that it hadn't taken a photo.
 
-Highlight-weighted exposure metering: The first camera that I have seen that has this neat exposure mode which is basically "expose to the right". I always thought why camera manufacturers do not have this mode implemented, and here it is! It helps to avoid burning the highlights. I usually dial in +0.7 or +1.0 in exposure compensation though.
+**Highlight-weighted exposure metering**: The first camera that I have seen that has this neat exposure mode which is basically "expose to the right". I always thought why camera manufacturers do not have this mode implemented, and here it is! It helps to avoid burning the highlights. I usually dial in +0.7 or +1.0 in exposure compensation though.
 
-Ultra-wide angle lens adaptor: I haven’t used one, but I’ve heard good things about it. It’s nice to know there is an option.
+**Ultra-wide angle lens adaptor**: I haven’t used one, but I’ve heard good things about it. It’s nice to know there is an option.
 
-In-camera RAW converter: I had never had this feature on a camera, and I always thought of it as more of a gimmick, but now that I am using it on the GR3, I’m liking it a lot. I generally use it to choose different jpg modes on the camera before transferring the jpeg to my phone.
+**In-camera RAW converter**: I had never had this feature on a camera, and I always thought of it as more of a gimmick, but now that I am using it on the GR3, I’m liking it a lot. I generally use it to choose different jpg modes on the camera before transferring the jpeg to my phone.
 
-Wifi transfer: It is fairly easy, though not very fast, to transfer files to iPhone. I'm thinking whether it would be better to use a SD card reader for iPhone instead. It is certainly faster, but it is more hassle.
+**Wifi transfer**: It is fairly easy, though not very fast, to transfer files to iPhone. I'm thinking whether it would be better to use a SD card reader for iPhone instead. It is certainly faster, but it is more hassle.
 
-Shake reduction system: It is always nice to have, although I haven’t had a chance to test it out.
+**Shake reduction system**: It is always nice to have, although I haven’t had a chance to test it out.
 
-Touch screen: It's a first time for me, so I rarely use it. But I have no complaints about it either, so I guess I start utilizing it at some point.
+**Touch screen**: It's a first time for me, so I rarely use it. But I have no complaints about it either, so I guess I start utilizing it at some point.
 
-But it's not all bed of roses, and if you've read the reviews online, you have heard about a few of the shortcomings of this camera as well. Here is what I think about the shortcomings of GR3.
-
-
-Not weather or dust resistant
-
-This is a big let down, as the previous version was known to be prone to sucking dust on to the sensor. They've added a sensor cleaning mechanism using the shake reduction system, but I'm not sure how well it performs. It would have been nice to solve this problem once for all.
+## But it's not all bed of roses
+If you've read the reviews online, you have heard about a few of the shortcomings of this camera as well. Here is what I think about the shortcomings of GR3.
 
 
-No articulating screen
-
-I know they decided to put in a fix screen because they wanted to keep the camera light and pocketable, but still, it is sorely missed in situations like macro photography and hip shooting.
+**Not weather or dust resistant**: This is a big let down, as the previous version was known to be prone to sucking dust on to the sensor. They've added a sensor cleaning mechanism using the shake reduction system, but I'm not sure how well it performs. It would have been nice to solve this problem once for all.
 
 
-No official support in Lightroom
-
-This is a problem, since the lens has a severe vignetting, and alas, the great jpeg modes are not available either. Right now, I tend to shoot RAW, and apply the jpeg modes to the select photos in-camera. It is not an ideal solution.
+**No articulating screen**: I know they decided to put in a fix screen because they wanted to keep the camera light and pocketable, but still, it is sorely missed in situations like macro photography and hip shooting.
 
 
-Focus accuracy and speed could be better
-
-It does hunt in low light, and that is frustrating. This is a big miss on Ricoh’s side. Many other manufacturers have nailed the autofocus these days, but apparently not Ricoh.
+**No official support in Lightroom**: This is a problem, since the lens has a severe vignetting, and alas, the great jpeg modes are not available either. Right now, I tend to shoot RAW, and apply the jpeg modes to the select photos in-camera. It is not an ideal solution.
 
 
-Some customization is lacking
-
-As customizable as it is, it's still not possible to reassign the WB button (which I seldom use), or set min shutter speed using a shortcut.
+**Focus accuracy and speed could be better**: It does hunt in low light, and that is frustrating. This is a big miss on Ricoh’s side. Many other manufacturers have nailed the autofocus these days, but apparently not Ricoh.
 
 
-The body does get hot in heavy use
-
-It actually can get very hot "in high usage". I used the camera with the highest screen brightness in a hot and humid butterfly farm for an hour, and the body and the battery got very hot. I don’t notice it in normal usage, since I am used to periodically turning off the camera.
+**Some customization is lacking**: As customizable as it is, it's still not possible to reassign the WB button (which I seldom use), or set min shutter speed using a shortcut.
 
 
-Things I had liked to have, but are not there
-
-RAW conversion software: It would be very nice if you can at least apply the jpeg modes on either iOS/Android, or on PC/Mac using dedicated software.
-
-In-camera panorama: 28mm is wide, but not as wide as I like for certain situations. It would have been nice to have a built-in panorama mode.
-
-Super resolution a la Pentax K-1: Not that the resolution is not enough, but since we have a merger between Ricoh and Pentax for a few years now, and there is a shake reduction system, they could just bake in the super resolution capability. 
-
-2X telephoto converter: Would have been nice to have the option, but to be totally honest, if I have to carry two converters with me, I might as well bring my Sony kit.
+**The body does get hot in heavy use**: It actually can get very hot "in high usage". I used the camera with the highest screen brightness in a hot and humid butterfly farm for an hour, and the body and the battery got very hot. I don’t notice it in normal usage, since I am used to periodically turning off the camera.
 
 
-Things that could be better, but I personally don't care
+## Things I had liked to have, but are not there
 
-Video: I've never tried, but I've heard it's nothing to write home about.
+**RAW conversion software**: It would be very nice if you can at least apply the jpeg modes on either iOS/Android, or on PC/Mac using dedicated software.
 
-Fixed lens: Some consider the fixed lens a deal breaker, but I don't. On the other hand, I had never been fond of the 28mm focal length; I either reach for 35mm, or an ultrawide like 18mm. But I consider this a challenge to force myself to be creative and learn this focal length too. So far, no complaints. In fact, I now realize that if I had to choose only ONE focal length, it would be 28mm.
+**In-camera panorama**: 28mm is wide, but not as wide as I like for certain situations. It would have been nice to have a built-in panorama mode.
 
-Built-in EVF/OVF: There is no way to keep the size and weight of GR as is, and add an EVF, or god forbid, an OVF. So I don't care. In direct sunlight, I would have loved to have an EVF, but instead I just crank up the  screen brightness, and it does the job. 
+**Super resolution a la Pentax K-1**: Not that the resolution is not enough, but since we have a merger between Ricoh and Pentax for a few years now, and there is a shake reduction system, they could just bake in the super resolution capability. 
 
-Built-in flash: I know a lot of people bemoan the elimination of the pop-up flash, but I personally have no use for it.
+**2X telephoto converter**: Would have been nice to have the option, but to be totally honest, if I have to carry two converters with me, I might as well bring my Sony kit.
 
-Battery life: I read a lot about how horrible the battery life is, but I have to say I don't find it that bad. Yeah, if I shoot a lot, I run out of battery in a day, but I have an extra with me all the times.
 
-Ring around the lens: I've heard a lot of people saying that the ring is loose, and it comes off easily, but I haven't had this experience. But I don't take it off at all, so not sure if I had to use the adapter often, how it would become.
+## Things that could be better, but I personally don't care
+
+**Video**: I've never tried, but I've heard it's nothing to write home about.
+
+**Fixed lens**: Some consider the fixed lens a deal breaker, but I don't. On the other hand, I had never been fond of the 28mm focal length; I either reach for 35mm, or an ultrawide like 18mm. But I consider this a challenge to force myself to be creative and learn this focal length too. So far, no complaints. In fact, I now realize that if I had to choose only ONE focal length, it would be 28mm.
+
+**Built-in EVF/OVF**: There is no way to keep the size and weight of GR as is, and add an EVF, or god forbid, an OVF. So I don't care. In direct sunlight, I would have loved to have an EVF, but instead I just crank up the  screen brightness, and it does the job. 
+
+**Built-in flash**: I know a lot of people bemoan the elimination of the pop-up flash, but I personally have no use for it.
+
+**Battery life**: I read a lot about how horrible the battery life is, but I have to say I don't find it that bad. Yeah, if I shoot a lot, I run out of battery in a day, but I have an extra with me all the times.
+
+**Ring around the lens**: I've heard a lot of people saying that the ring is loose, and it comes off easily, but I haven't had this experience. But I don't take it off at all, so not sure if I had to use the adapter often, how it would become.
 
 As you can see, the pros easily outnumber the cons, and to be honest, none of the cons are deal-breakers for me anyways. So I highly recommend this camera to a like-minded photographer! Below are some photos to show how the camera performed in my recent trip.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpP0vaMXBAV-PdSxbU0M6IBON55IRbx9-yNeYokEo7T464dcuccLGARmEjRp-_S9-vS_wwEHq5EI9zxhdRohOHd0EITYhEl4CRhjnwVFcYKgLixAe5bjarXbPKwBYuotK_iPu81enYst4A/s640/R0000631.jpg)
-Using the macro capability
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg25Q2SdBejYNCxx-WvHT57SA67cqeadjsfNxuv3HSX5Q-qTM2ERQaKVKq8bR2DpTGh1KiNdBGME0QRLT9rGUZMWLvF6caYMf838AlPjqamjvdFtys-gQ2z3QO4wvEnjualB4b4I1sUhZTz/s400/Screen+Shot+2020-01-03+at+5.12.40+PM.png)
-100% crop from the image above
+| ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpP0vaMXBAV-PdSxbU0M6IBON55IRbx9-yNeYokEo7T464dcuccLGARmEjRp-_S9-vS_wwEHq5EI9zxhdRohOHd0EITYhEl4CRhjnwVFcYKgLixAe5bjarXbPKwBYuotK_iPu81enYst4A/s640/R0000631.jpg) |
+|:--:| 
+| *Using the macro capability* |
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjGd6rF5Y6bKCyQ6M1fa7UUfIpHtdb5QynTcHEkmemhfTgjl9wPKR8kURLrzrK5nDfjLA-Lrovof4_EGEt99zC5m54chdr_QnPQrWRpI64G-mSqzZ_tO7a3uaTNTkwb3bOrOmDAgRG-fFF8/s640/R0000744.jpg)
-Lovely colors using the vivid mode
+| ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg25Q2SdBejYNCxx-WvHT57SA67cqeadjsfNxuv3HSX5Q-qTM2ERQaKVKq8bR2DpTGh1KiNdBGME0QRLT9rGUZMWLvF6caYMf838AlPjqamjvdFtys-gQ2z3QO4wvEnjualB4b4I1sUhZTz/s400/Screen+Shot+2020-01-03+at+5.12.40+PM.png) |
+|:--:| 
+| 100% crop from the image above |
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-TdibrLgwWgqOMyeYyTO7_JITh6sLKeCN9K0-SbteMRgrWYwLUh_Xa6wv2WiJ1NM76rTZdP-aQkfn2gZzPSAI1Drzq-vTX-4DLHwkKhXjZJPobH98mSfuHWbHQWv6H2qSRX0IiOq-wo_r/s640/R0000493.jpg)
-Hard BW mode
+| ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjGd6rF5Y6bKCyQ6M1fa7UUfIpHtdb5QynTcHEkmemhfTgjl9wPKR8kURLrzrK5nDfjLA-Lrovof4_EGEt99zC5m54chdr_QnPQrWRpI64G-mSqzZ_tO7a3uaTNTkwb3bOrOmDAgRG-fFF8/s640/R0000744.jpg) |
+|:--:| 
+| Lovely colors using the vivid mode |
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhTZRiIjIuZYsSKxFNMgWQGYmoYP6QyZeAPU7aRzsyQPa_flyBvonftihEUAPq9wdz-K1XMccuJXisal1a_5KR7Pa_fdM_vHp3GQSocEYenVA6AAp9Ln7sZAqnph6n19RD7QS5rMt5pDCAV/s640/R0000597.jpg)
-Great colors using the vivid mode
+| ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-TdibrLgwWgqOMyeYyTO7_JITh6sLKeCN9K0-SbteMRgrWYwLUh_Xa6wv2WiJ1NM76rTZdP-aQkfn2gZzPSAI1Drzq-vTX-4DLHwkKhXjZJPobH98mSfuHWbHQWv6H2qSRX0IiOq-wo_r/s640/R0000493.jpg) |
+|:--:| 
+| Hard BW mode |
 
-Feel free to follow me on Instagram as @alireza202.
+| ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhTZRiIjIuZYsSKxFNMgWQGYmoYP6QyZeAPU7aRzsyQPa_flyBvonftihEUAPq9wdz-K1XMccuJXisal1a_5KR7Pa_fdM_vHp3GQSocEYenVA6AAp9Ln7sZAqnph6n19RD7QS5rMt5pDCAV/s640/R0000597.jpg)| 
+|:--:| 
+| Great colors using the vivid mode |
