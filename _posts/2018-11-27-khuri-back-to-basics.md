@@ -22,7 +22,7 @@ I saw some other tourists getting off their cars, snapping a few photos from a d
 
 The struggle for water is very real in Khuri, and in Rajasthan, in general. Women have to walk hundreds of meters per day, multiple times, to get murky salty water to bring home for their needs. Most consume it as it is, and some boil and filter beforehand. Badal's house had a big tank that would be filled once every couple of weeks or so, so it was easier for them, but still, then didn't have hot shower. We had to use the old bucket and bowl technique to mix heated and cold water to wash up. Another point for going back to basics. 
 
-After a few days of "shanti" in Khuri, we left for Jaisalmer, where we are staying for a night, and then flying to Jaipur. Our trip to India is drawing to an end soon. 
+After a few days of "shanti" in Khuri, we left for Jaisalmer, where we are staying for a night, and then flying to Jaipur. We finished the trip by visiting Agra and Taj Mahal, and then back to Delhi, and flew back home.
 
 ## Notes
 - Sleeping at night is no easy feat: There are constant honkings late into the night, and then there are the dogs who start squabbling with their loud barks and howls, and if you are unlucky, and it's during one of the many holidays, there are the the fireworks and firecrackers, of course! Earplugs are your best friends.
