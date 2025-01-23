@@ -1,6 +1,6 @@
 # Ancient Egypt - Geography and Kingdoms
 
-![](/img/Egypt_map.jpg)
+![](/img/egypt-map.jpg)
 
 Before traveling to a new country, I usually research its geography and history to better understand the context of the place I’m visiting. This helps me write a few paragraphs about its history in my blog posts. However, as I’ve been learning about Ancient Egypt, it’s clear that its rich and complex history can’t be condensed into just a few paragraphs.
 
