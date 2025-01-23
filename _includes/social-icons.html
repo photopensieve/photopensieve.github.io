@@ -1,0 +1,8 @@
+{% if include.platform == "instagram" %}
+  <a rel="me" href="https://instagram.com/{{ include.user }}" target="_blank">
+    <svg class="svg-icon instagram">
+      <use xlink:href="{{ '/assets/minima-social-icons.svg#instagram' | relative_url }}"></use>
+    </svg>
+    <span class="username">{{ include.user }}</span>
+  </a>
+{% endif %}
