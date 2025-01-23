@@ -6,11 +6,11 @@ description: "A personal blog for travel and photography." # This will show up i
 # All of these are optional and can be removed or commented out
 # email: "example@mail.com"
 # twitter_username: "twitteruser"
-github_username: "PhotoPensieve"
+# github_username: "PhotoPensieve"
 # linkedin_username: "linkedinuser"
 #facebook_username: username
 #flickr_username: username
-#instagram_username: username
+instagram_username: "photopensieve"
 #pinterest_username: username
 #youtube_username: username
 #googleplus_username: +username
@@ -49,3 +49,7 @@ defaults:
 
 paginate: 10 # Number of posts per page
 paginate_path: "/page:num" # Path for paginated pages
+
+minima:
+  social_links:
+    instagram: photopensieve
