@@ -92,7 +92,7 @@ This structured social system, deeply rooted in religion and tradition, allowed 
 - **Wigs and Cosmetics:** Both men and women in Ancient Egypt wore wigs and makeup. Eyeliner was not only decorative but also protected their eyes from the sun’s glare and infections.
 - **Beer Brewing:** Beer was a staple in the Egyptian diet, consumed by all social classes. It was often made at home and even used as a form of currency.
 
-In the next post, I will focus entirely on the Ancient Egyptians’ remarkable emphasis on the afterlife and how it has greatly contributed to our understanding of Ancient Egypt today.
+In the [next post](https://photopensieve.github.io/2025/01/23/egypt-history-part2.html), I will focus entirely on the Ancient Egyptians’ remarkable emphasis on the afterlife and how it has greatly contributed to our understanding of Ancient Egypt today.
 
 ## FAQ
 
@@ -109,4 +109,6 @@ I can think of multiple reasons for that:
 7. Perhaps seeing the masterpieces of their predecessors inspired them to strive for similar remembrance—though this is just a hypothesis.
 
 ### How were the hieroglyphs decoded?
-TBD
+The discovery of the Rosetta Stone in 1799, now in the British Museum, was key to decoding Egyptian hieroglyphs. The stone featured the same text in Greek, Demotic, and hieroglyphs. French scholar Jean-François Champollion deciphered the hieroglyphs in the 1820s by comparing the Greek text with the hieroglyphs, identifying their phonetic values. His work showed that hieroglyphs combined phonetic sounds, ideograms, and determinatives, unlocking insights into ancient Egyptian culture and history.
+
+Champollion’s knowledge of Coptic, a language descended from ancient Egyptian, was vital to his success. Spoken by Egypt’s Christian population, Coptic preserved elements of the ancient language. Using Coptic, Champollion identified the meanings of hieroglyphic symbols, bridging the ancient and modern worlds and advancing the understanding of Egyptian civilization.
