@@ -92,7 +92,7 @@ This structured social system, deeply rooted in religion and tradition, allowed 
 - **Wigs and Cosmetics:** Both men and women in Ancient Egypt wore wigs and makeup. Eyeliner was not only decorative but also protected their eyes from the sun’s glare and infections.
 - **Beer Brewing:** Beer was a staple in the Egyptian diet, consumed by all social classes. It was often made at home and even used as a form of currency.
 
-In the [next post](https://photopensieve.github.io/2025/01/23/egypt-history-part2.html), I will focus entirely on the Ancient Egyptians’ remarkable emphasis on the afterlife and how it has greatly contributed to our understanding of Ancient Egypt today.
+In the [next post](https://photopensieve.github.io/2025/01/24/egypt-history-part2.html), I will focus entirely on the Ancient Egyptians’ remarkable emphasis on the afterlife and how it has greatly contributed to our understanding of Ancient Egypt today.
 
 ## FAQ
 
