@@ -63,11 +63,13 @@ The **Pyramids of Giza**, built during the Fourth Dynasty, are the pinnacle of a
 
 Tragically, much of the limestone casing was removed during the Middle Ages due to earthquakes and repurposed for other construction projects.
 
-### A Herculean Effort
+### A Herculean Effort to Build the Pyramids
 
-The construction of these massive pyramids required immense resources and manpower. Contrary to popular belief, modern historians suggest that the pyramids were not built by slaves but by a workforce of skilled laborers. These workers, likely conscripted from across Egypt, were provided with food, housing, and medical care. The immense scale and speed of pyramid construction—spanning just four generations of kings—are a testament to the organizational capabilities of the Old Kingdom.
+The construction of these massive pyramids required immense resources and manpower. Contrary to popular belief, modern historians suggest that the pyramids were not built by slaves but by a workforce of skilled laborers. These workers, likely tens of thousands of them, were conscripted from across Egypt, and provided with food, housing, and medical care. The immense scale and speed of pyramid construction—spanning just four generations of kings—are a testament to the organizational capabilities of the Old Kingdom.
 
-However, building such monumental structures placed a significant strain on Egyptian society, consuming resources that may have contributed to the eventual decline of the Old Kingdom.
+For example, the Great Pyramid of Khufu - the largest pyramid in Egypt - is estimated to contain over 2 million stone blocks, each weighing an average of 2.5 tons, with some granite blocks reaching up to 80 tons. Built over approximately 20–27 years, this means one block was placed every few minutes — a truly astonishing feat. At the time, the wheel had not been adopted in Egypt, so workers moved stones on sleds, lubricating the sand with water to reduce friction. Most of the limestone was quarried locally at Giza, while the granite came from Aswan, about 800 km away, transported via the Nile.
+
+The exact methods used to lift and position the stones remain uncertain, but ramps are considered the most plausible solution, with theories ranging from straight to spiral designs. This incredible achievement, completed over 4,500 years ago, showcases the ingenuity and skill of ancient Egyptian builders. It’s no surprise that such a monumental task has inspired wild theories, but archaeological evidence points to remarkable engineering, resource management, and human labor as the true sources of this wonder.
 
 ### The Pyramids as Symbols and Targets
 
