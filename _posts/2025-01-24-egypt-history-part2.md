@@ -125,3 +125,15 @@ For the less affluent, simpler methods were employed. These included natural pre
 - **State-Sanctioned Looting**: During periods of political instability, there is evidence that officials themselves participated in or sanctioned the looting of tombs, redistributing wealth to fund state activities or pay workers.
 
 This concludes my exploration of Ancient Egypt’s history. Naturally, Egypt boasts another 2,000 years of fascinating history beyond what I’ve covered here. While I’m not as familiar with this later period yet, I might dive into it in future travel blog posts. Our trip to Egypt is just around the corner, and we couldn’t be more excited!
+
+## FAQ
+### What's inside the pyramids?
+The interiors of the Pyramids of Giza are almost entirely constructed of stone, with only a few relatively simple and functional corridors and chambers. These spaces were primarily designed to safeguard the pharaoh’s remains and facilitate their journey to the afterlife. The Great Pyramid of Khufu is the most intricate, containing a series of chambers and passageways, such as the King’s Chamber, which houses a granite sarcophagus, the Queen’s Chamber, whose purpose remains unclear, and the subterranean chamber carved into the bedrock. It also features the Grand Gallery, a steeply inclined corridor leading to the upper chambers, and narrow air shafts that may have served symbolic or practical purposes.
+
+Despite their purpose as tombs, no mummies or treasures remain inside the pyramids today. They were looted in antiquity, with valuables and burial goods stolen long before modern archaeologists arrived. The pyramids now appear bare, and their interiors primarily showcase architectural ingenuity rather than artifacts or decorations. These losses, however, do not diminish their historical and cultural significance as symbols of ancient Egypt’s power and belief in the afterlife.
+
+### Why did they stop building pyramids?
+The ancient Egyptians stopped building pyramids due to the high costs, resource demands, and difficulty in mobilizing labor for such large projects. Pyramids also became easy targets for looters, prompting a shift to hidden, rock-cut tombs like those in the Valley of the Kings in Luxor, which offered better protection. Additionally, evolving religious practices and political changes reduced the emphasis on pyramids as symbols of power, with temples and mortuary complexes becoming the preferred way to honor the pharaohs and their connection to the divine.
+
+### What did Ancient Egyptians in later periods think about the Pyramids of Giza?
+By the New Kingdom, the Pyramids of Giza were viewed as symbols of a distant, glorious past, associated with divine power and the achievements of the Old Kingdom. They were revered as sacred sites where kings united with the gods, and offerings were still made nearby. Pharaohs invoked the Pyramids to legitimize their rule, reflecting their ongoing spiritual significance. However, by the Late Period, they were also seen as practical sources of building materials, with some casing stones repurposed for other projects, showing a blend of reverence and utilitarianism.
