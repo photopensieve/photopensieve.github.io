@@ -107,3 +107,6 @@ I can think of multiple reasons for that:
 5. Many of their temples were buried under the sand, and the tombs though were mostly robbed, they were under the ground, so many of their artifacts survived.
 6. Egyptians loved to write! They carved on stones, and wrote on papyrus, which was also unique to them.
 7. Perhaps seeing the masterpieces of their predecessors inspired them to strive for similar remembrance—though this is just a hypothesis.
+
+### How were the hieroglyphs decoded?
+TBD
