@@ -18,7 +18,7 @@ The Nile’s utility went far beyond agriculture. It served as a natural highway
 
 ## History of Ancient Egyptian Kingdoms
 
-Many empires would consider themselves lucky to last through the reins of 31 kings but ancient Egypt would see the reign of 31 “dynasties of kings”, lasting for more than 3000 years. Ancient Egypt history is typically split into three sets of dynasties: Old, Middle and New Kingdoms, and the late period, spanning from around 3000 BC to 30 BC, when Romans annexed Egypt
+Many empires would consider themselves lucky to last through the reins of 31 kings but ancient Egypt would see the reign of 31 “dynasties of kings”, lasting for more than 3000 years. Ancient Egypt history is typically split into three sets of dynasties: Old, Middle and New Kingdoms, and the late period, spanning from around 3000 BC to 30 BC, when Romans annexed Egypt. There were a few "intermediate periods" that were rife with instabilities, which I will not cover here.
 
 The **Old Kingdom** (circa 2686–2181 BCE), often referred to as the “**Age of Pyramids**,” saw the construction of monumental architecture that continues to captivate the world. Pharaohs such as Djoser and Khufu oversaw the building of the Step Pyramid at Saqqara and the Great Pyramid of Giza, respectively. These grand structures were more than tombs; they symbolized the divine power of the pharaoh and the sophistication of Egyptian society. This era also marked significant advancements in art, engineering, and administrative systems.
 
