@@ -81,6 +81,7 @@ This structured social system, deeply rooted in religion and tradition, allowed 
 ## Interesting facts about Ancient Egypt
 
 - **Pyramids are so old**: Julius Caesar lived closer to our time than the Pyramids of Giza were to his. Let that sink in!
+- **Lower and Upper Egypt**: Confusingly for us, Ancient Egyptians referred to the area below the Nile delta as Upper Egypt, and the delta region as Lower Egypt, because Nile flows south to North. 
 - **East vs. West Bank of the Nile**: Most cities in Ancient Egypt were built on the east bank of the Nile, as it symbolized life and rebirth due to the rising sun. In contrast, the west bank was reserved for burials, as the setting sun represented the realm of the dead.
 - **Adoration of cats:** Egyptians love of cats likely began because cats helped protect food stores by hunting mice and rats, a critical role in their highly agricultural society. Cats were so revered that harming one, even accidentally, was considered a grave offense.
 - **Hieroglyphs:** The Egyptian writing system included over 700 symbols and was often used in tombs and temples to ensure the deceased’s safe passage to the afterlife.
