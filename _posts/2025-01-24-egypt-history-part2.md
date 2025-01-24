@@ -1,4 +1,4 @@
-# Ancient Egypt - The Afterlife
+# Ancient Egypt - Tombs, Mummies, and the Journey to Eternity
 
 ![](/img/book-of-the-dead.jpeg)
 
