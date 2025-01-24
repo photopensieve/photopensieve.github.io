@@ -1,4 +1,4 @@
-# Ancient Egypt - Geography and Kingdoms
+# Ancient Egypt - The Nile and the Land of Pharaohs
 
 ![](/img/egypt-map.jpg)
 
