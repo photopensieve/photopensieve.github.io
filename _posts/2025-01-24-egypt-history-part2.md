@@ -2,6 +2,8 @@
 
 ![](/img/book-of-the-dead.jpeg)
 
+_In the [previous post](https://photopensieve.github.io/2025/01/23/egypt-history-part1.html), I gave a general introduction to the history of Egypt. In this post, I will focus on the "afterlife" beliefs, and traditions in Egypt._
+
 In Ancient Egypt, life was only half of the story. Death was not the end—it was a passage to a whole new existence. Everything they did, from mummification to the grand tombs in the desert sands, was designed to prepare for an afterlife they believed would last forever. This belief shaped their culture and left us with some of the most fascinating burial rites in human history.
 
 Unlike many other cultures, where tombs were constructed after death, Egyptians began building their tombs during their lifetime, driven by their deep belief in the afterlife. Pharaohs typically initiated construction of their tombs at the start of their reign, recognizing that these monumental projects required significant time and resources. Completing the tomb before their death was essential, as it was believed to secure their journey to the afterlife. 
