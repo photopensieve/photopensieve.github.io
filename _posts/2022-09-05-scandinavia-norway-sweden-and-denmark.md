@@ -25,6 +25,7 @@ The ferry to Stavanger was probably the best mode of transportation we experienc
 ![](https://lh6.googleusercontent.com/LSMvt0rX9-Zyie-TlWOAN0gnE0BP7TM1MqxrJsDMiJ3w6hjvYALDlEo90BZ2shhsq5w)
 
 ![](https://lh3.googleusercontent.com/Tarhe0kbRxR6vhfki8_B30Bm7PcYpYbQ2IT5ONBbg0Z-S8VplE3IJmugEt2rJ8Z-DVo)
+
 Stavanger is another southwestern Norwegian city in the fjord country, with a compact old town, and great possibilities for hiking. We were hoping to do Pulpit Rock hike, which is one of the most famous hikes in Norway, but after careful consideration, we decided against it. We did not have hiking gear, and segments of the hike can be dangerous in slippery conditions. Besides, I had to carry our son on my back for 6 hours or so, and I’m sure neither of us would have enjoyed it. Our son loves to run around these days, so he won’t be happy strapped and staying put for hours long. When you travel with a baby, you have to compromise.
 
 Instead, we spent our time in Stavanger walking around the city center, visiting Sverd i Fjell, which is a monument of three large swords in stones, signifying the unification of Norway in a historic battle, and visiting an iron-age farm, and the archeological museum. The iron-age farm is a reconstruction of a farmstead in Stavanger area around the period 350-550 AD. It was interesting to see how people used to live in that time, and I got to discuss the details with the in-house guide. Mind you, this is the time period well-passed the golden era of Roman Empire, and yet, the people in this region were living the most basic life. Norwegians got a late start in civilization, because for the most part, that region was uninhabitable due to weather conditions, and it took a long time for humans to grow foothold in this region. The archeological museum was a great place to learn about the history of Vikings, and how their everyday life looked like, though I was a bit disappointed that they didn’t have a Viking ship in display. More on Vikings later.
@@ -35,7 +36,9 @@ We spent our last days in Norway in Oslo, where we met up with a childhood frien
 
 ![](https://lh6.googleusercontent.com/N4axMja_5F3vMmfSp4QOv3bwarrhF10HWmdwLZnkQqIo11fLPSQN6HxgyUYzXxVPfWk)
 
-![](https://lh5.googleusercontent.com/lbI7vVp4f01-MukbaZQIl9MMQ_Xp4WTcB2zYmPPu71jtVVwPfQlZUZmnD2Y0lcfUV94)The map of explorations of Vikings in Stavanger Museum of Archeology
+![](https://lh5.googleusercontent.com/lbI7vVp4f01-MukbaZQIl9MMQ_Xp4WTcB2zYmPPu71jtVVwPfQlZUZmnD2Y0lcfUV94)
+_The map of explorations of Vikings in Stavanger Museum of Archeology_
+
 During the trip, I set out to learn more about the fascinating history of Vikings. We all seem to have an idea who Vikings were - a marauding gang of violent seamen living in modern day Scandinavia, who terrorized and pillaged Europeans for centuries during Middle Ages. There is even a show about them called Vikings, which happens to be quite entertaining. But of course that can’t be all to it. First of all, the accounts we have about Vikings are almost all written down by the victims, so you can imagine there would be mischaracterizations and exaggerations involved - though I certainly don’t want to expunge the Vikings of their crimes, but according to historians, Vikings were no more brutal than other medieval counterparts. Secondly, not all Scandinavian were Viking. Many were traders and artisans and farmers, but we don’t hear much about them. And thirdly, no, Vikings did not wear horned helmets. What is certain is that Vikings were the best shipbuilders and navigators of their times. They not only managed to sail across seas, but they also crossed the Atlantic Ocean, and landed in North America, 500 years before Columbus. They even reached as far as Northern Iran, by sailing through Volga and Caspian Sea. I was hoping to learn more about Vikings by visiting museums in Norway, but the only place that had a small collection on Vikings was the archeological museum in Stavanger.
 
 ## Thoughts on Norway
@@ -70,6 +73,7 @@ The process of planning a trip like this is pretty complicated: You need to find
 ![](https://lh6.googleusercontent.com/7-KOedIqiSmCR2ucwPe9KS7oN95fk9qrFADZbS571IJn8MQt5ASEHf-LDI07hLe5VcM)
 
 ![](https://lh5.googleusercontent.com/k1dE5mv2ZON4zp4LeyhiM4JhPelIPBhugsiufgI175E71x55Pq4cnkbUGf4Xo5ejnnA)
+
 Varberg was 50 minutes train ride south of Gothenburg, and although it was a hassle to get to and back, it was actually the first stop on our train to Copenhagen. We stayed in Varberg then, and visited Gothenburg on day trips. The highlight our visit to Gothenburg was the Natural History Museum which houses the only taxidermy blue whale in the world. The blue whale in question was hunted in waters of Sweden in the 19th century, and was a young blue whale, measuring at half the size of a fully grown blue whale. Nevertheless, it is so huge that you can literally walk inside it. Few times per year, they open the mouth, and let people go inside, and we were lucky enough to be there on one of those days! So we waited in line to climb a ladder, and go inside. The interior basically looks like a small room, large enough for around a dozen people even being able to dine in there.
 
 # Denmark
@@ -79,6 +83,7 @@ Copenhagen was around 3 hour train ride from Gothenburg, and unlike the trip fro
 ![](https://lh4.googleusercontent.com/R50TpSL569AyhkHocmlvzKOCU4MxMQye85IcMkZJqdnvcNgel50oi6DO_ZPe4jVemAI)
 
 ![](https://lh5.googleusercontent.com/s0u9ROYnpBdUEfj3LMKuN2vIdUj-ZO8Ldlu3FuSY4_bNRdft7BBnSUxwmIZaqME_wl0)
+
 During our stay, we visited Tivoli Gardens, which is the second oldest amusement park in the world. The park has been kept close to its original look, so when grandparents visit with their grandchildren, they have shared the same experiences just decades apart. The rides were nothing to write home about, though the ambiance was quite interesting. The highlight of the Copenhagen trip for us was to meet up with two of our best friends and their families. We took advantage of our limited time, and spent as much time as we could together.
 
 With this, our 4-month-long trip in Europe came to an end, and we flew back home with a short layover in Reykjavik, Iceland. Getting back home after such a long time was truly sweet, though I was a tad worried we might face a surprise there. Thankfully, all was well, and there were no surprises, despite leaving the house empty for four months. I guess our preparations before the trip paid off!
