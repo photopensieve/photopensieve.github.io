@@ -49,6 +49,8 @@ The pyramids of ancient Egypt stand as one of the most awe-inspiring achievement
 
 The pyramids were grand tombs built for Egyptian kings, particularly during the Old Kingdom period (circa 2686–2181 BCE). These monumental projects were often initiated by a king early in his reign to ensure its completion within his lifetime. Far from being mere burial sites, the pyramids symbolized the divine power of the king and his journey to the afterlife.
 
+![](/img/evolution-of-pyramids.jpg)
+
 ### From Mastabas to Pyramids
 
 Before the pyramids, Egyptians used **mastabas**, rectangular, flat-roofed structures made of mudbrick or stone, as burial sites. These one-story tombs marked the early stages of Egyptian funerary architecture.
@@ -148,5 +150,8 @@ Some people speculate that the pyramids were built by aliens (or other fantastic
 - **Modern Feasibility**: The claim that “we can’t build pyramids today” is misleading. Modern engineers could recreate the pyramids, but the effort, cost, and purpose make such a project senseless. The pyramids were monumental tombs built to reflect the centralized power and religious beliefs of ancient Egypt. Today, constructing such structures purely for vanity or burial would be unjustifiable.
 - **Archaeological Evidence of Workforce**: Excavations near the Great Pyramid of Giza uncovered a worker’s village, complete with housing, bakeries, breweries, and tools. These findings reveal that a large, organized labor force — fed and housed on-site — undertook the construction. This logistical effort, supported by a centralized government, was massive but achievable by human means.
 - **Clear Evolution of Techniques**: Quarry marks found on pyramid stones, abandoned or unfinished pyramids, and evidence of transportation paths provide additional proof of human involvement. These details reveal the practical methods used by ancient Egyptians, with no signs of extraterrestrial assistance.
+- **Ancient Writings Inside the Pyramid**: The ceiling of Khufu’s King’s Chamber is composed of five massive stone layers stacked on top of each other, with empty spaces in between. Once the pyramid was completed, these spaces became inaccessible. However, an inept archaeologist used dynamite to investigate what lay above the ceiling, and created a small passage. In one of these gaps—whether the topmost or a lower one—hieroglyphs were discovered, reading “the friends of Khufu,” the name of a workers’ team (image below). If aliens had built the pyramid, how would this inscription have appeared?
+
+![](/img/Khufu-tomb.png)
 
 While the scale of the pyramids is indeed awe-inspiring, the evidence overwhelmingly shows that humans built them through ingenuity, hard work, and organized labor. The idea of alien intervention is unnecessary and unsupported by facts.
