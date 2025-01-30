@@ -55,13 +55,25 @@ These cities, each unique in their contributions, represent the diverse and dyna
 
 Ancient Egypt’s enduring legacy is rooted in its remarkable technological and artistic achievements, which influenced countless civilizations and continue to captivate us today.
 
+| ![Hieroglyphs vs. hieratic vs. demotic](/img/hieroglyphs.gif) |
+| - |
+| _Hieroglyphs vs. hieratic vs. demotic_ |
+
 ### Innovations such as Hieroglyphics and Papyrus
 
 The Egyptians developed a sophisticated system of writing, beginning with **hieroglyphs**, which were used for over three millennia. This intricate system combined pictorial symbols, ideograms, and phonetic elements to convey complex ideas. Over time, more streamlined scripts evolved for practical purposes: **hieratic**, a cursive form for religious and administrative use, and later **demotic**, a simplified script for everyday writing. These systems coexisted for centuries, showcasing the Egyptians’ adaptability in written communication. The invention of **papyrus**, a durable and lightweight writing material, complemented these scripts, enabling the creation of records, literature, and official documents that shaped the administrative and cultural fabric of ancient Egypt.
 
+| ![Abu Simbel](/img/Abu-Simbel.jpg) |
+| - |
+| _Abu Simbel Temple in Southern Egypt_ |
+
 ### Monumental Architecture: Temples and Statues
 
 Egyptian architects and craftsmen mastered the art of monumental construction, leaving behind awe-inspiring structures such as the temples of Karnak and Abu Simbel. Colossal statues, like those of Ramses II, showcased not only their engineering prowess but also their devotion to the gods and the pharaohs. These enduring symbols of power and spirituality remain iconic representations of ancient Egypt’s grandeur.
+
+| ![Nefertiti bust](/img/Nefertiti.jpg) |
+| - |
+| _Nefertiti bust, believed to have been crafted in 1345 BC, now housed in Egyptian Museum of Berlin_ |
 
 ### Artistic Styles and Their Evolution
 
