@@ -2,7 +2,7 @@
 
 ![Moving blog](/img/moving-blog.jpeg)
 
-When I started blogging in 2011, sharing my thoughts on photography and travel on [Blogger](https://photopensieve.blogspot.com/?m=1), it was simple, reliable, and did the job. However, over the years, Google stopped updating and improving it, turning it into more of a hassle than a convenience. Ensuring consistent styling became a recurring pain point, and Google’s habit of abruptly shutting down projects left me wary that Blogger could be the next on the chopping block. So, I decided it was time to move my blog elsewhere.
+I started blogging in 2011, sharing my thoughts on photography and travel on [Blogger](https://photopensieve.blogspot.com/?m=1). Back then, Blogger was simple, reliable, and did the job. However, over the years, Google stopped updating and improving it, turning it into more of a hassle than a convenience. Ensuring consistent styling became a recurring pain point, and Google’s habit of abruptly shutting down projects left me wary that Blogger could be the next on the chopping block. So, I decided it was time to move my blog elsewhere.
 
 I gave WordPress a shot, but it came with its own challenges. Styling issues were still a concern, and when I tried importing my Blogger content, the results were a mess. That’s when I decided to take full control and move everything to my own website. After some research, I decided to use GitHub Pages, which offers full flexibility and control, allowing me to manage my blog exactly how I want.
 
