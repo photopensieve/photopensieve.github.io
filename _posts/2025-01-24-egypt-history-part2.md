@@ -1,6 +1,6 @@
 # Ancient Egypt - Tombs, Mummies, and the Journey to Eternity
 
-![](/img/book-of-the-dead.jpeg)
+![](/img/Egypt/book-of-the-dead.jpeg)
 
 _In the [previous post](https://photopensieve.github.io/2025/01/23/egypt-history-part1.html), I gave a general introduction to the history of Egypt. In this post, I will focus on the "afterlife" beliefs, and traditions in Egypt._
 
@@ -49,7 +49,7 @@ The pyramids of ancient Egypt stand as one of the most awe-inspiring achievement
 
 The pyramids were grand tombs built for Egyptian kings, particularly during the Old Kingdom period (circa 2686–2181 BCE). These monumental projects were often initiated by a king early in his reign to ensure its completion within his lifetime. Far from being mere burial sites, the pyramids symbolized the divine power of the king and his journey to the afterlife.
 
-![](/img/evolution-of-pyramids.jpg)
+![](/img/Egypt/evolution-of-pyramids.jpg)
 
 ### From Mastabas to Pyramids
 
@@ -152,6 +152,6 @@ Some people speculate that the pyramids were built by aliens (or other fantastic
 - **Clear Evolution of Techniques**: Quarry marks found on pyramid stones, abandoned or unfinished pyramids, and evidence of transportation paths provide additional proof of human involvement. These details reveal the practical methods used by ancient Egyptians, with no signs of extraterrestrial assistance.
 - **Ancient Writings Inside the Pyramid**: The ceiling of Khufu’s King’s Chamber is composed of five massive stone layers stacked on top of each other, with empty spaces in between. Once the pyramid was completed, these spaces became inaccessible. However, an inept archaeologist used dynamite to investigate what lay above the ceiling, and created a small passage. In one of these gaps—whether the topmost or a lower one—hieroglyphs were discovered, reading “the friends of Khufu,” the name of a workers’ team (image below). If aliens had built the pyramid, how would this inscription have appeared?
 
-![](/img/Khufu-tomb.png)
+![](/img/Egypt/Khufu-tomb.png)
 
 While the scale of the pyramids is indeed awe-inspiring, the evidence overwhelmingly shows that humans built them through ingenuity, hard work, and organized labor. The idea of alien intervention is unnecessary and unsupported by facts.

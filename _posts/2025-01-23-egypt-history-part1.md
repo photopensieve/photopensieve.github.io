@@ -1,6 +1,6 @@
 # Ancient Egypt - The Nile and the Land of Pharaohs
 
-![](/img/egypt-map.jpg)
+![](/img/Egypt/egypt-map.jpg)
 
 Before traveling to a new country, I usually research its geography and history to better understand the context of the place I’m visiting. This helps me write a few paragraphs about its history in my blog posts. However, as I’ve been learning about Ancient Egypt, it’s clear that its rich and complex history can’t be condensed into just a few paragraphs.
 
@@ -55,7 +55,7 @@ These cities, each unique in their contributions, represent the diverse and dyna
 
 Ancient Egypt’s enduring legacy is rooted in its remarkable technological and artistic achievements, which influenced countless civilizations and continue to captivate us today.
 
-| ![Hieroglyphs vs. hieratic vs. demotic](/img/hieroglyphs.gif) |
+| ![Hieroglyphs vs. hieratic vs. demotic](/img/Egypt/hieroglyphs.gif) |
 | - |
 | _Hieroglyphs vs. hieratic vs. demotic_ |
 
@@ -63,7 +63,7 @@ Ancient Egypt’s enduring legacy is rooted in its remarkable technological and 
 
 The Egyptians developed a sophisticated system of writing, beginning with **hieroglyphs**, which were used for over three millennia. This intricate system combined pictorial symbols, ideograms, and phonetic elements to convey complex ideas. Over time, more streamlined scripts evolved for practical purposes: **hieratic**, a cursive form for religious and administrative use, and later **demotic**, a simplified script for everyday writing. These systems coexisted for centuries, showcasing the Egyptians’ adaptability in written communication. The invention of **papyrus**, a durable and lightweight writing material, complemented these scripts, enabling the creation of records, literature, and official documents that shaped the administrative and cultural fabric of ancient Egypt.
 
-| ![Abu Simbel](/img/Abu-Simbel.jpg) |
+| ![Abu Simbel](/img/Egypt/Abu-Simbel.jpg) |
 | - |
 | _Abu Simbel Temple in Southern Egypt_ |
 
@@ -71,7 +71,7 @@ The Egyptians developed a sophisticated system of writing, beginning with **hier
 
 Egyptian architects and craftsmen mastered the art of monumental construction, leaving behind awe-inspiring structures such as the temples of Karnak and Abu Simbel. Colossal statues, like those of Ramses II, showcased not only their engineering prowess but also their devotion to the gods and the pharaohs. These enduring symbols of power and spirituality remain iconic representations of ancient Egypt’s grandeur.
 
-| ![Nefertiti bust](/img/Nefertiti.jpg) |
+| ![Nefertiti bust](/img/Egypt/Nefertiti.jpg) |
 | - |
 | _Nefertiti bust, believed to have been crafted in 1345 BC, now housed in Egyptian Museum of Berlin_ |
 
