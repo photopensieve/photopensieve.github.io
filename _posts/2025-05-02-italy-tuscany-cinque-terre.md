@@ -2,7 +2,7 @@
 
 ![](/img/Italy/Tuscany.jpeg)
 
-After an incredible journey through Egypt, and Jordan, we visited Emirates briefly before heading to Iran to spend some quality time with family. Afterwards, our European adventure began in Italy—one of my absolute happy places. There's something magical about Italy that keeps drawing me back: the exceptional food, warm-hearted people, breathtaking landscapes, and countless treasures waiting to be discovered. Despite having visited Italy more than any other country, I'm constantly amazed by how much more there is to explore.
+After an incredible journey through Egypt and Jordan, we visited Emirates briefly before heading to Iran to spend some quality time with family. Afterwards, our European adventure began in Italy—one of my absolute happy places. There's something magical about Italy that keeps drawing me back: the exceptional food, warm-hearted people, breathtaking landscapes, and countless treasures waiting to be discovered. Despite having visited Italy more than any other country, I'm constantly amazed by how much more there is to explore.
 
 This particular trip focused on **Tuscany's hidden gems**, with unforgettable detours to **Cinque Terre** and **Lake Garda**. While I'd been to Florence before, I knew this journey would reveal that Tuscany is so much more than its famous capital city. What unfolded was a perfect blend of iconic destinations and off-the-beaten-path discoveries that reminded me why Italy holds such a special place in my heart.
 
