@@ -1,6 +1,8 @@
 # Ireland: Two-Week Road Trip Around the Emerald Isle
 
-Ireland has been on our travel list for years, and we finally made it happen with a two-week road trip that took us from Dublin's bustling streets to amazing scenary of southwest Ireland, and to Northern Ireland's dramatic coastlines. Here's everything we learned about exploring the Emerald Isle by car, including the logistics, highlights, and a few surprises along the way.
+![](/img/Ireland/Classiebawn.jpeg)
+
+Ireland had been on my travel list for years. After spending [two weeks in Italy](https://photopensieve.github.io/2025/05/02/italy-tuscany-cinque-terre.html), we finally made our way to Dublin to kick off a two-week road trip around the Emerald Isle. Here’s what we learned about exploring Ireland by car—logistics, highlights, and the places we visited. 
 
 ## Understanding Ireland: A Brief Historical Context
 
@@ -48,19 +50,21 @@ Before you book that rental car, here's something most people don't know: most t
 
 ### Driving on the Left
 
-This wasn't our first time driving on the left side of the road, and honestly, it was even easier this time around. I didn't encounter any major issues, and the Irish drivers are remarkably considerate—a pleasant surprise that made the whole experience much more relaxed than expected.
+This wasn't my first time driving on the left side of the road, and honestly, it was even easier this time around. I didn't encounter any major issues, and the Irish drivers are remarkably considerate—a pleasant surprise that made the whole experience much more relaxed than expected. More on the whole driving experience in Ireland in the FAQ section.
 
 ## Our Two-Week Itinerary
 
-We structured our trip to minimize packing and unpacking while maximizing our time exploring. We spent two nights in Dublin without a car, then picked up our rental at the airport and drove south to Killarney, stopping at the Rock of Cashel along the way. Killarney served as our base for three nights, allowing us to explore both the Dingle and Beara Peninsulas on day trips.
+Since we planned to tour much of the island, spending several days on the road was inevitable. We began with two nights in Dublin without a car, then picked up our rental at the airport and headed south to Killarney, stopping at the Rock of Cashel along the way. Killarney became our base for three nights, giving us time to explore both the Dingle and Beara Peninsulas on day trips.
 
-From there, we spent three days driving along Ireland's western coast, hitting the **Cliffs of Moher**, **Galway**, **Kylemore Abbey**, and **Downpatrick Head** before crossing into Northern Ireland. We dedicated four nights to Northern Ireland, visiting **Londonderry (Derry)**, **Giant's Causeway**, **Dunluce Castle**, and **Belfast**, before wrapping up with a final night near Dublin Airport for our departure.
+From there, we spent three days driving up Ireland’s western coast, visiting the Cliffs of Moher, Galway, Kylemore Abbey, and Downpatrick Head, before crossing into Northern Ireland. We dedicated four nights there, exploring Londonderry (Derry), Giant’s Causeway, Dunluce Castle, and Belfast, before ending the trip with a final night near Dublin Airport ahead of our departure.
+
+![](/img/Ireland/Dublin.jpeg)
 
 ## Dublin: Beyond the Tourist Traps
 
-Dublin is undeniably touristy and, frankly, quite expensive. The city draws millions of visitors annually, largely due to its rich literary history, iconic pubs, and famous attractions. However, after some research, we realized that many of the most famous spots—the Book of Kells Experience, Guinness Storehouse tour, and even the Temple Bar area—felt more like tourist traps than authentic experiences.
+Dublin is undeniably touristy and, frankly, quite expensive. The city draws millions of visitors annually, largely due to its rich literary history, iconic pubs, and famous attractions. However, after some research, we realized that many of the most famous spots—the Book of Kells Experience, Guinness Storehouse tour, and even the Temple Bar area—felt more like **tourist traps** than authentic experiences.
 
-Instead, we ventured to the Stoneybatter neighborhood, where we found pubs filled with locals rather than tour groups. The difference was immediately apparent, and we had a much better time mingling with actual Dubliners. Pubs are central to Irish culture and social life—they're not just places to drink, but community gathering spots where people of all ages come to socialize, share stories, and often enjoy traditional music. Going to a pub while in Ireland isn't just recommended; it's essential for understanding the local culture.
+Instead, we ventured to the **Stoneybatter neighborhood**, where we found pubs filled with locals rather than tourists. The difference was immediately apparent, and we had a much better time mingling with actual Dubliners. Pubs are central to Irish culture and social life—they're not just places to drink, but community gathering spots where people of all ages come to socialize, share stories, and often enjoy traditional music. Going to a pub while in Ireland isn't just recommended; it's essential for understanding the local culture.
 
 As for Guinness, it does taste excellent in Ireland, though I can't definitively say it's better than what you get in the US. The atmosphere of drinking it in its homeland certainly adds to the experience, though.
 
@@ -69,6 +73,8 @@ As for Guinness, it does taste excellent in Ireland, though I can't definitively
 ### Killarney: The Perfect Base
 
 We chose Killarney as our southwestern Ireland base, and it proved ideal for exploring the region. There are three main day trips from Killarney: the Ring of Kerry (the most popular), Dingle Peninsula (the most scenic), and Beara Peninsula (the least explored). We deliberately skipped the Ring of Kerry due to its reputation for tourist bus congestion and instead focused on the other two.
+
+![](/img/Ireland/Dingle.jpeg)
 
 ### Dingle Peninsula: The Scenic Highlight
 
@@ -80,6 +86,8 @@ Key stops included:
 - **Dunmore Head**: Ireland's westernmost point with breathtaking cliff views
 - **Dunquin Pier**: A picturesque harbor with traditional currach boats
 - **Town of Dingle**: Charming fishing town with excellent seafood and traditional music
+
+![](/img/Ireland/Beara.jpeg)
 
 ### Beara Peninsula: Off the Beaten Path
 
@@ -93,9 +101,13 @@ Notable stops included:
 
 Overall, while both peninsulas have their merits, Dingle Peninsula certainly edges out Beara for sheer scenic beauty and cultural richness.
 
+![](/img/Ireland/CliffsOfMoher.jpeg)
+
 ### Cliffs of Moher: A Mixed Experience
 
 The Cliffs of Moher are undoubtedly iconic, but our visit was somewhat disappointing. There are two main access points, but the coastal trail was closed during our visit. The protective fencing is positioned quite far from the cliff edge, which limits photo opportunities, and we unfortunately encountered overcast weather that wasn't ideal for photography. While still worth seeing, manage your expectations—it's not always the dramatic experience you see in photos. Overall, I would not highly recommend visiting Cliffs of Moher.
+
+![](/img/Ireland/KylemoreAbbey.jpeg)
 
 ### Drive to Northern Ireland: Hidden Gems
 
@@ -104,9 +116,11 @@ Our journey north included several memorable stops:
 - **Sky Road**: Scenic coastal drive with stunning Atlantic views, similar to those in Dingle Peninsula.
 - **Kylemore Abbey**: Victorian castle and gardens in a lake setting. We didn't go in, but the exterior view was gorgeous.
 - **Downpatrick Head**: Dramatic sea stack and coastal views, which we actually really enjoyed, as there were no barriers, and we could get a good view.
-- **Classiebawn Castle**: This was such a serendipitous find on Google Maps! On our way to Northern Ireland, we decided to stop for a quick snap, but we ended up waiting a couple of hours for the right light to photograph this castle from the beach, and the patience paid off with some fantastic shots!
+- **Classiebawn Castle viewpoint**: This was such a serendipitous find on Google Maps! On our way to Northern Ireland, we decided to stop for a quick snap, but we ended up waiting a couple of hours for the right light to photograph this castle from the beach, and the patience paid off with some fantastic shots!
 
 ## Northern Ireland: Unexpected Highlights
+
+![](/img/Ireland/Derry.jpeg)
 
 ### Derry/Londonderry: A Cultural Gem
 
@@ -116,11 +130,15 @@ We first learned about Derry from the brilliant TV show "Derry Girls" (seriously
 
 Most people don't think of Ireland as a beach destination, but it has some genuinely nice coastlines when the weather cooperates. One unique and slightly off-putting observation was locals driving their cars directly onto the beach (particularly at Benone Beach), which seemed both a bit dangerous and environmentally questionable. Despite this, our son loved playing in the sand, and we enjoyed the unexpected beach time.
 
+![](/img/Ireland/GiantsCauseway.jpeg)
+
 ### Giant's Causeway: Nature's Architecture
 
 Giant's Causeway is probably Northern Ireland's most famous attraction, and for good reason. This UNESCO World Heritage site consists of about 40,000 interlocking basalt columns formed by ancient volcanic activity. The columns were created when molten lava cooled rapidly, causing it to contract and crack in hexagonal patterns—a geological process that took place around 50-60 million years ago.
 
 As a photography enthusiast, I'd long wanted to visit this iconic location. However, the experience was somewhat underwhelming because it's best photographed during specific sunset lighting conditions, which we didn't encounter. The location also benefits from proper equipment like a good tripod and neutral density filters, which I didn't have with me. Still, I was glad to try capturing this world-famous geological wonder.
+
+![](/img/Ireland/DarkHedges.jpeg)
 
 ### Other Northern Ireland Highlights
 
@@ -136,7 +154,7 @@ Ireland delivered on every front: stunning landscapes, rich culture, friendly pe
 
 We were incredibly fortunate with the weather during our early May visit. It only rained lightly for one day, and while we had a few cloudy days, the conditions were largely excellent. Even locals commented on how unusually good the weather was—apparently, we hit the jackpot with Ireland's notoriously unpredictable climate.
 
-## FAQ: Driving in Ireland
+## FAQ
 
 **How challenging is driving in Ireland?**
 
@@ -148,25 +166,17 @@ The roads are narrow and winding with surprisingly high speed limits, but there 
 
 **What exactly is a tourist trap, and how can you spot them?**
 
-A tourist trap is an attraction or establishment that primarily targets visitors rather than locals, often prioritizing profit over authentic experience. They're not necessarily bad, but they tend to be overpriced, overcrowded, and sometimes underwhelming compared to alternatives.
-
-Here's how to spot them:
-- **Heavy marketing presence**: If you see something advertised everywhere, it might be overhyped
-- **Tour bus crowds**: Large groups being shuttled in and out often indicate mass tourism
-- **Inflated prices**: Significantly higher costs than similar experiences elsewhere
-- **Lack of locals**: If you don't see Irish people there, ask yourself why
-- **Rushed experiences**: Places that move you through quickly to maximize throughput
-- **Gift shop emphasis**: When the gift shop seems as important as the attraction itself
+To me, a tourist trap is a place that’s overly famous and popular but doesn’t live up to the hype in person. These places often are worth a visit (though sometimes not), but they are either overpriced, and/or overly crowded that make them less appealing. Some places are very expensive and very crowded, but they are still worth a visit, e.g. Venice, or Paris, so I do not consider those "tourist traps".
 
 In Ireland, examples include the Guinness Storehouse (overpriced brewery tour), Temple Bar area (expensive drinks, touristy atmosphere), and parts of the Ring of Kerry (bus-clogged scenic route). The Book of Kells Experience, while historically significant, also fits this pattern with high admission fees and crowds.
 
-Instead, seek out places locals actually go: neighborhood pubs, smaller towns, less famous but equally beautiful scenic routes, and attractions without massive parking lots full of tour buses.
+Instead, I prefer to seek out places that locals actually go: neighborhood pubs, smaller towns, less famous but equally beautiful scenic routes, and attractions without massive parking lots full of tour buses.
 
 **What differences will I notice traveling between the Republic of Ireland and Northern Ireland?**
 
 While the border crossing is invisible and seamless, there are several practical differences you'll encounter:
 
-**Currency**: The Republic of Ireland uses the Euro (€), while Northern Ireland uses the British Pound Sterling (£). Many businesses near the border accept both currencies, but you'll get better exchange rates using the local currency. ATMs are readily available in both regions.
+**Currency**: The Republic of Ireland uses the Euro (€), while Northern Ireland uses the British Pound Sterling (£).
 
 **Road signs**: In the Republic, distances are shown in kilometers and speed limits in km/h, while Northern Ireland uses miles and mph. Road signs in the Republic are bilingual (English and Irish Gaelic), while Northern Ireland signs are English-only.
 
@@ -176,9 +186,9 @@ While the border crossing is invisible and seamless, there are several practical
 
 **Political symbols**: You'll see different flags, symbols, and murals, particularly in urban areas. The Republic flies the Irish tricolor, while Northern Ireland displays both Union Jacks and Irish flags depending on the community.
 
-**Infrastructure**: Both regions have excellent road networks and tourist facilities. Northern Ireland's tourist attractions often have slightly different opening hours and pricing structures than those in the Republic.
-
 Despite these differences, the overall travel experience feels remarkably unified. The landscapes are equally stunning, the hospitality equally warm, and the cultural heritage deeply intertwined across both regions.
+
+One minor issue we ran into was that our rental car from Dublin displayed speed in km/h, but in Northern Ireland, the speed limits are in mph. The car had a road sign recognition system that read speed limit signs and alerted us if we were over the limit. So, if the limit was 40 mph—about 65 km/h—the car would beep to tell us to slow down if we were going above 40 km/h! Thankfully, it didn’t beep continuously, but it did happen every time we passed a speed limit sign. Not a big deal, just a bit annoying.
 
 ## Why is Ireland's population smaller today than it was in the 19th century?
 This is one of the most striking aspects of Irish history. In 1841, Ireland's population peaked at about 8.2 million people. Today, the entire island has only around 7 million people (about 5 million in the Republic of Ireland and 1.9 million in Northern Ireland)—still below its pre-famine levels nearly 180 years later.
@@ -189,4 +199,4 @@ Between 1851 and 1921, Ireland lost nearly half its population through emigratio
 
 The scale of Irish emigration is staggering—an estimated 10 million people left Ireland between 1800 and 1921. Today, there are more people of Irish descent living outside Ireland than within it, with about 35 million Americans claiming Irish ancestry.
 
-This history explains why you'll find relatively few people in Ireland's countryside compared to other European countries of similar size. Many of the stone cottages and ruins you'll see scattered across the landscape are remnants of a much more populous rural Ireland. It also explains the incredibly warm welcome Irish people extend to visitors—many families have relatives scattered across the globe, making international connections feel personal and meaningful.
+This history explains why you'll find relatively few people in Ireland's countryside compared to other European countries of similar size. Many of the stone cottages and ruins you'll see scattered across the landscape are remnants of a much more populous rural Ireland.
