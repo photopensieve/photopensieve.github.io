@@ -17,23 +17,38 @@ I went out walking to the Monkey Temple this afternoon with Kaleb, but it starte
 Everything’s fine here, except a curious toothache I have. I haven’t had a toothache in nearly 10 years, and just now it should happen. Damn.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiQuWS7eHZI0UzU_cEgNhbYU5_kWIk_jrQNQzKmKdw4rOSehNWCN1IX8yuAgXHk2JRbTjq8AQ4gUE3t7smEWrWb3AW4m2Io6VmOfv6Df3pJJbjS474Yyx6PwYtR5t6obdaSdqKV7eeaE7iV/s320/photo+1-710349.JPG)
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEic5XOwRkN3qWNDmUQDSy2GVXFcrjke6EID49ESn4Jm0y5qA7UjneRmafTobXRU6tOx5aa-3mmin8xwvVFQovUqqHJGVGwHC7at655UFTrVIhZ_CSV3w48FhiSWy3dDa8kQlE7_PyzISfz7/s320/photo+2-711100.JPG)
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhR6dLwyiP1RJsWPhFGzkzwntbp7yWXYnBXLUTHEoyCTKTjTOscsHntzzONiSLkyvZMqt7PPi7uO0cwWwoZ5FMslO45vLGFhPQvq30j3sJmDKK0dsn2wOcwIU3Xc5Pa-Eu4zwd4CBb2jLeU/s320/photo+3-712026.JPG)
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0obWblw1ZdE7bKGeZg1on49s9_fg8Rd7QkJ2Bsz6xXuDyeOgHxXIzsdUClbkd3RWfjo9hcMqCu345jq6CERO-qhDWKCi-lrwW_e8IP2NyHOJXBHo4gCHwgwoo2RLv-Vf-UFA8QcFYmlWh/s320/photo+4-712572.JPG)
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjo35-2LPIHQJSrIBr1eT8FG82O-PhkwV_qesrut5lOEQLvL3-f20wPtP7BJwRZ3DtYl6qXssnTk9T1ntHul0lmw1wAE4kHX5p0wTQgGxS5d9o2y3ag_D3E77xq63NtYLlQGeHKIKbhIugF/s320/photo+5-713523.JPG)
 
 Update 1 Nov 2011:
 Find the photos of Kathmandu [here](http://www.flickr.com/photos/8413680@N08/sets/72157628022813446/) on flickr.
-![Kathmandu - 4](http://farm7.static.flickr.com/6047/6299749549_2331e21849_s.jpg)
 
-![Kathmandu - 1](http://farm7.static.flickr.com/6221/6300282554_a253d6b580_s.jpg)![Kathmandu - 2](http://farm7.static.flickr.com/6120/6300283074_5b340f45a4_s.jpg)
+![Kathmandu - 4](http://farm7.static.flickr.com/6047/6299749549_2331e21849_b.jpg)
 
-![Kathmandu - 3](http://farm7.static.flickr.com/6104/6300283420_1dd902a6bf_s.jpg)![Kathmandu - 5](http://farm7.static.flickr.com/6049/6300284376_6159c2081e_s.jpg)
+![Kathmandu - 1](http://farm7.static.flickr.com/6221/6300282554_a253d6b580_b.jpg)
 
-![Kathmandu - 6](http://farm7.static.flickr.com/6093/6299750299_6bfd068632_s.jpg)![Kathmandu - 7](http://farm7.static.flickr.com/6034/6300285144_0a51de6215_s.jpg)
+![Kathmandu - 2](http://farm7.static.flickr.com/6120/6300283074_5b340f45a4_b.jpg)
 
-![Kathmandu - 8](http://farm7.static.flickr.com/6217/6299751109_efd7ea7159_s.jpg)![Kathmandu - 9](http://farm7.static.flickr.com/6095/6299751463_76c1a5f6b8_s.jpg)
+![Kathmandu - 3](http://farm7.static.flickr.com/6104/6300283420_1dd902a6bf_b.jpg)
 
-![Kathmandu - 10](http://farm7.static.flickr.com/6049/6300286546_0b96701360_s.jpg)![Kathmandu - 11](http://farm7.static.flickr.com/6039/6299752825_8e1409b298_s.jpg)
+![Kathmandu - 5](http://farm7.static.flickr.com/6049/6300284376_6159c2081e_b.jpg)
 
-![Kathmandu - 12](http://farm7.static.flickr.com/6229/6300287798_a7c8df52ae_s.jpg)
+![Kathmandu - 6](http://farm7.static.flickr.com/6093/6299750299_6bfd068632_b.jpg)
+
+![Kathmandu - 7](http://farm7.static.flickr.com/6034/6300285144_0a51de6215_b.jpg)
+
+![Kathmandu - 8](http://farm7.static.flickr.com/6217/6299751109_efd7ea7159_b.jpg)
+
+![Kathmandu - 9](http://farm7.static.flickr.com/6095/6299751463_76c1a5f6b8_b.jpg)
+
+![Kathmandu - 10](http://farm7.static.flickr.com/6049/6300286546_0b96701360_b.jpg)
+
+![Kathmandu - 11](http://farm7.static.flickr.com/6039/6299752825_8e1409b298_b.jpg)
+
+![Kathmandu - 12](http://farm7.static.flickr.com/6229/6300287798_a7c8df52ae_b.jpg)

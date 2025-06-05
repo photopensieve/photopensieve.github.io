@@ -24,26 +24,48 @@ Check my photos of India and Nepal on flicker [here](http://www.flickr.com/phot
 
 ![Dentist in Varanasi](http://farm7.static.flickr.com/6120/6340131668_6897f15067_m.jpg)
 
-![Dentist in Varanasi](http://farm7.static.flickr.com/6098/6339382895_79d8f013ef_m.jpg)![Dentist in Varanasi](http://farm7.static.flickr.com/6103/6340131306_7aa3661f43_m.jpg)
+![Dentist in Varanasi](http://farm7.static.flickr.com/6098/6339382895_79d8f013ef_m.jpg)
 
-![Dentist in Varanasi](http://farm7.static.flickr.com/6044/6339382621_ac25a2ecb9_m.jpg)![Dentist in Varanasi](http://farm7.static.flickr.com/6237/6339382475_6a7d39989d_m.jpg)
+![Dentist in Varanasi](http://farm7.static.flickr.com/6103/6340131306_7aa3661f43_m.jpg)
 
-![Dentist in Varanasi](http://farm7.static.flickr.com/6216/6340130824_e39bc6920a_m.jpg)![Dentist in Varanasi](http://farm7.static.flickr.com/6218/6339382077_0fdcd79666_m.jpg)
+![Dentist in Varanasi](http://farm7.static.flickr.com/6044/6339382621_ac25a2ecb9_m.jpg)
 
-![Faces of Nepal - 7](http://farm7.static.flickr.com/6231/6337939406_09745fb097_m.jpg)![Faces of Nepal - 6](http://farm7.static.flickr.com/6038/6337186307_6b22f52393_m.jpg)
+![Dentist in Varanasi](http://farm7.static.flickr.com/6237/6339382475_6a7d39989d_m.jpg)
 
-![Three bathers](http://farm7.static.flickr.com/6109/6333794591_8281973857_m.jpg)![Faces of Nepal - 4](http://farm7.static.flickr.com/6239/6333566551_7cf7228b43_m.jpg)
+![Dentist in Varanasi](http://farm7.static.flickr.com/6216/6340130824_e39bc6920a_m.jpg)
 
-![Faces of Nepal - 3](http://farm7.static.flickr.com/6107/6331743010_fc1a8a545d_m.jpg)![Faces of Nepal - 2](http://farm7.static.flickr.com/6238/6330973949_050b42e05e_m.jpg)
+![Dentist in Varanasi](http://farm7.static.flickr.com/6218/6339382077_0fdcd79666_m.jpg)
 
-![Faces of Nepal - 1](http://farm7.static.flickr.com/6214/6328967183_23f252aa7d_m.jpg)![Dhobi Ghats - 3](http://farm7.static.flickr.com/6114/6326732579_6189bd1902_m.jpg)
+![Faces of Nepal - 7](http://farm7.static.flickr.com/6231/6337939406_09745fb097_m.jpg)
 
-![Dhobi Ghats - 2](http://farm7.static.flickr.com/6236/6327482316_115f202c00_m.jpg)![Dhobi Ghats - 1](http://farm7.static.flickr.com/6045/6327482074_7c639992cf_m.jpg)
+![Faces of Nepal - 6](http://farm7.static.flickr.com/6038/6337186307_6b22f52393_m.jpg)
 
-![Khuri - 10](http://farm7.static.flickr.com/6095/6323543325_fbf2e36039_m.jpg)![Khuri - 9](http://farm7.static.flickr.com/6227/6324071296_3149cd4a86_m.jpg)
+![Three bathers](http://farm7.static.flickr.com/6109/6333794591_8281973857_m.jpg)
 
-![Khuri - 8](http://farm7.static.flickr.com/6049/6323542305_f85f6cbde4_m.jpg)![Khuri - 7](http://farm7.static.flickr.com/6117/6324070308_a6df374034_m.jpg)
+![Faces of Nepal - 4](http://farm7.static.flickr.com/6239/6333566551_7cf7228b43_m.jpg)
 
-![Khuri - 6](http://farm7.static.flickr.com/6103/6324069390_2370ec3d12_m.jpg)![Khuri - 5](http://farm7.static.flickr.com/6048/6324068960_15ac2cefa0_m.jpg)
+![Faces of Nepal - 3](http://farm7.static.flickr.com/6107/6331743010_fc1a8a545d_m.jpg)
+
+![Faces of Nepal - 2](http://farm7.static.flickr.com/6238/6330973949_050b42e05e_m.jpg)
+
+![Faces of Nepal - 1](http://farm7.static.flickr.com/6214/6328967183_23f252aa7d_m.jpg)
+
+![Dhobi Ghats - 3](http://farm7.static.flickr.com/6114/6326732579_6189bd1902_m.jpg)
+
+![Dhobi Ghats - 2](http://farm7.static.flickr.com/6236/6327482316_115f202c00_m.jpg)
+
+![Dhobi Ghats - 1](http://farm7.static.flickr.com/6045/6327482074_7c639992cf_m.jpg)
+
+![Khuri - 10](http://farm7.static.flickr.com/6095/6323543325_fbf2e36039_m.jpg)
+
+![Khuri - 9](http://farm7.static.flickr.com/6227/6324071296_3149cd4a86_m.jpg)
+
+![Khuri - 8](http://farm7.static.flickr.com/6049/6323542305_f85f6cbde4_m.jpg)
+
+![Khuri - 7](http://farm7.static.flickr.com/6117/6324070308_a6df374034_m.jpg)
+
+![Khuri - 6](http://farm7.static.flickr.com/6103/6324069390_2370ec3d12_m.jpg)
+
+![Khuri - 5](http://farm7.static.flickr.com/6048/6324068960_15ac2cefa0_m.jpg)
 
 ![Khuri - 4](http://farm7.static.flickr.com/6232/6324068650_a93f901886_m.jpg)

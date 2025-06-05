@@ -16,14 +16,18 @@ From there, we headed to Marand, where we stayed for 3 nights. The highlights of
 
 ![Lake Urmia - 4](http://farm7.static.flickr.com/6158/6165691652_d013d6e88f.jpg)
 
-![Lake Urmia - Landed boat - 1](http://farm7.static.flickr.com/6167/6165692168_10ea3be78f.jpg)![Catastrophe in Lake Urmia - 1](http://farm7.static.flickr.com/6152/6157778221_ee6e72f6a0.jpg)
+![Lake Urmia - Landed boat - 1](http://farm7.static.flickr.com/6167/6165692168_10ea3be78f.jpg)
+
+![Catastrophe in Lake Urmia - 1](http://farm7.static.flickr.com/6152/6157778221_ee6e72f6a0.jpg)
 The next day we went to Jolfa, which is a border city and is famous for several touristic sites. We visited the waterfall beside "Asiab-Kharabe" which is the ruins of a mill. Over there I tried to do a long exposure of the waterfall where I saw an old man trying to make "Wudhu" (ritual washing). Needless to say, I took the opportunity and tried to capture his ritual along the water. The relation between religion and water is of the essence and I like capturing it in other religions too. My eminent trip to India is a great opportunity for that purpose.
 ![Wudhu](http://farm7.static.flickr.com/6174/6168073553_4fc3e9dcfa.jpg)
 We then went along the border, Aras River, to west to see "Saint Stepanos Monastery". Along with two other churches, Saint Stepanos is a UNESCO World Heritage site. We then carried on to visit Chaldoran plain to visit the site of the famous battle between Persian and Ottoman armies some 500 years ago. We were driving while I saw a small herd of sheep and two shepherds beside the road. Having the best light possible at sunset, I was sure there is an opportunity waiting for me! We quickly pulled over and I asked the shepards if I can take a picture of their herd. They were amused by the idea and agreed immediately. I started shooting the herd, while they were chuckling together, perhaps to my naivety! Anyways, they were so kind and sympathetic that the elder one invited us to stay the night at their place (this happened frequently during this trip). Meanwhile, I saw the younger shepherd leaning on his stick. I could not resist and asked him if I can take his picture. He happily said yes, and stayed put until I took his photo. When I shot him with the 20mm lens, I knew that I have the shot, but I wanted to take another one with the 85mm. I immediately changed the lens, and shot him waist up, and portrait... and Bingo! I was as happy a kid with THREE BIG ice-creams!
 
 ![Handsome Shepherd - 1](http://farm7.static.flickr.com/6159/6156217289_4563c90e61.jpg)
 
-![Handsome Shepherd - 2](http://farm7.static.flickr.com/6169/6156216281_2a4991aa6f.jpg)![Handsome Shepherd - 3](http://farm7.static.flickr.com/6079/6156762268_946ddf86ff.jpg)
+![Handsome Shepherd - 2](http://farm7.static.flickr.com/6169/6156216281_2a4991aa6f.jpg)
+
+![Handsome Shepherd - 3](http://farm7.static.flickr.com/6079/6156762268_946ddf86ff.jpg)
 The next day we went to Tabriz to see Colored Mountains. I had seen great photos of these mountains, but unfortunately I did not find a great spot for photography. In the absence of an exact location, it was difficult to find the location I was looking for. Nevertheless, I took some shots.
 
 ![Colored Mountains - 2](http://farm7.static.flickr.com/6157/6172304928_8bc767847c.jpg)
