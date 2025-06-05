@@ -89,6 +89,9 @@ I was so tired and just wanted to take a shower and sleep. Then we went to the r
 - I've had so much high amplitude vibration for a long time. I'm sure if I measure my Bone Mass Density in a few weeks, it has grown up significantly!
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhX-ZwSib3Z9744CmOik5fV4QnC-2ek820rP-WnvB51Uqi5PxgdDQxNaWZSmE2RDy0N3ozTXo2ov6lum_gWsC7hwZmIx0ko4uqa_-WWszUgBIPkA-gRHK3UmJUEP8s-t3GIKncdbd0A9r2w/s320/image-786878.png)
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjjBg0EtonrNXvSXDdnvTY9xGrvfMuzS6bfAz9GD7f42sUZAaqMsS4Pu56jy92YpJqZbWMyjJhFxKp0RjblQv-ncJex8ruuHqrZCr-j4N60lhLlnmuoN_GHCH8XewDo2qpNXCerWMOX_hI2/s320/photo+1-788372.JPG)
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiijDZBRjfsEtL7sw7mppsFEYfJa37r7lAVS2HN24jqpLGJMan7gM_8q12Axyr37GLY1RyRd5aZSHD7lKB2HbiXPcv1LLgw3-arJYT-HCJRJhH1DKNYIMOcT3-jt_-R65CGLq2hTYsUAxga/s320/photo+2-790115.JPG)
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgjY2PEfjbx_WkC8v3oqdB6pg8YxYKQFtVypIS2HCw346mas5yNO-EYTpYSKVKPfFtZ65b16OFLem-_mqRDF3qi2gElp-EsI4fnPqqDd36UsqJmj_jTzOyEBGstCSk0aBoOIYjpUlrN99eq/s320/photo+3-790692.JPG)

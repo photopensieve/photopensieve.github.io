@@ -39,6 +39,7 @@ Anyways, the one that I wanted to photograph shied away and went with her father
 Next morning, I left Pushkar for Jodhpur.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi00uxIZzRPyrmF2Q5DwVKSqBiKoozA9zzmgz-9lN4-7H_2QGjbNmhrGMlc-NsX8jPIOEG6tN3Woq7lHYV1uKtGa2lA-rJPryw-mNyGTgfnNAGl0XZH2oOIvdFNnMDd43a6gJWabpavxQoI/s320/photo+1-774794.JPG)
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjfDSSSI5_Dj0W-sizcu_MS5VY1t7Emm6Rj18ZaNlqAeiWOdty-OuGbnFVcU-88t0wxPO4nGtnBdqEoG5dSNaET4h6AFQmhFEkxg7GDM9ZsFhq7zl1MPEd_HnmWemVgaglWZIjAH-0RLnQs/s320/photo+2-775688.JPG)
 
 Update - See some of the photos of this part of my trip [here](http://www.flickr.com/photos/8413680@N08/sets/72157627940912067/):

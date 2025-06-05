@@ -2,9 +2,9 @@
 
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/11/how-my-camera-changed-my-travel.html)*.
 
-Recently, a friend of mine went through my Flickr photostream, and told me that I am gradually drifting from landscape photography to people photography. It is very true. Not that I don't like landscapes anymore, but now I find people to be more beautiful. It is kind of weird to say, but photography eases up talking and befriending with strangers. Through photography, you can learn about their lives, their attitudes, their jobs, and capture them. So in a way, my camera is helping me to communicate more with the people. Take [my experience in Khuri](http://photopensieve.blogspot.com/2011/10/khuri-tranquil-stay-in-authentic.html) for instance:
+Recently, a friend of mine went through my Flickr photostream, and told me that I am gradually drifting from landscape photography to people photography. It is very true. Not that I don't like landscapes anymore, but now I find people to be more beautiful. It is kind of weird to say, but photography eases up talking and befriending with strangers. Through photography, you can learn about their lives, their attitudes, their jobs, and capture them. So in a way, my camera is helping me to communicate more with the people. Take [my experience in Khuri](https://photopensieve.github.io/2011/10/15/khuri-tranquil-stay-in-authentic.html) for instance:
 
-![Khuri - 5](http://farm7.static.flickr.com/6048/6324068960_15ac2cefa0_l.jpg)
+![Khuri - 5](http://farm7.static.flickr.com/6048/6324068960_15ac2cefa0_b.jpg)
 
 ![Khuri - 2](http://farm7.static.flickr.com/6231/6323538799_bffbe64507_b.jpg)
 

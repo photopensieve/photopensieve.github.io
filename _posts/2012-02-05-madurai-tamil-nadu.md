@@ -3,7 +3,9 @@
 *This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2012/02/madurai-tamil-nadu.html).*
 
 ![Photo 1](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgkMB5GIp6mTBOCXYrki9YQUQucQ5QThH3dVQy35vmfQdY07Y28sQmxiOpOAOTeog0HcTRP0Um6fGXPZkXJvxCAAc7XIETj9SqG8cIjFmNHy1_viGSXNzA3qClGcriPOPnFKkKDxvhdPXJf/s1600/photo+1-726068.JPG)
+
 ![Photo 2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLMHWM2GnhOUmkmq4WwmFhzZrYf3veXP4iWzF1NaaKxTZ1XIdGTP0i2Fy5yGn2AuUgOs90p6w6Dn6NbmoHayXa8bbt272seHS5Bp_vCz1Wa7mH_SLUzmrm9QAmm_3_n3tzwnRt0mFylKGp/s1600/photo+2-727357.JPG)
+
 ![Photo 3](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg2qUTY9NAeVOObC_PQYsoWyUi4yWT6gmeXUme3JGpDmeibU3j1mzkeq8aKZFXEhnp15IcBCOvGNMTkRRpHb8yRxvc9jYIsHjKkvXVi7tnEzVpemjSJmiOeku5QFWs-3I4FIJApBUWhTNN8/s1600/photo+3-728282.JPG)
 
 My first stop in Tamil Nadu was Madurai, one of the oldest cities in India and home to one of the most important temples in South India, **Sri Meenakshi Temple**. As usual, I took the bus from Munnar to Madurai. Midway, the bus stopped for lunch in the middle of nowhere. I was quite hungry, so I went into the only "restaurant" there, a roadside eatery. When I sat down, the server placed a banana leaf and a glass of hot water in front of me. Not knowing what to do, I watched someone at another table demonstrate: open the banana leaf, wash the inner side with water, and use it as a plate. Afterward, rice, dhal, and vegetable stews were served on my "plate." The meal was delicious, and I even had seconds—all for just 35 rupees (around $0.70)!
