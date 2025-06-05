@@ -38,7 +38,7 @@ This midnight sun phenomenon is fantastic for photography in terms of available 
 
 The best way to explore Iceland is by renting a car and driving the Ring Road and various side routes. While tour buses are available, they lack the flexibility needed to truly experience the country. You'll miss hidden gems, can't adjust your schedule for weather, and are limited to the most touristy spots.
 
-A campervan offers significant advantages over renting a car and staying in hotels. Budget-wise, accommodation costs in Iceland are extremely high, often $200-400 per night for decent hotels. Campervans provide shelter, accommodation, and cooking facilities in one package. The flexibility is invaluable—you can cook instead of eating at expensive restaurants (meals can easily cost $30-50 per person), and you can change your plans based on weather conditions.
+A campervan offers significant advantages over renting a car and staying in hotels. Budget-wise, accommodation costs in Iceland are extremely high, often 200-400 dollars per night for decent hotels. Campervans provide shelter, accommodation, and cooking facilities in one package. The flexibility is invaluable—you can cook instead of eating at expensive restaurants (meals can easily cost 30-50 dollars per person), and you can change your plans based on weather conditions.
 
 Be prepared for Iceland's high costs. Gas prices are roughly double what you'd pay in the US, and food prices are generally 30-50% higher. A simple grocery run can be shocking, but even then, cooking in your campervan helps manage expenses.
 
@@ -107,7 +107,7 @@ Some campgrounds offer truly spectacular settings—our first night at the campg
 
 Payment methods vary—some accept on-site payment, others require online booking. For unstaffed sites, you can camp first and pay when attendants arrive in the morning.
 
-Campgrounds typically charge per adult, averaging $20 per night. Our range was $15-23 per adult. A camping card provides access to certain sites for 28 nights at around 170 euros, which can be tremendous value for longer trips or if you're flexible about locations. After research, we decided against it since it would limit our campground choices, and we only stayed at a couple of participating sites in the end.
+Campgrounds typically charge per adult, averaging 20 dollars per night. Our range was 15-23 dollars per adult. A camping card provides access to certain sites for 28 nights at around 170 euros, which can be tremendous value for longer trips or if you're flexible about locations. After research, we decided against it since it would limit our campground choices, and we only stayed at a couple of participating sites in the end.
 
 Facilities range from basic (toilets and showers only) to well-equipped (kitchens, laundry, common areas). All were clean and well-maintained, though some were definitely nicer than others.
 
