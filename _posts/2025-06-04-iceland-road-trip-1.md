@@ -111,5 +111,6 @@ Campgrounds typically charge per adult, averaging 20 dollars per night. Our rang
 
 Facilities range from basic (toilets and showers only) to well-equipped (kitchens, laundry, common areas). All were clean and well-maintained, though some were definitely nicer than others.
 
+⸻
 
 In the second part, I will share our itinerary, and our experiences in Iceland.
