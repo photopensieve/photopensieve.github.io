@@ -6,7 +6,9 @@ After an incredible journey through Egypt and Jordan, we visited Emirates briefl
 
 This particular trip focused on **Tuscany's hidden gems**, with unforgettable detours to **Cinque Terre** and **Lake Garda**. While I'd been to Florence before, I knew this journey would reveal that Tuscany is so much more than its famous capital city. What unfolded was a perfect blend of iconic destinations and off-the-beaten-path discoveries that reminded me why Italy holds such a special place in my heart.
 
-## Our Italian Odyssey: The Complete Itinerary
+![](/img/Italy/itinerary.png)
+
+## Our Italian Road Trip: The Complete Itinerary
 
 Our adventure began at Bergamo Airport, where we picked up our rental car and embarked on a clockwise journey through Northern and Central Italy. From Bergamo, we headed north to the stunning shores of Lake Garda, then traveled west to the colorful villages of Cinque Terre, with a delightful stop in Parma along the way.
 

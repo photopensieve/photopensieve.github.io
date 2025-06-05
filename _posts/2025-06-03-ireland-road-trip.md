@@ -52,6 +52,8 @@ Before you book that rental car, here's something most people don't know: most t
 
 This wasn't my first time driving on the left side of the road, and honestly, it was even easier this time around. I didn't encounter any major issues, and the Irish drivers are remarkably considerate—a pleasant surprise that made the whole experience much more relaxed than expected. More on the whole driving experience in Ireland in the FAQ section.
 
+![](/img/Ireland/itinerary.png)
+
 ## Our Two-Week Itinerary
 
 Since we planned to tour much of the island, spending several days on the road was inevitable. We began with two nights in Dublin without a car, then picked up our rental at the airport and headed south to Killarney, stopping at the Rock of Cashel along the way. Killarney became our base for three nights, giving us time to explore both the Dingle and Beara Peninsulas on day trips.
