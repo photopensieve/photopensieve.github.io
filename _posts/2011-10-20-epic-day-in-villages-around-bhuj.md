@@ -36,7 +36,7 @@ Once thing that fascinated me in this trip was that NONE of the people that I ph
 
 We left the family as happy as we could get, thinking that we had the best day ever. But we didn't know what was waiting for us next! We got into the rickshaw and headed back to the city. The sunset was the most beautiful with a red sky and sparse clouds. But suddenly. it started to rain! It was a light drizzle and it was a cherry on the top! The smell of the earth and the beauty of the sunset was just mesmerizing. BUT, the light drizzle grew to a giant thunderstorm and a heavy downpour! Rickshaws has no doors, so I got DRENCHED to my bones! It got so cold, that I was literally shivering! Unbelievable! The monsoon is way over, and it highly unlikely and bizarre to get such a heavy downpour at this time of the year in Gujarat. Anyways, this was an epic end to an epic day!
 
-Side notes:
+## Side notes:
 
 - I had an awesome and unforgettable day. I do not regret the detour and not making it to Goa!
 

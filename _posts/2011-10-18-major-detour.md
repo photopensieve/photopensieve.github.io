@@ -12,7 +12,7 @@ I quickly asked the train conductor about going from Jodhpur to Ahmedabad, the c
 
 I arrived in Ahmedabad around 4 PM, and fortunately found a locker room in the station and put my backpack there. Then I went to the ticket counter and bought a ticket for that night to Bhuj. But I was in the waiting list, and didn't make it to the confirmed list half an hour before departure, and had to reimburse it. But to my luck, there was place in the sleeper compartment, which I happily took. Next morning, I arrived in Bhuj! 
 
-Side notes: 
+## Side notes: 
 
 - In the way to Ahmedabad, the train stopped beside a slum for some unknown reason, and after a while, a boy of 8-9 year old ran to the train and started throwing stone to the train (thankfully not the windows) with such resentment that was a shear astonishment to me! He was crying and throwing stones at the top of his strength. After some time, the train started to move and he stopped. Such a bizarre and shocking scene! 
 
