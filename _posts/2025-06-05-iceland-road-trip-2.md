@@ -109,6 +109,8 @@ We also visited the Shark Museum in Bjarnarhöfn, where we tried the infamous fe
 
 The coastal towns of Grundarfjörður and Ólafsvík are beautifully situated with dramatic mountains as backdrops and numerous waterfalls cascading into the sea. These small communities perfectly capture the essence of Icelandic coastal life.
 
+![](/img/Iceland/Aerial.jpeg)
+
 ## Flight Back Home
 
 Our morning departure meant staying overnight at the Keflavik Airport Hotel. While expensive for what it offers, the hotel's location right next to the airport made the early morning flight logistics much easier.
