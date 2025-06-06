@@ -1,7 +1,5 @@
 # Ollantay and Machu Picchu
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2017/09/ollantay-and-machu-picchu.html)*.
-
 Ollantay was our next stop, and our gateway to Machu Picchu. We took a minibus (S/. 2) from Urubamba bus station to Ollantay, which took 30 minutes or so. We then had breakfast, and went to the hotel. It was the same bare-bone kind of hotel, but strategically located close to the train station and the town center. We went to the Perurail and retrieves our tickets (previously bought) for tomorrow. We're gonna get the first train at 5:00 AM! Hopefully the weather would be good tomorrow. We then went to the ruins that are famous for being one of the last stronghold of the Incas against the Spanish conquistadors. They even defeated the Spanish in this place. I don't know much about the history of how the Spanish conquered the Latin America, but I know it was through a lot of brutal wars, and diseases of the old world. 
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgV13WsAGp3BU-rbW4-zxpC6OM9cMBH4ZBW27R0ry62BeP0zCmJHvHkGYcQI47WQ32UvOo2annUDAMeLhyWxLqQzjblzJG19pjY8tQpHFdj6PJfQ1_QJMg9714BrclGLe89B0tlgMWBhweA/s5000/%255BUNSET%255D)

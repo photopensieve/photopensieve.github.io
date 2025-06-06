@@ -1,7 +1,5 @@
 # Wrapping Up Italy Trip - With a Mishap
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/06/wrapping-up-italy-trip-with-mishap.html)*.
-
 After spending a great time in Puglia region, we headed back to Naples area to return the car, and leave for Dubrovnik, Croatia. Since the drive was long, we decided to break it down, and visit a couple of places on the way: Castelmezzano and Caserta.
 
 ![](https://lh5.googleusercontent.com/zuGSeO1wAHcxA3ZWR_O2ZijuTRWTscbRQui-zVNpnVFV7ArMmSO0rW23vO49eEyxfzc)

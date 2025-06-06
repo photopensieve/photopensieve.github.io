@@ -1,7 +1,5 @@
 # Pushkar: Mela and Relaxing
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2018/11/pushkar-mela-and-relaxing.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgo7uTnuIqiv2b9i3KHTMppXewoL48uOEns8hDCoDmha9vg5J4PBp08I0bFLlg0XNFasrbXChmTRfPUNG7N0FxlpIjk0u8bth3Dv7cxhYWwOkCQ9VL8U4AsifO8FcFQkbMwZHYsd0yKSNSg/s5000/%255BUNSET%255D)
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilx_3AqS4ojx22uN7rfV9lwLH5qxsHej6Kx_rTLskPtSQVIXuTsCVySJv2fXYzOV5EmZtRxFoxbv5nhttjg69Pm_ibcIP-1CTVG3U04LPIrLCPbyeyJmMrGsEd1DAS9jmULSn1wq_zte7p/s5000/%255BUNSET%255D)

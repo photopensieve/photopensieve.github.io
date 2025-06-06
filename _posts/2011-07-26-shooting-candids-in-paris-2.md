@@ -1,7 +1,5 @@
 # Shooting candids in Paris - 2
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/07/shooting-candids-in-paris-2.html)*.
-
 In the previous post, I talked about my experience in shooting with an 85mm lens in Paris. I also had a 40mm lens with me in Paris, and another night I tried to take candids with it. With 40mm lens, you should be close to your subject. The closer you are, the more dramatic and intimate your picture will be. As Robert Capa said, if your pictures are not good enough, you're not close enough. But this poses a problem. It's very awkward to get close to total strangers and enter their personal space. Some people do it, and do it in the most awkward way, but I can't. [Bruce Gilden](http://en.wikipedia.org/wiki/Bruce_Gilden) gets as close as possible to people with a wide angle lens and a flash shoot them directly into their faces. But that's Bruce, and not me!
 So to get around this problem, I came up with a trick! I noticed if I stay still somewhere with many people passing by, they might notice me, but then they quickly look away. So I had the camera in my face, looking through the viewfinder, spotting possible subjects and letting them get closer and shoot! There was only one guy passing, and spotting me, he put his hand in front of his face, and I didn't shoot him. But other than that, everyone's reaction was normal.
 

@@ -1,7 +1,5 @@
 # Pokhara to Varanasi
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/10/pokhara-to-varanasi.html)*.
-
 
 My next destination was Varanasi, or as popularly known, Benares. I had two options: Go back to Kathmandu by flight, and fly to Varanasi, or go overland. The first option was the most convenient, but ridiculously expensive. I had to pay around 270 sfr for two short flights! So I chose to go overland. For that, I had to take an 8-hour bus to go to the border town, Sunauli, cross the border on foot, and take a bus to Gorakhpur, and then Varanasi by train.
 

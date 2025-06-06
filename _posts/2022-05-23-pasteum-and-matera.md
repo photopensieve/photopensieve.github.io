@@ -1,7 +1,5 @@
 # Paestum and Matera
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/05/pasteum-and-matera.html)*.
-
 After having a fantastic time in the Amalfi Coast, we headed to the Puglia region, which is the heel of the Italy’s boot. It is rather a long drive, especially with a baby, so we decided to break it in two parts by staying a few nights in Matera, which is world-renowned for its cave dwellings. On our way to Matera though, we decided to add another half-day destination: Paestum. This worked perfectly (more on that later), as we had just enough time to visit Paestum, and get to Matera by early evening.
 
 ![](https://lh3.googleusercontent.com/1nFUSi5TdgngdM0n8H9GrFK7AmsqrR9YgxzxptldiloQCkaVGXIJ63k8PAeYlMHrFlU)

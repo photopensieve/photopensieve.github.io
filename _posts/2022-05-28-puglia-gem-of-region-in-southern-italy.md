@@ -1,7 +1,5 @@
 # Puglia: A Gem of a Region in Southern Italy
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/05/puglia-gem-of-region-in-southern-italy.html)*.
-
 ![](https://lh5.googleusercontent.com/sM9Dz2tE-oayM1dnsQLXkRsb7eYfyNYS-bJxZss-yO135ijIMztNxWkO97XtxcaCh6k)
 
 Puglia is an agricultural powerhouse in Italy, producing 40% of olive oil of all Italy, just as an example. It is also one of the longest inhabited, and archeologically rich regions in Italy. However, it is comparably an understated and under-visited region located on the heel of Italy’s boot. Most (non-domestic) tourists stick with the triangle of Rome, Florence and Venice, and some of the more seasoned travelers even venture into the south, but sticking to Pompeii and Amalfi Coast. But few even know of the Puglia region, let alone visit it (I personally didn’t know much about it until 6 months ago). Puglia is well-known to the domestic tourists though, as they seek its regional cuisine, sun-soaked white washed small towns, and pristine beaches. And this is exactly why we went there as well.

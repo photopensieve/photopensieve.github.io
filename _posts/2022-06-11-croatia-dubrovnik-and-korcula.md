@@ -1,7 +1,5 @@
 # Croatia: Dubrovnik and Korcula
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/06/croatia-dubrovnik-and-korcula.html)*.
-
 After more than 5 weeks in Italy, and the mishap that I talked about in the last post, we finally arrived in Croatia. We had never been to Croatia before, so we both were looking forward to the visit. We started our trip in Dubrovnik, which is the most popular destination in all of Croatia. There we met with my cousin and his wife who came from Hamburg to stay a few days with us. This was an amazing experience, as not only we had a great time together, but they got to take care of us a bit too!
 
 ![](https://lh5.googleusercontent.com/eh5hAfbh2efj7CQIHNL71E58Tp6Z4a_LsT6MAi-JhG5bibHGJRTD2F9E0KT0VdQrsBk)

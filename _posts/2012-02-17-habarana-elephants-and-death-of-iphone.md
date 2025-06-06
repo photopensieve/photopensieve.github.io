@@ -1,7 +1,5 @@
 # Habarana: Elephants and death of iPhone
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2012/02/habarana-elephants-and-death-of-iphone.html)*.
-
 After spending such quality time in the east, I headed back towards the center, to spend some time in the hill country. I got a bus from Trinco to Kandy, but in the middle of the way, I decided to get off in Habarana. Munawwar told me that over there I can see elephants more than anywhere else. So I got off the bus and found myself a room, and headed out.
 
 I wanted to see a close relationship between a mahout and elephant, for example while scrubbing it. Elephant by itself was not what I wanted to photograph, but the interaction between human and elephant was what I was looking for. So I went around and asked where I can see the daily bath, but I found out that it is done only in the morning, between 8-11 in a creek near where I was staying.

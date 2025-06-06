@@ -1,7 +1,5 @@
 # Two-Week Road Trip in Europe
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2023/10/two-week-road-trip-in-europe.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhA04243zyO7DE9mIxYguvTmkpbRUPRJFiEhO7K_b0tiMOSFw_zwozIGB55lOQ2wU-QD4h94IbxfJIfz5PAU1JeYJSnxATL-CZi36J3ruHSCzWHNCnic5SdBMOAdMI8U6PPAmxPND_o_bbb8S5tItCtHt-LycPagah5xMEVgQfyJJrPEperm-heOgq4NAEp/w640-h640/DSC07736.jpeg)
 
 We kicked off our long-term travel by a road trip starting in Frankfurt. Our flight from Seattle was with Condor (a German low-budget airline), and was largely uneventful, i.e. it went well. Our son happens to LOVE flying, so he is super excited to be on the plane, and after playing some games and watching some cartoons, he slept most of the way to Frankfurt. We rented a car, a hybrid Jeep Renegade (which caused us some problems, but more on that later), and did a loop in Germany, Luxembourg, and France. The focus of the trip was mostly smaller towns and villages. Before I recount the details of the road trip, I’m going to delve a bit into what we brought with us.

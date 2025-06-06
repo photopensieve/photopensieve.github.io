@@ -1,7 +1,5 @@
 # Cambodia: Temple Hopping in Siem Reap
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/03/cambodia-temple-hopping-in-siem-reap.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjjGSjcyidtcZj92v2xu9Ro8mcoq70PeHZzbzxSXts_WGCG17-pkGodR0jLUAduKCuYzP2twHUmvNkGi_mGrjF2kYlmpCBB6Tquxh14Cq2BALQ6yhMif9Va1nGmlscTNpYDCdmgZxpoIgovGS9OKXAnQjUQdoSSm40xZ3AlIU4rbsLruvfCeiLDWkLxKHiF/w640-h360/DSC01582.jpeg)
 
 After a wonderful trip to Hong Kong and Taiwan, we ventured back to Southeast Asia to explore Cambodia. Looking back, it might have been ideal to visit Cambodia in between Thailand and Vietnam. However, despite the short distance, the flight from Siem Reap to Ho Chi Minh City was prohibitively expensive, so we postponed our Cambodian adventure. Our focus during the 8-day stay in Siem Reap was exploring the magnificent Angkor Archaeological Park, more popularly known for one of its temples, Angkor Wat.

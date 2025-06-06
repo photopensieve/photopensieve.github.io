@@ -1,7 +1,5 @@
 # Hip shooting
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/08/hip-shooting.html)*.
-
 Just a quick piece of news. I have two BIG travel plans with special focus on photography soon! I will try to write about the way I choose my destinations, what I like to shoot over there, preparations for the trip, and the gear that I will take with me. So stay tuned!
 
 Back to the topic of street photography! Another way of doing candid street photography is the so-called "Hip Shooting", meaning that you would keep the camera at your hip level and shoot. But why would you do that? Because it is inconspicuous. People do not notice and do not behave differently because they are being photographed.So how do you frame, focus, etc? If you have a SLR with fixed screen and no live view, you simply don't! You just try and try and 1 out of 10 shots can come out almost right! But the best is to have a camera with tilting screen, live view, and a fast autofocus. That's why I think the new Olympus E-PL3 is a winner in this regard!

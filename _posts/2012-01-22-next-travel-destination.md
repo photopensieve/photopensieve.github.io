@@ -1,7 +1,5 @@
 # Next travel destination!
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2012/01/next-travel-destination.html)*.
-
 It's been long since I updated this blog. After returning from India, I had a lot of things to attend to. To name a few, defending my thesis, applying and eventually getting a postdoc grant, and getting ready to leave Switzerland to NYC.
 
 I then found a gap time of two months, that I had to quickly decide what to do with it. Staying in Switzerland was not a good option as I did not have much to do over there (except skiing!), and it is damn expensive. So I decided to visit back my family in Iran for a few weeks, and then travel for the rest of it. But where? For me it was obvious: INDIA AGAIN!

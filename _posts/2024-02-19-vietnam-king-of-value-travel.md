@@ -1,7 +1,5 @@
 # Vietnam: King of Value Travel Destination - Part 1
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/02/vietnam-king-of-value-travel.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBA-R5O9BP2kiXWI3um7vi60-c6boBxPY1kIrSSkqsETvCIZvSiIT6BrBgRSMJgXZv_bcSNz_SGio6KVDUIwiHocqvkWw6RuLHBf-Ct9VrrklDT88WcjLU6fW4fGXMcj4aC4AyfIb7fnkCpCxCh8qFyz5ncwWsSL0C2O0yLgxTjy1tJEVwxdkHcnjc_gog/w640-h480/DSC00177.jpeg)
 
 Vietnam is the second stop in our trip to Southeast Asia as part of our round-the-world trip. We stayed close to a month there, but we wished we could have stayed more. We loved the food, the culture, the nature, and the highest bang-for-the-bucks travel experience we’ve ever had!

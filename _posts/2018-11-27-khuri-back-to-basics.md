@@ -1,7 +1,5 @@
 # Khuri: Back to the Basics
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2018/11/khuri-back-to-basics.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh5VFe7lxvStNxUUW83MCTWrL955qs2w61JYBpaPVVOmZC0uIqlEwevvb0u7evzMfL11IFfBNc7s0-4ImCIPspnIpyNvpzFKvQWvV-fs-EqJX8aRAMgJOtdmPDoNLatAd-KZvDozYYMsxsR/s5000/%255BUNSET%255D)
 
 After Pushkar, we went to Jodhpur by train. Jodhpur is also known as the Blue City, because of the blue color of some of its houses which makes a perfect backdrop for photography. Around a corner, we met a guy with a big print of famous [Steve McCurry's photo](https://www.cavaliergalleries.com/artist/Steve_McCurry/works/4916) claiming that the boy running in the photo is his son, and he showed me the corner, which had a different look now. I don't have any reason to doubt his claim. I tried my luck at taking photos in that part of the town, but none of the photos turned out as nice as Steve's. Oh well. 

@@ -1,7 +1,5 @@
 # Zonlai 25mm 1.8 - First Impressions and Sample Photos
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2016/01/zonlai-25mm-18-first-impressions-and.html)*.
-
 I've always wanted an affordable, small, fast 35-40mm FF equivalent lens for my Sony NEX-6, but unfortunately, there are not that many options available. There's the excellent Zeiss 24mm 1.8, but it is too expensive. And that's pretty much it. So when I heard there is a Chinese pancake lens that fits the bill, I went ahead, and bought it from Amazon for around \$130 (sold by a third-party seller from China).
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfr57t6hxzv0REpm4PELXJpT71FS4HmwWdN6EEpoksQtO7Ay4CQX-lIfmml8MJGwYW2tN4iq9wrzwSHoFxt3Ykl3C8ofD4LN0S7-q-tDjsh_YJ1HQ00blRHm1GZs7EpKn9R_zCnqt1u2IE/s320/IMG_0971.JPG)

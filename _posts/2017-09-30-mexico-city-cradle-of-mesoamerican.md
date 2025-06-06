@@ -1,7 +1,5 @@
 # Mexico City: Cradle of Mesoamerican Culture
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2017/09/mexico-city-cradle-of-mesoamerican.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBOGY0XR6bxbydL_56uLjmniLkqiDeTXJG25jd46_BnDvFrfRH7EQ8Vmlh8AqDLvaJpADw02kc4edjhSjNjE3-SWiitmvLj0GB0pkq73-FjdgLCfhEb62epl-8SVG1xef13qu69X93sHhC/s5000/%255BUNSET%255D)
 
 We arrived in Mexico City from Lima, thankfully without any surprises from the Latam airline, like last time. We got a taxi to the hotel (Hotel Casa Gonzalez), and took some rest. We went out for dinner and short walk around the hotel. The district we're staying (Zona Rosa) looks upscale and nice. The weather is mostly cloudy with some drizzle in the afternoons. It's the typical weather for this time of the year.

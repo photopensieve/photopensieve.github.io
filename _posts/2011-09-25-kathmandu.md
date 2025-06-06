@@ -1,7 +1,5 @@
 # Kathmandu
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/09/kathmandu.html)*.
-
 I arrived in Kathmandu by Qatar Airlines last night. The flight was great, I got the visa at the airport, and the hotel taxi was there when I came out. There was also an American guy named Kaleb taking the taxi to the hotel. The drive was fun. We saw lots of dogs prowling around, though we were told that they are not so harmful. But they were literally ruling the city! We saw some cows in the street, searching in the garbage for food.
 
 Anyways, we arrived at Hotel Silver Home in Thamel, the touristic part of the city. The room is okay. It’s below one-star standard, but I don’t mind.

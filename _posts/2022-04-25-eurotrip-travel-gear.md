@@ -1,7 +1,5 @@
 # Eurotrip travel gear
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/04/eurotrip-travel-gear.html)*.
-
 ![](https://lh3.googleusercontent.com/iadMWvn98DbhV4HRdprUsz0EGRpj9Xn6ku3C9WcVbwln7-AxXQDh4t_hT8x9_hLS4mM)
 
 We are in Rome now, and had a great day going to Vatican today (more on that in a separate post). But for this post, I decided to discuss about the logistics of our travels, especially the travel gear. I’ve seen people checking in multiple bags for even short term travels with babies. But we decided to go exactly the opposite and travel with minimal gear, since we are going to be traveling with trains, public transportation, and small rental cars, while having to handle an active baby. We are going to have two carry-ons (1 backpack and 1 luggage), two personal bags (camera bag, and diaper bag), and a baby stroller. This way, I can carry the large bags, and my wife can carry the baby, diaper bag, and the stroller. If we miss something, we’ll buy it over there. 

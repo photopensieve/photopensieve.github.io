@@ -1,7 +1,5 @@
 # Ask them or not? - 2
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/07/ask-them-or-not-2.html)*.
-
 Here is another example of when I asked for permission to shoot:
 
 ![The flower guy](http://farm7.static.flickr.com/6123/5919732806_520b258847.jpg)

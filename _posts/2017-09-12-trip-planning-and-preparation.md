@@ -1,7 +1,5 @@
 # Trip Planning and Preparation
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2017/09/trip-planning-and-preparation.html)*.
-
 We are just a few days from our two-week trip to Peru and Mexico! So I thought I share our itinerary and preparation steps.
 
 

@@ -1,7 +1,5 @@
 # Steve McCurry, The Master of Moment and Color
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2013/01/steve-mccurry-master-of-moment-and-color.html)*.
-
 I just spent an hour or two going through all photos on [Steve McCurry's blog](http://stevemccurry.wordpress.com/), flipping through many many pages of excellent photos and collections. Steve McCurry, internationally acclaimed for his Afghan Girl photo, is a veteran travel photographer who has spent most of the last 30 years of his life travelling around the world. Just to give you an idea, he's been to India only, more than 80 times! 
 
 Steve McCurry's keen eyes and his great taste for colors have created splendid photographs that are true feasts to eyes. Going through his photos, you smile, laugh, frown, reflect, and grieve. It's all about us, humans, in different places and cultures, in funny situations or in distress, in familiar or exotic locations, but all so understandable. I highly recommend taking the time and going through his blog (you can meanwhile listen to the beautiful [Lullaby song from Life of Pi](http://youtu.be/KlCYCV1nuZc), to get in a good mood). I sifted through his photos, and made a selection for myself to come back to from time to time. Studying photos of great photographers is a key step for improving one's vision and photography, and I thought of sharing them here.

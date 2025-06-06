@@ -1,7 +1,5 @@
 # The gorgeos Ajanta and breath-taking Ellora caves!
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/10/gorgeos-ajanta-and-breath-taking-ellora.html)*.
-
 I got a sleeper train from Bhuj to Mumbai on the 22nd. The sleeper class is just the limit of bearable train travel in India for me! Anyways, I arrived in Mumbai Bandra station, having no train ticket or hotel reservation afterwards. My plan and hope was to be able to buy a train ticket for the same day to Aurangabad using tourist quota. This could only be done in Mumbai, so I had to do it right away.
 
 After some lengthy inquiry from the train station ticket office, I found out that I could only buy it in a ticket office close to Churchgate train station in downtown Mumbai. I took a taxi for 200 rupees for that long trip. When I arrived, the ticket office was still open (it was a Sunday), and thankfully, there were still some tickets to Aurangabad for the same night by tourist quota! So lucky I was! I also got my return ticket for three days later.

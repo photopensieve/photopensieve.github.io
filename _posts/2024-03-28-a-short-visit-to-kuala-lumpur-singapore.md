@@ -1,7 +1,5 @@
 # A short visit to Kuala Lumpur and Singapore
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/03/a-short-visit-to-kuala-lumpur-singapore.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj4YzQsjMc-FKm5Mxska61iBtNtljqANaI0_Vid4WBQrsNCFpMkfB1oJPbFRH2LDnGUp38zi_rfLUzvUtoqrfJ_M9QlAGzav_TT4KZgbeWaclQvoJSyOLTYpALJ_l_FBjpRGNmD6hGitAridTZNo4IF4uPStVcGPJjZrNFLFBqbtIiFldyOVhVP2hRFROjt/w480-h640/DSC02102.jpeg)
 
 We continue our SE Asia trip by visiting Kuala Lumpur and Singapore for 6 and 4 days, respectively. Malaysia and Singapore have a lot in common, which I’m going to touch on later, but there also have important differences.

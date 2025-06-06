@@ -1,7 +1,5 @@
 # Naples, Pompeii, Capri and Ischia
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/05/naples-pompeii-capri-and-ischia.html)*.
-
 ![](https://lh4.googleusercontent.com/ysOuZLB-zJaa3I39o7LtbMs6voU_6UVxQOy73DS8CiLjVdx_WonE3YRhQCyIftHbb50)
 
 In the second stop in our long-term travel, we arrived in Naples by a fast train from Rome. We stayed 7 days in Naples area, including a two-day visit of the island of Ischia. The Naples region is blessed with natural beauty, culture, good food, and a long colorful history. Basically all you can ever wish for a travel destination!Naples![](https://lh4.googleusercontent.com/vsnM2zNX2ox20LC733QzeL8yg3hT5HblxlUkMEokxj3zY75LjCRg5vo3ZZRZ0-ZvU2Q)

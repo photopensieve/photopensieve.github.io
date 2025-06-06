@@ -1,7 +1,5 @@
 # We're going back to India!
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2018/09/were-going-back-to-india.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiW63QIigrTfrvhsKzWPhq2inpGZw-UPuy3oJ4tz7hXulhpjg4_DxQ9h_-kH1yiJ4tEcyTomj_fpAACBXLlJyCLcH3FYp0D39Yec4chWMubQapv472fB8FeZgSHmA-B1Z6nbxh4Vva_xW8j/s640/6318413560_036c68346c_z.jpg)
 
 It's been seven years since I did my first trip to India; a trip that filled me with great memories and experiences, and photography-wise, it was a [blast](https://www.flickr.com/photos/8413680@N08/albums/72157628000459543)!

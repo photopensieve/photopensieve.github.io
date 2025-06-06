@@ -1,7 +1,5 @@
 # Gear Update!
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2018/09/gear-update.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjPy5QohLY3Nivuv2nsySk0ny2kTzDATxXgH3F0CTs5E3YMXhQuRo7EwVJDabqYvzYtAUQnpDrTS_bHne277hlCHtxlbLDEeagDI5NqThW00LLc_lnsZyc_meCYSyM1ifQWaJoPNnjSrvjG/s640/Screen+Shot+2018-09-30+at+9.51.53+PM.png)
 
 So as I said in my last post, I was thinking about either renting, or buying new gear for my upcoming trip to India. I seriously considered renting, but at the end of the day, I decided not to for a few reasons: 1) It would have cost me more than \$400 to rent a Canon 6D mkII and a Sigma 35mm 1.4 for the period, 2) I wouldn't have had enough time to get used to the camera, 3) if for whatever reason the rental camera/lens was defective, I wouldn't have had enough time to replace it. So I decided to upgrade my gear.

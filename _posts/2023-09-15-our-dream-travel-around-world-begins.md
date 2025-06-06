@@ -1,7 +1,5 @@
 # Our Dream Travel Around the World Begins
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2023/09/our-dream-travel-around-world-begins.html)*.
-
 ![A map of the world with a camera and passport resting on it](https://media.nomadicmatt.com/2020/rtwticketsmap1.jpg)
 
 We began dreaming of a round-the-world trip in 2015, and over the past 8 years, that desire has only grown stronger. We even were considering to do it in early 2020… but now, we're finally making it happen!

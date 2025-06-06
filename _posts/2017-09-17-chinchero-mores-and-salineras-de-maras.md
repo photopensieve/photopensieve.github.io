@@ -1,7 +1,5 @@
 # Chinchero, Moray and Salineras de Maras
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2017/09/chinchero-mores-and-salineras-de-maras.html)*.
-
 After a good night sleep, we had breakfast prepared by the kind owner of the lodge, and then headed out. We took a local bus and arrived at the village of Chinchero. We specifically opted to take local transportation, instead of private tours which are most common for the tourists here. It's cheaper, and you get familiar with the way locals live. We visited the church and the local Sunday market. Chinchero market is supposedly less touristy and more authentic than other markets (most notably the Pisaq market), and indeed there were fewer tourists there, and most were locals. We even saw a few people bartering!
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFvuJXafQK0TFyJVMkTE1ppx2yJQUExRj7p3qCoiMgVzHu0jILSapb5lRUEXhKfNWNpiVkVReWD5A7J60EOwieKXKf_xCAM1M2KPhgwfGbi_YU4JxtfBR64k7HFOdWOa2XC5nWi-czay_9/s5000/%255BUNSET%255D)

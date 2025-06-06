@@ -1,7 +1,5 @@
 # Split and Plitvice Lakes National Park
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/06/split-and-plitvice-lakes-national-park.html)*.
-
 ![](https://lh3.googleusercontent.com/yCrDMw2fuj5_QA3pxAo6rtkkdSPzeYOYxuK-EGNkSoGaxMCTOTkrEzoC9y1QmV9ajE8)
 
 The second half of our trip in Croatia continued by taking a ferry to Split, where we stayed a few nights, and then renting a car to visit Plitvice Lakes National Park.

@@ -1,7 +1,5 @@
 # Travel to northwest Iran
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/09/travel-to-northwest-iran.html)*.
-
 As I had planned [before](https://photopensieve.github.io/2011/08/09/news.html), I did a 6 day travel to northwest Iran, doing some 2500 km by car. This region has fantastic photo opportunities for which most of them are unexplored and not photographed much. The people are super nice and hospitable, and we met many people who greeted us warmly, inviting us to stay with them or helped us to a great extent. I was surprised by this hospitality and it became the best memory of this trip for me.
 
 Here is the itinerary that we did in this trip.
@@ -34,8 +32,6 @@ We then went along the border, Aras River, to west to see "Saint Stepanos Monast
 ![Handsome Shepherd - 3](http://farm7.static.flickr.com/6079/6156762268_946ddf86ff.jpg)
 
 The next day we went to Tabriz to see Colored Mountains. I had seen great photos of these mountains, but unfortunately I did not find a great spot for photography. In the absence of an exact location, it was difficult to find the location I was looking for. Nevertheless, I took some shots.
-
-![Colored Mountains - 2](http://farm7.static.flickr.com/6157/6172304928_8bc767847c.jpg)
 
 ![Colored Mountains - 1](http://farm7.static.flickr.com/6174/6172303664_7a0d3efd69.jpg)
 

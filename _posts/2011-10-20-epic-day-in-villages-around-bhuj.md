@@ -1,7 +1,5 @@
 # An epic day in villages around Bhuj!
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/10/epic-day-in-villages-around-bhuj.html)*.
-
 Bhuj is one of the calmer cities in India, although it has its own share of rickshaws and noise. The city has a charming old town which was seriously damaged in the earthquake of 2001. But now it's all restored, and you don't see much ruins, except in the old palace. Bhuj is the center of the Kutch district in northwest Gujarat, and it's a perfect base for traveling to the charming nearby villages.
 
 The first day in Bhuj, I just walked around the old bazaar and chatted with locals, found a good restaurent, and went to the tourist office in Bhuj. Over there, I met with Mr. Pramod Jethi, who knows a lot about the region and has written a booklet on it (you can obtain it there). I told him that I am interested to meet village people, and he proposed a one day tour in the nearby villages by rickshaw (for 1200 INR). The tour was a good idea, because the transportation between villages is difficult, and he also could be the translator and guide. I booked a tour for the next day. I returned to the hotel I stay in (City Guest House), and over them I met Charisse, a Canadian girl, who also wanted to do the tour. She was also interested in people, so she was a perfect partner for the trip!

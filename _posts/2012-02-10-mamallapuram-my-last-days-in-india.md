@@ -1,7 +1,5 @@
 # Mamallapuram, my last days in India
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2012/02/mamallapuram-my-last-days-in-india.html)*.
-
 My last destination in Tamil Nadu was the popular village of Mamallapuram, situated close to Chennai. So I had previously got a night train ticket from Trichy to Chennai. The capacity was full, but I managed to get a ticket using the tourist quota. I love travelling by night train, as it saves you a day and also a night in hotel!
 
 I arrived at 5:30 in the morning to Chennai, and got a bus from there to Mamallapuram. I wanted to visit the Crocodile Bank in the middle of the way, and then carry on to Mamallapuram. Crocodile Bank was a lot of fun, and I saw various species of crocodiles there, as well as a snake show where they showed how they take poison from them. They also showed how they feed the crocodiles. It was fun, but obviously it does not come close to what you would see in the wild.

@@ -1,7 +1,5 @@
 # Around the World in 9 Months: A Retrospective
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/10/around-world-in-nine-months.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUiwjcdJjqjJE_Sh0abRavj3YJBN_d6A2wJvMdOUjKhe61b8jo6uI7OzkvBV043F8O1EBv93jJCvdAJYGM3_a-mEOwhh9PK9YdfKStBcq3c2L7SpL7MDMkXuBg6rcbPRBFhFeUrPc3XKca21yt47An4LRjpbnUOn4h80rbqVuMkn6VlmYq4MFfu50V8nV2/w640-h352/IMG_6050.jpeg)
 
 In [September 2023](https://photopensieve.github.io/2023/09/15/our-dream-travel-around-world-begins.html), we (a family of three) embarked on a nine-month-long round-the-world journey, visiting 15 countries across Europe, the Middle East, Southeast Asia, and Oceania. Summarizing such an extensive trip in a single blog post is impossible, but I’ll give it a try to help myself process it all. This might not make perfect sense to others since it’s just a bunch of bullet points with little explanations, but if you’re curious, you can check the individual blog posts for more details and my [Instagram](https://www.instagram.com/photopensieve/) for the photos. Unlike nine months of routine life—which can often be condensed into a few lines about work and the occasional vacation—traveling seems to stretch time, filling it with countless memories. So, here’s my attempt to sum up this incredible journey.

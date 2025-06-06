@@ -1,7 +1,5 @@
 # Scandinavia: Norway, Sweden, and Denmark
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/09/scandinavia-norway-sweden-and-denmark.html)*.
-
 ![](https://lh6.googleusercontent.com/DYMp_749pYna3mYjEF_bIURjJH4Z1AYgfGxfaMmQoqijiYEyv1orNz0uKrRsv_cFgq0)
 
 In the last leg of our trip, we visited Norway, Sweden and Denmark, before heading back home. I had long wanted to visit Norway for its breathtaking scenery, and we decided to combine the trip with a visit to Copenhagen to meet a couple of old friends, and since we wanted to travel by train, we had a short stop in Sweden. This was our first trip to this region, and we were highly looking forward to it.

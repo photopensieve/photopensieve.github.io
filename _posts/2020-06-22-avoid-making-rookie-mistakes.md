@@ -1,7 +1,5 @@
 # Avoid making rookie mistakes
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2020/06/avoid-making-rookie-mistakes.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjD6dYLSZT6z9AY-fpr5tXUwT1SJmA4Wma0tV2IsrNhd9V_IaasY-c-jIWnWG_3MAKsHpsdziObAPqqiiEEFnL1ieevX6ClcJQM8kHHjUArkCwu9UjTKtIOEYFB-k0uD-9TOj3hb-HUI3In/s640/DSC00007.jpg)
 
 We recently came back from a road trip to Yellowstone and Grand Teton national parks, and obviously, I did a lot of landscape and wildlife photography. But as I downloaded all the photos to my computer, and started to work on them, I realized I have done a couple of big rookie mistakes that have cost me some good photos. I kind of feel ashamed that I committed these mistakes, as it shows my lack of mastery over my own camera, which is of course because I'm not shooting as much these days. So I just wanted to share what happened and how I could have prevented those errors.

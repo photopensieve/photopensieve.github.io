@@ -1,7 +1,5 @@
 # Fast 35mm Options on Sony A7R mkII: An Unconventional Subjective Comparison
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2018/10/fast-35mm-options-on-sony-a7r-mkii.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjVotHkCqN-qGvs8OwrGq-RGKyq-EkNe_srOGucJuSgVkx7rtas5CRQggKmBZCatIYqlIMB3vI3VXxqU4Y2EEm2rAmKVUYIFuy6e-IxO_ofr14GVKNRg42unxaHGt8pGwZEAzTvXNYvuXbO/s640/IMG_4217.JPG)
 
 From left to right: Rokinon 35mm 1.4, Rokinon 35mm 1.2, and Sigma 30mm 1.4

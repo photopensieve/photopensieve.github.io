@@ -1,7 +1,5 @@
 # A major detour!
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/10/major-detour.html)*.
-
 I was supposed to go to Delhi from Jaisalmer, to spend one day over there, and then fly to Goa. But now, it's all changed! No Delhi, and no Goa! I'm heading to Gujarat! 
 
 Gujarat is south of Rajasthan, and north of Maharashtra, were Mumbai is located. Gujarat is off the map of most tourists, and they just skip it to reach the other side. But why am I making such a detour and going there? It all started with the photos that Harry, the Australian photographer, showed me in Khuri. He has travelled to many villages around Bhuj, in northwest Gujarat, and has taken a lot of photos from the people over there. When he showed me the photos, I was dumbfounded by the beauty of the clothes and ornaments the women and children were wearing. They wear such exquisitely embroidered dresses like nothing I have seen before. I asked Harry if this was during a festival, and he said no, this is their everyday dress! Moreover, the villages around Bhuj need special permit to enter (which can be obtained in Bhuj), so they are less visited, i.e. less photographed. Gujarat was immediately put in my wish list for the next trip to India. But at that time, it didn't occur to me that I can change my plan now. It would have been much easier, and I could get more information from Harry! 

@@ -1,7 +1,5 @@
 # My photographic thoughts on India - 2
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/11/my-photographic-thoughts-on-india-2.html)*.
-
 In the [previous post](https://photopensieve.github.io/2011/11/12/my-photography-thoughts-on-india-1.html), I talked about my photographic experience in India. In this post, I am going to talk about my photo gear and what worked and what didn't work.
 
 Before the trip, I wrote about my reflections on the photo gear [here](https://photopensieve.github.io/2011/08/14/my-travel-photo-gear-1.html) and [here](https://photopensieve.github.io/2011/08/23/my-travel-photo-gear-2.html). I thought a lot about what to bring and what not to bring before the trip, as it could affect my photographic experience to a great extent. Too much gear, and I had to carry them around with me everyday and it could result in excessive fatigue and less enthusiasm for photography. Too little gear, and I would miss something when I needed it. So here is what I took with me.

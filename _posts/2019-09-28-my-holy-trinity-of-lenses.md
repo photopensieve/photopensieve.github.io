@@ -1,7 +1,5 @@
 # My Holy Trinity Of Lenses!
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2019/09/my-holy-trinity-of-lenses.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTIU44JzB5VF3jbAx4PVHOXkj8n55HDm_M8xmAmwsP7z88ws_BEDmaBHlJ3FAFqgKwDHfRT-OWejEIGeS8GRA9bA2ORsbpV8dnnBSbWzbdtNfRz0nOuP6qKMezmQdw_pFiYvEgmPFg_K48/s640/IMG_5780.jpg)
 
 I love fast, small, prime lenses, and I finally assembled my dream holy trinity! Here they are:

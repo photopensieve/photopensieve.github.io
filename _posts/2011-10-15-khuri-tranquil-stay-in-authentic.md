@@ -1,7 +1,5 @@
 # Khuri: A tranquil stay in an authentic Rajasthani village
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/10/khuri-tranquil-stay-in-authentic.html)*.
-
 After visiting so many cities and experiencing the severe levels of pollution and noise, I needed to relax a bit, so I went to a village called Khuri, 40 km south of Jaisalmer. Early in the morning, I got a rickshaw to the bus station. He wanted to drop me somewhere else, where he said the bus would pass by, but I strongly disagreed, so he had to take me to the station. Over there, like in the city, there were these people coming to me to introduce me to their guesthouses and camel safaris. I said I'm going to Badal's house, and they said it's expensive and blah blah. Obviously, I ignored them and in Khuri, Badal himself was waiting for me at the station.
 
 I had read a lot about the hospitality of Badal Singh, the owner of Badal House, in different forums and blogs over the internet. So I was almost sure about the quality of his work. He does not have people fetching tourists for him, and this says a lot about his reputation. He is a man of character and has a certain peacefulness in his voice. He enjoys having guests and transmits that feeling to you, so you feel right at home with him. This is priceless!

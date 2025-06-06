@@ -1,7 +1,5 @@
 # Rolling Pros/Cons Review of Sony NEX-6
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2012/11/initial-thoughts-on-sony-nex-6.html)*.
-
 Initial thoughts on Sony NEX-6
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBo0iyWcxdpmbUE8zGwBodpo8DKAcecjxP-QELCotAIJ32D6MyUXj17tB5gS5iBcisrVatSNATSevqbKqGJ-imNqQXSez3vUJmz1_N4k7aH4CJdEFeMS9Dt4hFILObMBYrp8Snc88EDWP8/s400/a18f5328c0545bf4a608ed5898ea72fc-752886.jpeg)

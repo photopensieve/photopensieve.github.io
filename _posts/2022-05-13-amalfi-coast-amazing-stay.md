@@ -1,7 +1,5 @@
 # Amalfi Coast: An Amazing Stay
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/05/amalfi-coast-amazing-stay.html)*.
-
 ![](https://lh6.googleusercontent.com/EcI7z1ezKvR3jl2blFU28D7rQgv9jwDb23qTM_kIN0xcFyd-iEsRu7ifwBflXp4RH4o)
 
 Map of Naples and Amalfi Coast on Ceramic. It also depicts Ischia, Capri, Pompeii, and Mount Vesuvius.

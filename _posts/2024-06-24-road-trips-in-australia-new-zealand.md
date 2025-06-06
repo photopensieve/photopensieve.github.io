@@ -1,7 +1,5 @@
 # Road Trips in Australia and New Zealand
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/06/road-trips-in-australia-new-zealand.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuls4yIwrTcpJ908C18zKLV5Mw1_qb7ElKqM-xnEAKeL3ihGCLJ_cGoMBlqhGhMUS7wNdNGA6mVz3e5pF7UT7Py8h_rfSjg2ZaOj2CJfVcRsCLHx7k39NqrZxKUEdQJchYJVtRuuQT1IUqw1NYPHD5pd3m2AQflIn4BRgEQM4vl6xDYw_uvnFridFRXWFB/w640-h640/DSC04276.jpeg)
 
 Our trip round-the-world trip took us from Europe to the Middle East and Southeast Asia, and ended in Oceania and some of the Pacific Islands. We spent almost a month in Australia and New Zealand, where we went on two road trips. In Australia, we tried "vanlife" for the first time, and it was a blast!

@@ -1,7 +1,5 @@
 # Ricoh GR III: A Photographer's Pocket Camera
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2020/01/ricoh-gr-iii-photographers-camera.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgPrIUFt9iel9vX75KRxh3Rh7nyLBAZ1__iIxRa5X24N3K8wsa4sWznqSyX38l95R1CfOiIjBRQ2yMr6M5K3ZaYmeExnYk9cIaJ_k-PfRn7-s_TqTx7A3wY486rTHvAEO23cpmuXoouAskb/s400/ricoh.png)
 
 During the last 14 years as a photography enthusiast, I’ve owned my fare share of cameras (in chronological order):

@@ -1,6 +1,5 @@
 # Madurai, Tamil Nadu
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2012/02/madurai-tamil-nadu.html).*
 
 ![Photo 1](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgkMB5GIp6mTBOCXYrki9YQUQucQ5QThH3dVQy35vmfQdY07Y28sQmxiOpOAOTeog0HcTRP0Um6fGXPZkXJvxCAAc7XIETj9SqG8cIjFmNHy1_viGSXNzA3qClGcriPOPnFKkKDxvhdPXJf/s1600/photo+1-726068.JPG)
 

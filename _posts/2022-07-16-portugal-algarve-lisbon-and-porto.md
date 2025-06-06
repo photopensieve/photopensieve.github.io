@@ -1,7 +1,5 @@
 # Portugal: Algarve, Lisbon and Porto
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/07/portugal-algarve-lisbon-and-porto.html)*.
-
 ![](https://lh5.googleusercontent.com/TDXFO93FB9YOyErnBHJEvr8Vkm_jTnO8iz2BwpxWq1SJ8sSY0wAE3fFc04DJBvzxGrU)
 
 After a day of delay due to the cancellation of our flight by EasyJet, we arrived in Faro in south of Portugal, aka Algarve. Algarve is a well-known holiday destination among Europeans looking for sun. For the first time ever, we decided to stay in an all-inclusive resort for a few days, and see why it’s so popular with parents. I can certainly see why now: You don’t have to cook, do groceries, look for and go to restaurants, etc, so there is a lot less hassle, and decision makings. There are also lots of family-friendly activities, and our son definitely enjoyed them. But I also realized if it is up to me, I would never want to stay in a resort! Don’t get me wrong, resorts are perfect “vacation” places, but are exactly the opposite of “travel” for me. We often use these two words interchangeably, but they are not necessarily the same. More and more I find my travel philosophy to be aligned with what Pico Iyer said in 2000 in his essay on travel:

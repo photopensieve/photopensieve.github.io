@@ -1,7 +1,5 @@
 # 2 Weeks in Hong Kong and Taiwan
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/03/2-weeks-in-hong-kong-and-taiwan.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuaM10u4MMIL6f59S2HVaOXsRe6_prdBdUwIn2FUh-C2do9G-OqqLSXsNVi9bQJO-E-K3yhbpdWCWVmo8zc7u9lXlkIbuMvHMcw7L9-t35iYDVyOcCNS5Trswp2S7B213t6VgRT1HxHuVmQz2Me2aBdq6YS6EW4LIVUn7ap5AccsATfBSohwJ1c0kjrv_R/w640-h360/DSC01050.jpeg)
 
 As mentioned in my Vietnam blog, we originally intended to stay longer, but a visa mishap led us to make new plans. After careful consideration, including researching flight costs, we opted to spend one week in Hong Kong and Taiwan each, before moving on to our next destination in Southeast Asia. This unexpected turn of events presented us with the perfect opportunity to visit two places that had long been on our bucket list!

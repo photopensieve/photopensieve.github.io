@@ -1,7 +1,5 @@
 # Trincomalee
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2012/02/trincomalee.html)*.
-
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgO7wW4vl4vTRB3aUMOkf93Y5YaaXOotEFtBnr8_Ci-rhIqLuCDiuQnGml8QKylBkgFyED_fI_IoezUr8Kb-NXrXd50cpCENRDDsBZuukS9NxMFFSbkjrSplokWGQuMyxlHTQ6j8bIe-L63/s320/photo-777305.JPG)
 

@@ -1,7 +1,5 @@
 # Thailand: Temples, Beaches, and Tasteful Treats
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/01/thailand-temples-beaches-and-tasteful.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1eY72xSqxHVEuFk7PWogWveLe2_IqjQWSdhK3RTbQ1HqsA-SGKNz_56FS9mx2z5yqO3_d0DhzlmLqVinF_VOacdq_DHke1JLNn5TI2twkQnJKyL_J6OShe1-ah8fVDF5hGyh6o-YPIiPLGPUCekZ6DBZHveN26vqss-KS-JURU5LwspBw8w7XW6tfs86S/w640-h426/R0007106.jpeg)
 
 Our major travel destination in this [round-the-world journey](https://photopensieve.blogspot.com/2023/09/our-dream-travel-around-world-begins.html) is Southeast Asia, and we started it off by visiting Thailand. This is our first time in this region of the world and we are super excited for our time here.

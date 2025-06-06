@@ -1,7 +1,5 @@
 # Greece: Sun, Food, and History
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2023/11/greece-sun-food-and-history.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLBmDJGojVeDtMnRmnlu0vBfXMxEOcQzckU8SZlRbZjRrMhAbCi6a0QJ2dXOG7xXw0OJ3ipgfdT-cG20vc6fhtLcCLF3KecqSS5IMRgaxl-5SdbSIXI9_ELnv3uQaUaSkNCV5pweZRC-F6GN20jArBDd_EynZxo_FcTxEnTBvBJPPbTCu0dbiOplz92xbK/w640-h426/R0006207.jpeg)
 
 Our final European destination was Greece, which we were visiting for the first time. We took a flight from Hamburg to Chania in Crete on a budget airline called Marabu. The flight was decent, but we had to pay for even a bottle of water! From the chilly and rainy Hamburg, we arrived in the warm and sunny Crete. Quite a change!

@@ -1,7 +1,5 @@
 # Kathmandu to Pokhara
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/09/kathmandu-pokhara.html)*.
-
 I wanted to go to Pokhara on the 26th, but the rain that started the day before continued till late afternoon that day, more than 24 hours of rain. And by rain I don't mean a light drizzle, but a heavy downpour that didn't calm down a minute! Anyway, I stayed in the hotel till the rain stopped. 
 
 Late in the afternoon, I went out to visit Swayambhu or as tourists call it, the Monkey Temple, at the top of a hill. I don't think the temple has anything to do with monkeys, but it is called so due to the abundance of monkeys over there (though there are loads of dogs and pigeons there too). The temple is one of the most sacred Buddhist sites in the country and it has a large stupa on top of it.

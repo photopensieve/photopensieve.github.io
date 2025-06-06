@@ -1,7 +1,5 @@
 # Karni Mata, aka Rat Temple
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/10/karni-mata-aka-rat-temple.html)*.
-
 ## The Bus Journey from Jodhpur to Bikaner
 
 The bus trip from Jodhpur to Bikaner was quite an adventure by itself. I had my bus at 5 o'clock in the morning. I had gotten my ticket the day before at a travel agency in the city. This time, I was traveling with a "private bus" for the first time. Before, I always traveled with "government buses." They were not very well maintained, but they were quite on time.

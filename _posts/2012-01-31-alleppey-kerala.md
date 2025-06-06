@@ -1,7 +1,5 @@
 # Alleppey, Kerala
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2012/01/alleppey-kerala.html).*
-
 ![Photo 1](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTyE522Zn0IXQymRhxcNi_aKH5sD1v64QQ7hLzZsE3hsTFs4eE2V0PL4xoDIRQit0YP_7SEPDUPp2bE8cnQaMCqgED7MhIgZDd0hLZ586dTPpPezKnNwjpg_IAZKHiOhyphenhyphenvzp-B_GQcBlVG/s1600/photo+1-752727.JPG)
 
 ![Photo 2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhz9G2ObHUaHidObTMAeMUTr8GHRrJ_c7empSyQuVk91x6MipscIwN4zBRF1dQBJZwXM6fwMm0yuy_6sNY46o0ZTm_X2w6v7BCFUDHJAIQUZNtnQnEe81xuj2E3yXfEcQLrPxui4eDix6Mr/s1600/photo+2-754186.JPG)

@@ -1,7 +1,5 @@
 # A Most Memorable Day in Pokhara
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/10/most-memorable-day-in-pokhara.html)*.
-
 As planned the previous night, the taxi came to the hotel at 5 AM. The name of the driver was Lokraj, a calm and modest man of slim build. He could speak English a little bit, like most of the Nepalese I met. The plan was to go to Sarangkot, and 6 or 7 more highlights of Pokhara before the beginning of afternoon. As I was not interested in some of these places, I asked him to take me to see some villages instead. He first didn't like the idea and said the villages are really far, etc. But when I insisted a bit, he agreed (In general, Nepalese people are shy and don't like to say no).
 
 When heading for Sarangkot, we saw lots of local people and taxis going in the same direction. After 20 minutes or so we arrived at the vantage point, and upon the first glance, I was flabbergasted by the awesomeness of the scenery, and the grandeur of the mountains as high as 8000 meters. I have seen the most beautiful mountains in the Alps, but there's a significant difference between the 4000ers of the Alps and these 8000er giants. Their beauty and grandeur should be seen with one's own eyes, and no image can depict it justly! We arrived before the sunrise and I shot the sunrise over there, though there were some clouds partially covering the mountains. Needless to say, over there was full of tourists, all coming with taxis, like myself.

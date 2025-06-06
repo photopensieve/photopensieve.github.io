@@ -1,7 +1,5 @@
 # Iran: Visiting Family and Touring Around the Country - Part 1
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/01/iran-visiting-family-and-touring-around.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-SEZrLitQ-Z6mF49EzQ7aX4yMS5KeBPYiXsV0mC5drzJVcCfguyfyYudNvBifZtJaj1AczSrrICpgtD-_2VjodVR_kPPBn3l7X67_0CepxgUk6hk0h4tVOi6dMD_5zRKD3UDRdztZ6cet5XaNaLlIN0zuccwz9TWavGKWSMUl9slWxoE3VlLWOJyh-oCw/w640-h586/IMG_3793.jpeg)
 
 After Europe, the second major stop in our [round-the-world trip](https://photopensieve.blogspot.com/2023/09/our-dream-travel-around-world-begins.html) was Iran, the homeland for my wife and myself. We enjoyed a solid two and a half months of visit, reconnecting with family, and exploring around the country as tourists. We went from Tehran to Mashhad by an overnight train, and then we hopped on another overnight train to Yazd, then another one to Bandar Abbas, where we took a ferry to Hormuz Island, and then another ferry to Qeshm, flew to Shiraz, and finally took our last overnight train back to Tehran. Planning this felt like solving a Traveling Salesman problem on its own! More on that later.

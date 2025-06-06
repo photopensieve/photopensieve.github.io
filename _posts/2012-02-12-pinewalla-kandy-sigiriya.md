@@ -1,7 +1,5 @@
 # Pinewalla, Kandy, Sigiriya
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2012/02/pinewalla-kandy-sigiriya.html)*.
-
 I left Negombo early to visit Pinewalla Elephant Orphanage on my way to Kandy. After changing two buses, I arrived at the orphanage. The entrance ticket was very expensive, under the excuse of helping the “orphan” elephants—17 dollars for foreigners. But the place was not much like an orphanage. There were many elephants of all sizes (more than 50, I think), and they had mahouts who would constantly ask for money from the visitors. I think many of these elephants could be set free to live on their own, but then how would they make money from them?
 
 Anyways, the elephants were feeding and bathing in the river, and people could get close and touch them. I liked seeing elephants, but in a more intimate situation with a caring mahout. Elephants are very intelligent animals, and if their mahout treats them well, they will behave very well. But this was more like a show. Anyhow, it was nice to see those giants up close.

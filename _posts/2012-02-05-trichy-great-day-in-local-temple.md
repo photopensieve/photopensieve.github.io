@@ -1,6 +1,5 @@
 # Trichy - A Great Day in a Local Temple
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2012/02/trichy-great-day-in-local-temple.html).*
 
 ![Temple Photo 1](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEggTY8Mkyf-W2c0joE-DcxJXlOjeo4ufhehNooZkJMWFCbABjzOMlgwns2T78Y2Gn6qDvCTbcElUJlKTmDMxOXri3oobKelBFLl4qwN8OjOntQBTF_m5vsJdy_tK90HnKeg01IsbyaHCvQi/s1600/photo+1-775837.JPG)
 

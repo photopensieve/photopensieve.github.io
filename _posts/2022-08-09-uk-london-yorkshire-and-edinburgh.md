@@ -1,7 +1,5 @@
 # UK: London, Yorkshire, and Edinburgh
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/08/uk-london-yorkshire-and-edinburgh.html)*.
-
 When we were planning our long-term European trip, we thought to start from the south while it was not too hot, and find our way to the north as summer kicks in. But Switzerland got hot prematurely, and so did Portugal, so we thought we are going to leave for cooler weathers in the UK, but little did we know that we are going to experience another heat wave there! More on that later. For this trip, we had planned to visit three main areas: London, Yorkshire, and Edinburgh. But before going to London, we spent a couple of days in Cambridge.
 
 ![](https://lh4.googleusercontent.com/P23gN_WCUDMtAvCWmU0M4jpGzK84s68RyfDyNLdBccd8fqrdEzIDdodA3Qz04GaJrmM)

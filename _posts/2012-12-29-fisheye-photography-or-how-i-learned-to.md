@@ -1,7 +1,5 @@
 # Fisheye Photography or: How I Learned to Tame the Curves
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2012/12/fisheye-photography-or-how-i-learned-to.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgzWTREvY8xsMSZZda3B1jpalrluQ-LwpD_QZXtDS0T-7tgmizKB2viSKK50gFL5Lvn4KPxHxtJyEB6NKrsfB9Pj5csJFE_n7vwLdUti09uv8uwg1cjUUzNq8u_EUnbQFUH_KyL8G7zrMow/s400/41lT5ifSoTL._SL500_AA300_.jpg)
 
 I've always loved ultra-wide angle (UWA) lenses. I have owned Tokina 11-16mm on my Canon 400D, Canon 17-40mm and Sigma 12-24mm on my Canon 5D, which the latter is the widest rectilinear lens you can mount on a 35mm or pretty much any other format camera. UWA lenses are challenging to work with, and at times unsuitable, but using them correctly can also be very rewarding. Fisheye lenses are 10 times more difficult to use and 100 times less useful than UWA lenses, but they can result in unique photos. The reason for both being so bad and good at the same time is that they are so difficult to tame. They distort the images so much that they remind us of a "fish eye". Go figure how bad that is! But as they are so difficult to tame, there are far less GOOD photographs taken with them, and this opens up a lot of opportunities. By following a few rules, you can produce images that are wider than ultra-wide, looking almost rectilinear and very impressive. If you want to know how, keep reading!

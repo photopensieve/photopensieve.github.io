@@ -1,7 +1,5 @@
 # A Fantastic Visit to Switzerland, and the Summer of Air Travel From Hell
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/06/a-fantastic-visit-to-switzerland-and.html)*.
-
 After a wonderful trip in Croatia, we travelled to Switzerland for a short visit to meet friends, revisit some of my favorite places in Lausanne, and spend some time in the beautiful Swiss Alps. To me, going to Lausanne is like going back home. I spent five years in my twenties living there. Every corner of the town brings back fond memories, and I still have many friends living in and around. It was in Switzerland that I started pursuing photography, having been inspired by its gorgeous nature. I visited so many places around Switzerland, looking for great scenery that I dare say, I probably have seen more of Switzerland than some Swiss!
 
 Our flight from Split to Geneva was with EasyJet, and unfortunately it wasn’t without issues again. This time, our flight was canceled altogether a few hours before the departure, but luckily we could book another EasyJet flight around the same time to Basel - at no extra charge. That worked out pretty well, but our trip from Basel to Lausanne was not only much longer, but quite a bit more expensive too. Oh well. At least it didn’t disrupt our plans.

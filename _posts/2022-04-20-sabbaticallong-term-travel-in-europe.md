@@ -1,7 +1,5 @@
 # Sabbatical/long-term travel in Europe
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2022/04/sabbaticallong-term-travel-in-europe.html)*.
-
 ![](https://blogger.googleusercontent.com/img/a/AVvXsEhvJdnxAx5H-BjHMWfWmTyCxltOsCVXUiuIq_GuZ6RJVCB7nrcEsS_A3wDRQm_DSjlskPTpO8hAqhzvsuPZIYcLQx_veCu75Mk6rAOLZ7CkDdFY_GfPK1w4gJq85ZngMzRGEsSiDo21QKzgK-P7Szp9uCzmZGqXzs8bJaShGzRuuuEyiLsPnpzsrC5lJQ=w400-h224)
 
 TL;DR, we are going to depart on a long-term travel in Europe, starting in Rome, finding our way to Southern Italy. We don't have set plans for what comes next, but possibly we'll continue to Croatia, and more. Oh, and we're going to do that with a one-year-old!

@@ -1,7 +1,5 @@
 # Mumbai: My last days in India
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/10/mumbai-my-last-days-in-india.html)*.
-
 My final stop in India is Mumbai. Mumbai (or formerly known as Bombay) is a city of huge contrasts. In one corner, you see all those skyscrapers and trendy shops, but in the other, you see huge slums, with horribly low standards of living. To give you an idea, only in one slum area, 1 million people live without having access to basic sanitary needs. But on the other hand, the posh quarters rub shoulders with any European city. Especially that there are many buildings remained from the colonial period, and they are very much like the buildings you find in UK. However, just a quick look around and you see begging kids and homeless people in the same streets.
 
 Anyways, I came to Mumbai from Aurangabad with a night train to stay the last three days of my trip here. In the morning, I went to Olympia restaurant to have breakfast. Guess who I met there? Charisse, the Canadian girl from Bhuj! It's a small world, isn't it? After breakfast, which was quite yummy, I called the mom of a friend of mine in Lausanne, Shruti, who is from Mumbai. Shruti's mom welcomed me and said her husband will come to pick me up where I was. We went around in the city, and he showed me the important landmarks. Meanwhile, we talked about the history and languages of India. He was a very knowledgeable and educated man, and spoke impeccable English.

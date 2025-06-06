@@ -1,7 +1,5 @@
 # My travel photo gear - 2
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/08/my-travel-photo-gear-2.html)*.
-
 Finally I decided to bring my 135mm F2.0 along as it is priceless for candid shots and portraits. I also did not go for 5D mark II, because of its price tag. I'll deal with my 5D, trying to focus in between the eyes and/or shoot a few and pick the one in focus. I'll have to deal with sensor dust as well, perhaps cleaning my sensor everyday with a blower.
 
 Another important issue is how I want to carry my gear. So I will have a Canon 5D with 4 fixed focals: Voigtlqnder 3.5/20 and 2/40, and Canon 1.8/85 and 2/135. All fast fantastic lenses that allow me to do a wide range of photos with excellent results. But having 4 lenses in a bag and juggling between them can be quite a nuissance. It is also important for me to have an instant access to all my equipment, so the backpack kind of bags are dismissed. I was considering carrying my lenses in a waist-bag and my camera in a soft bag, and put them all in a backpack, but I decided not to. This would be a good option for hiking, but not walking in a city, because then you would look like a bit ridiculous and out-of-place, to say the least. Instead, I'm going to carry all my equipment in a Lowepro Passport sling. 

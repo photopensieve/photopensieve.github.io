@@ -1,7 +1,5 @@
 # My photographic thoughts on India - 1
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/11/my-photography-thoughts-on-india-1.html)*.
-
 Well, it's two weeks that I'm back home. First off, I already miss India and traveling. I could travel for months in India and not regretting a second of it. But I had to be back in Switzerland for some unfinished businesses I have here. Anyways, during these two weeks, I processed all my photos of India and Nepal. It took me quite some time, but I'm very pleased with the results!
 
 I'd like to start with some statistics about my photography in this trip. I took 2100 photos during 5 weeks, but 600 of them were deleted on the camera. These were mostly the blurred, out-of-focus, badly exposed or framed photos which I reviewed and deleted in my spare times back in hotels. Out of those 1500 photos, I filtered out and processed some 400 photos in total. Among those 400, I selected some 150 photos to share with people. And guess what? I count only 50 of them to be really "good" photos. Nevertheless, I consider this a big achievement!

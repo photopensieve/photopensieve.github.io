@@ -1,7 +1,5 @@
 # Jaipur and Pushkar
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2011/10/jaipur-and-pushkar.html)*.
-
 The train arrived at 4 AM in Jaipur with 5 hours of delay, and I was lucky to wake up and get off the train. I took an auto-rickshaw to my hotel, Karni Niwas, but the driver eventually didn't know where the hotel was. There, the iPhone's GPS came quite handy, and I told him where to go. Anyways, I got a room for 650 INR which was quite large and clean, and the linen was actually usable.
 
 Next morning, I got up quite late and in the afternoon, I went out to the city. On the first glance, Jaipur is a more modern city than Agra or Varanasi. There are nice shops, WORKING traffic lights, and not so many animals in the streets. But when you go to the old town, the Pink City, it's the same story as Agra.

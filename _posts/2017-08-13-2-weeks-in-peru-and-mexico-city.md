@@ -1,7 +1,5 @@
 # 2 Weeks in Peru and Mexico City: Preparation
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2017/08/2-weeks-in-peru-and-mexico-city.html)*.
-
 ![](https://media.nomadicmatt.com/travelguides2016/peru.jpg)
 
 It's been a long time since I have done some serious traveling. I would have loved to go around the world, for at least 3 months, but with the work situation, it's not really happening. So instead, we've decided to do a 2-week trip to Peru, and squeeze in a short visit to Mexico City on the way back (to be honest, the flights worked out to be a bit cheaper too). This is going to happen soon, so stay tuned!

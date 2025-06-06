@@ -1,7 +1,5 @@
 # Indonesia: Java
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/04/indonesia-java.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDNeF0D2xWo0J_XTtjUiN3AvQxHFJroVkf4Pabb3k57n6GQhVvJn09IVj-brCriyGcb_mxEpmL5RW0o5Tpj52ZHTwMF8e6BqUHpfMQNc5L7Ao4hqAsamUgqOdS6SPrM0F1jg5V0XK3V-tGAsDVLj9rQUOavHodrzlBBlpapf3-VQLfdwvyz8uzQQH8i1JM/w640-h360/DSC02478.jpg)
 
 After a short visit to Malaysia and Singapore, we arrived in Indonesia, where we plan to stay for an extended period of time, enjoying the most amazing nature and culture of the archipelago of Indonesia!

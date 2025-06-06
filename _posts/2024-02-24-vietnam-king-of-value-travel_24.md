@@ -1,7 +1,5 @@
 # Vietnam: King of Value Travel Destination - Part 2
 
-*This was originally posted on Blogger [here](https://photopensieve.blogspot.com/2024/02/vietnam-king-of-value-travel_24.html)*.
-
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhbSDxHiDTOKTYvWHeoMhTTCsNv9Qi_fOiEx70zYbpik6BL7deMEQHvAPNb0ry9H129m_9mCpZSJdA37nlg48bWS38eG84p8PBZZpG0pG1vh8o2jAGGuHSBL37NmroUhEga_ND5l_iyvSTxC1siIDbtnD00LH3IikF_NGRgmqqOWce_0OxmmArMCsbVU1vC/w640-h480/DSC00696.jpeg)
 
 In the second part, I’m going to discuss our travels in central and northern Vietnam.
