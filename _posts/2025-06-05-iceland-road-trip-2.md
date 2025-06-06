@@ -2,7 +2,7 @@
 
 ![](/img/Iceland/Kirkjufell.jpeg)
 
-In the first part, I discussed a general overview of Iceland, along with the logistics of travel in Iceland. In the second and final part, I will share our experience in Iceland, along with my photography insights.
+In the [first part](https://photopensieve.github.io/2025/06/04/iceland-road-trip-1.html), I discussed a general overview of Iceland, along with the logistics of travel in Iceland. In the second and final part, I will share our experience in Iceland, along with my photography insights.
 
 ![](/img/Iceland/itinerary.png)
 

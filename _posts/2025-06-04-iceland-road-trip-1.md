@@ -113,4 +113,4 @@ Facilities range from basic (toilets and showers only) to well-equipped (kitchen
 
 ⸻
 
-In the second part, I will share our itinerary, and our experiences in Iceland.
+In the [second part](https://photopensieve.github.io/2025/06/05/iceland-road-trip-2.html), I will share our itinerary, and our experiences in Iceland.
