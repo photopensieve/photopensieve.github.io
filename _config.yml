@@ -28,7 +28,7 @@ plugins:
 rss: rss
 
 kramdown:
-  math_engine: none
+  math_engine: null
   syntax_highlighter_opts:
     disable: true
     
