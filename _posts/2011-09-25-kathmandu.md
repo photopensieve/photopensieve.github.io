@@ -14,15 +14,15 @@ I went out walking to the Monkey Temple this afternoon with Kaleb, but it starte
 
 Everything’s fine here, except a curious toothache I have. I haven’t had a toothache in nearly 10 years, and just now it should happen. Damn.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiQuWS7eHZI0UzU_cEgNhbYU5_kWIk_jrQNQzKmKdw4rOSehNWCN1IX8yuAgXHk2JRbTjq8AQ4gUE3t7smEWrWb3AW4m2Io6VmOfv6Df3pJJbjS474Yyx6PwYtR5t6obdaSdqKV7eeaE7iV/s320/photo+1-710349.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiQuWS7eHZI0UzU_cEgNhbYU5_kWIk_jrQNQzKmKdw4rOSehNWCN1IX8yuAgXHk2JRbTjq8AQ4gUE3t7smEWrWb3AW4m2Io6VmOfv6Df3pJJbjS474Yyx6PwYtR5t6obdaSdqKV7eeaE7iV/s0/photo+1-710349.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEic5XOwRkN3qWNDmUQDSy2GVXFcrjke6EID49ESn4Jm0y5qA7UjneRmafTobXRU6tOx5aa-3mmin8xwvVFQovUqqHJGVGwHC7at655UFTrVIhZ_CSV3w48FhiSWy3dDa8kQlE7_PyzISfz7/s320/photo+2-711100.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEic5XOwRkN3qWNDmUQDSy2GVXFcrjke6EID49ESn4Jm0y5qA7UjneRmafTobXRU6tOx5aa-3mmin8xwvVFQovUqqHJGVGwHC7at655UFTrVIhZ_CSV3w48FhiSWy3dDa8kQlE7_PyzISfz7/s0/photo+2-711100.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhR6dLwyiP1RJsWPhFGzkzwntbp7yWXYnBXLUTHEoyCTKTjTOscsHntzzONiSLkyvZMqt7PPi7uO0cwWwoZ5FMslO45vLGFhPQvq30j3sJmDKK0dsn2wOcwIU3Xc5Pa-Eu4zwd4CBb2jLeU/s320/photo+3-712026.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhR6dLwyiP1RJsWPhFGzkzwntbp7yWXYnBXLUTHEoyCTKTjTOscsHntzzONiSLkyvZMqt7PPi7uO0cwWwoZ5FMslO45vLGFhPQvq30j3sJmDKK0dsn2wOcwIU3Xc5Pa-Eu4zwd4CBb2jLeU/s0/photo+3-712026.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0obWblw1ZdE7bKGeZg1on49s9_fg8Rd7QkJ2Bsz6xXuDyeOgHxXIzsdUClbkd3RWfjo9hcMqCu345jq6CERO-qhDWKCi-lrwW_e8IP2NyHOJXBHo4gCHwgwoo2RLv-Vf-UFA8QcFYmlWh/s320/photo+4-712572.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0obWblw1ZdE7bKGeZg1on49s9_fg8Rd7QkJ2Bsz6xXuDyeOgHxXIzsdUClbkd3RWfjo9hcMqCu345jq6CERO-qhDWKCi-lrwW_e8IP2NyHOJXBHo4gCHwgwoo2RLv-Vf-UFA8QcFYmlWh/s0/photo+4-712572.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjo35-2LPIHQJSrIBr1eT8FG82O-PhkwV_qesrut5lOEQLvL3-f20wPtP7BJwRZ3DtYl6qXssnTk9T1ntHul0lmw1wAE4kHX5p0wTQgGxS5d9o2y3ag_D3E77xq63NtYLlQGeHKIKbhIugF/s320/photo+5-713523.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjo35-2LPIHQJSrIBr1eT8FG82O-PhkwV_qesrut5lOEQLvL3-f20wPtP7BJwRZ3DtYl6qXssnTk9T1ntHul0lmw1wAE4kHX5p0wTQgGxS5d9o2y3ag_D3E77xq63NtYLlQGeHKIKbhIugF/s0/photo+5-713523.JPG)
 
 Update 1 Nov 2011:
 Find the photos of Kathmandu [here](http://www.flickr.com/photos/8413680@N08/sets/72157628022813446/) on flickr.

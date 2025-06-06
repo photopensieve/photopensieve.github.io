@@ -20,8 +20,8 @@ Next morning, I got my flight to Sri Lanka. As I was waiting in the airport to c
 
 So I said goodbye to India and left it. Like last time, I enjoyed my stay in India a lot, and I am already dreaming of coming back, though I am pretty sure it wouldn't be in near future. I think India has grown on me, and I feel greatly at home while staying there. It is not much similar to my country, Iran, but nevertheless for me it is very familiar. I am sure I will come back again and find India as charming as it is now!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEij8zDDsqtSg1PoPskWTJCjS8ZMznoVyjJgn9pcDgyNFqrA9XPAAXQKMxllzZsiYJ4g8ER18T4DpZT86A1EZgHI74hHJeNoBRQEzRBR1feQvjvESzxpxzdvwYhAkcsG1wjppGYRXwpIBFxO/s320/photo+1-754909.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEij8zDDsqtSg1PoPskWTJCjS8ZMznoVyjJgn9pcDgyNFqrA9XPAAXQKMxllzZsiYJ4g8ER18T4DpZT86A1EZgHI74hHJeNoBRQEzRBR1feQvjvESzxpxzdvwYhAkcsG1wjppGYRXwpIBFxO/s0/photo+1-754909.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgKAhSfUmX8Jd_S0wbLDTRjIyiZmaQpEMUO1_g90sVMaFo76mhW2f_E04nT98GO9mceyn32Vb7oKpBk6yGG8kF-emigPdKhmrlKIP79N4OYpCM7CFtqliJmXIRcj7RwUFaqQdSjRMc68K5p/s320/photo+2-756213.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgKAhSfUmX8Jd_S0wbLDTRjIyiZmaQpEMUO1_g90sVMaFo76mhW2f_E04nT98GO9mceyn32Vb7oKpBk6yGG8kF-emigPdKhmrlKIP79N4OYpCM7CFtqliJmXIRcj7RwUFaqQdSjRMc68K5p/s0/photo+2-756213.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjiuSPE5hA_jLbL7u8qS0GpVkH73CZy795Tso6STiiB0Y6VN3D3w4TaEIwNsFYaP3pezTj3LLXC-ezx5XSDz0okPpWK8yUq0z29hotjMzKDRCelP90YFg7ruwLlR_L7ZDVS45n6Pfv1THDS/s320/photo+3-765327.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjiuSPE5hA_jLbL7u8qS0GpVkH73CZy795Tso6STiiB0Y6VN3D3w4TaEIwNsFYaP3pezTj3LLXC-ezx5XSDz0okPpWK8yUq0z29hotjMzKDRCelP90YFg7ruwLlR_L7ZDVS45n6Pfv1THDS/s0/photo+3-765327.JPG)

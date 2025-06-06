@@ -1,8 +1,8 @@
 # Tea gardens in Munnar
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzi4QeDmyHwyA9qR9hlll4gJdNvsWrtqiZIeZSigbcS-1akqOhEn43BThI6nCz4Cd2AUKkZzRglvTUaahn4yUCuLyUoMgM0J3HJe4x0QzRPjeU9GglREbvq1u_4eTKNRkbKWeeQ63ixcwh/s320/photo+1-721500.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjzi4QeDmyHwyA9qR9hlll4gJdNvsWrtqiZIeZSigbcS-1akqOhEn43BThI6nCz4Cd2AUKkZzRglvTUaahn4yUCuLyUoMgM0J3HJe4x0QzRPjeU9GglREbvq1u_4eTKNRkbKWeeQ63ixcwh/s0/photo+1-721500.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgR-g12ScnCT_qAL7VGMhPlhaQCMN_rZ7bRO1Ade2h8YhQULughL86yqLGOsCtO-2zv8jD4BqIDyFAjn-C0uSh6U_BoZoMoF2fhvyivZxZyGJhGkXo7zS010vH82xiQtGVVcRnOq8wybzz0/s320/photo+2-722577.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgR-g12ScnCT_qAL7VGMhPlhaQCMN_rZ7bRO1Ade2h8YhQULughL86yqLGOsCtO-2zv8jD4BqIDyFAjn-C0uSh6U_BoZoMoF2fhvyivZxZyGJhGkXo7zS010vH82xiQtGVVcRnOq8wybzz0/s0/photo+2-722577.JPG)
 
 After two days in Alleppey I headed to Kumily, a popular destination situated in the hills/mountains of the so-called Western Ghats. The scenery during the ride was beautiful and I saw the first tea plantation sites when we got closer to Kumily. However, the ride was tiresome as the roads were in no good condition and winding up and down.
 

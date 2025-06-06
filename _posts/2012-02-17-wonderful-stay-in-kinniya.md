@@ -1,6 +1,6 @@
 # A wonderful stay in Kinniya
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjg5F63dhAfPRHtQxnEbDIDZTdDbiN-c2XojllHjqRGIyzeVnhVBkRFoS10IApaOhsHjffUzoeFnEKdm8wvyWIWWk0kLCeci_NWxW_0K99Xz9HhpVwiiiS1SnjuI5Gnzd-7oXMR6ROvIWo6/s320/photo-707081.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjg5F63dhAfPRHtQxnEbDIDZTdDbiN-c2XojllHjqRGIyzeVnhVBkRFoS10IApaOhsHjffUzoeFnEKdm8wvyWIWWk0kLCeci_NWxW_0K99Xz9HhpVwiiiS1SnjuI5Gnzd-7oXMR6ROvIWo6/s0/photo-707081.JPG)
 
 Kinniya is totally off the map for all tourists. During my stay there, I didn't spot a single tourist. There is a good reason for that. There is nothing there! It's a small town beside a lagoon that can only be used for fishing and not for bathing and swimming. So why did I go there? Because I met these very friendly people, especially an English teacher called Munawwar. When I told him that I wanted to see village life, he said he could help me with that. That was enough for me to forget the beach and go to Kinniya!
 

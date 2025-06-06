@@ -40,9 +40,9 @@ The next day, I left Khuri for Jaisalmer to take the train to Delhi. Khuri was a
 
 - I'm back in Jaisalmer and already miss the tranquility and sincerity of village life!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgUdQUZt7B-IJQtWAxitIUkisbY_Ov9p0ObuTQMSGyCXnqLuadbMkwNQgYaKuUBID0NjF17TIdvrHuHi2RppvJJHBVDM8yQcz0QVYnItupPsPkdq71q8jk1DYUSuv6yxVwng87BxUJQdeNN/s320/photo+1-742138.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgUdQUZt7B-IJQtWAxitIUkisbY_Ov9p0ObuTQMSGyCXnqLuadbMkwNQgYaKuUBID0NjF17TIdvrHuHi2RppvJJHBVDM8yQcz0QVYnItupPsPkdq71q8jk1DYUSuv6yxVwng87BxUJQdeNN/s0/photo+1-742138.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiqfdb-Qhv8WdIJ96G1VqOFjdCVYunztGxt3fMviMUE7nWOYny8Hh8QMZRU89p3xOWB0OM6Zi3xEQlfCnkfGR8tc7NAWyggIuPewmV6H0jyxbPfYwJ_CncCd3rk1Alm0QsH7rfOMRP1Jsxj/s320/photo+2-743648.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiqfdb-Qhv8WdIJ96G1VqOFjdCVYunztGxt3fMviMUE7nWOYny8Hh8QMZRU89p3xOWB0OM6Zi3xEQlfCnkfGR8tc7NAWyggIuPewmV6H0jyxbPfYwJ_CncCd3rk1Alm0QsH7rfOMRP1Jsxj/s0/photo+2-743648.JPG)
 
 Update - See some of the photos of this part of my trip [here](http://www.flickr.com/photos/8413680@N08/sets/72157627953457549/):
 ![Khuri - 5](http://farm7.static.flickr.com/6048/6324068960_15ac2cefa0_b.jpg)

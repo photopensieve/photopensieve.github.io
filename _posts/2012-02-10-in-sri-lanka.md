@@ -18,4 +18,4 @@ The next day, I left Negombo to visit the Elephant Orphanage in Pinnawala, on my
 - The first obvious difference I see between Sri Lanka and India is that here is considerably more expensive. I think it's at least around 80% more expensive than India. On the upside, it seems that the poverty is less here, or at least less up-in-your-face all over in the streets. It is also considerably cleaner and there are fewer animals in the streets. I have yet to see a cow roaming around in the city.
 
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-jlOhWGqd_8KPOtl0HDaIvERnF1Mvrko41sPDGerMIY1YwTrNCOYir5ZezBqiG3rpAjyFlhgEUM2Sm7iRwo7fdACzczt9xixvW0Heado7rUA_No-UlOR4aiy_ZUdYOOUMHOhEloqiZFiM/s320/photo-773426.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-jlOhWGqd_8KPOtl0HDaIvERnF1Mvrko41sPDGerMIY1YwTrNCOYir5ZezBqiG3rpAjyFlhgEUM2Sm7iRwo7fdACzczt9xixvW0Heado7rUA_No-UlOR4aiy_ZUdYOOUMHOhEloqiZFiM/s0/photo-773426.JPG)

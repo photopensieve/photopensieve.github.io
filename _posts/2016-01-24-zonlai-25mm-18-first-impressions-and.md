@@ -2,11 +2,11 @@
 
 I've always wanted an affordable, small, fast 35-40mm FF equivalent lens for my Sony NEX-6, but unfortunately, there are not that many options available. There's the excellent Zeiss 24mm 1.8, but it is too expensive. And that's pretty much it. So when I heard there is a Chinese pancake lens that fits the bill, I went ahead, and bought it from Amazon for around \$130 (sold by a third-party seller from China).
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfr57t6hxzv0REpm4PELXJpT71FS4HmwWdN6EEpoksQtO7Ay4CQX-lIfmml8MJGwYW2tN4iq9wrzwSHoFxt3Ykl3C8ofD4LN0S7-q-tDjsh_YJ1HQ00blRHm1GZs7EpKn9R_zCnqt1u2IE/s320/IMG_0971.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfr57t6hxzv0REpm4PELXJpT71FS4HmwWdN6EEpoksQtO7Ay4CQX-lIfmml8MJGwYW2tN4iq9wrzwSHoFxt3Ykl3C8ofD4LN0S7-q-tDjsh_YJ1HQ00blRHm1GZs7EpKn9R_zCnqt1u2IE/s0/IMG_0971.JPG)
 
  
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpvXheXaRQMgHtHdgLlb7Yp6s9qpV7FYaba7H8z5eN4E5AHk7sWEoFsfym3IVK-_WD37FRXNjihKHE6UW-n4cZrPaPfyzkiga5Ucd3Y5Pdh2JpiY_s7lK5d0ooC9hG3_e0XKarzuStNPhS/s320/IMG_0972.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpvXheXaRQMgHtHdgLlb7Yp6s9qpV7FYaba7H8z5eN4E5AHk7sWEoFsfym3IVK-_WD37FRXNjihKHE6UW-n4cZrPaPfyzkiga5Ucd3Y5Pdh2JpiY_s7lK5d0ooC9hG3_e0XKarzuStNPhS/s0/IMG_0972.JPG)
 
 In case you didn't know, it's a manual focus lens with no electronic connections. The lens is metallic, and relatively well-made. It's definitely a surprise to see this quality at this bargain price. And it comes with a nice metallic lens hood too. Nevertheless, I have a few mechanical gripes with this lens:
 

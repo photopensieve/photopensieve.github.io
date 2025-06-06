@@ -1,7 +1,7 @@
 # Trincomalee
 
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgO7wW4vl4vTRB3aUMOkf93Y5YaaXOotEFtBnr8_Ci-rhIqLuCDiuQnGml8QKylBkgFyED_fI_IoezUr8Kb-NXrXd50cpCENRDDsBZuukS9NxMFFSbkjrSplokWGQuMyxlHTQ6j8bIe-L63/s320/photo-777305.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgO7wW4vl4vTRB3aUMOkf93Y5YaaXOotEFtBnr8_Ci-rhIqLuCDiuQnGml8QKylBkgFyED_fI_IoezUr8Kb-NXrXd50cpCENRDDsBZuukS9NxMFFSbkjrSplokWGQuMyxlHTQ6j8bIe-L63/s0/photo-777305.JPG)
 
 When I was at the Chennai airport in India, I started planning my trip in Sri Lanka using the Lonely Planet. I read about all the main attractions of Sri Lanka and I figured out that most of them were not what I wanted to visit! Thinking in retrospective about my last trip to India, I figured out that what I enjoyed most were off the beaten tracks in Rajasthan and Gujarat, and not the major tourist attractions. So I thought of a better use for my guidebook: to look where tourists go, and not go there!
 

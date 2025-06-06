@@ -37,10 +37,10 @@ Side notes:
   - (me, shocked and laughing) Sir, if you have a boyfriend and you are a guy, it means you’re gay!
   - (He didn’t get it—also laughing!)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnqbTnoXv-dAlwe-kCzsIhNVY3z5wNOL2AtTzIqolCVFM0NXOCTgu02ImM0fvbMg03rTpBUo6eVUhHKXKgylmh78flEfW0UGZucabLBGQ61YX4du5UFhRrYPEFJ5xQkaLOeFqRJIisVIda/s320/photo+1-733195.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnqbTnoXv-dAlwe-kCzsIhNVY3z5wNOL2AtTzIqolCVFM0NXOCTgu02ImM0fvbMg03rTpBUo6eVUhHKXKgylmh78flEfW0UGZucabLBGQ61YX4du5UFhRrYPEFJ5xQkaLOeFqRJIisVIda/s0/photo+1-733195.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiM4cdySKondYa5kyOM3dy5oej_9gsZH4D3yCyL2yTxFOXeFG42gUvkDLp_B9yWJ6_JirLma2HXgV9CuBJIuRP3WMz92W5molVzXUJM7dSpaV45xr6Iu8op-zbwsfL2fqnx8mXZ4u5RCTOQ/s320/photo+2-734113.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiM4cdySKondYa5kyOM3dy5oej_9gsZH4D3yCyL2yTxFOXeFG42gUvkDLp_B9yWJ6_JirLma2HXgV9CuBJIuRP3WMz92W5molVzXUJM7dSpaV45xr6Iu8op-zbwsfL2fqnx8mXZ4u5RCTOQ/s0/photo+2-734113.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi4XYtUWQomwDox9FR0e1c71w4Ioil-X_CwncL0GsobRnaR_sDvKpSr0CUjkSexorcrSvWZm7hx3uZRtG8PCAcxvCJUJy2cnOiidzwY1pbitdQF4vwuBMIASXVUS7lpapKxLpHoEcfoe4x3/s320/photo+3-737344.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi4XYtUWQomwDox9FR0e1c71w4Ioil-X_CwncL0GsobRnaR_sDvKpSr0CUjkSexorcrSvWZm7hx3uZRtG8PCAcxvCJUJy2cnOiidzwY1pbitdQF4vwuBMIASXVUS7lpapKxLpHoEcfoe4x3/s0/photo+3-737344.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqcfr5xLQNvelxKwKlh4jez2XZ-hVAqw_y8yyiWg59s5cNPWDDM-9D9c7zqw1Ojp1aafaf9c0KhnmnYfY_iF10kyakXu7Vzdyav7h7CIj1LqXMOtkqONw-8Xgd0wdMgxbMOhvaJbmIKP3b/s320/photo+4-738469.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqcfr5xLQNvelxKwKlh4jez2XZ-hVAqw_y8yyiWg59s5cNPWDDM-9D9c7zqw1Ojp1aafaf9c0KhnmnYfY_iF10kyakXu7Vzdyav7h7CIj1LqXMOtkqONw-8Xgd0wdMgxbMOhvaJbmIKP3b/s0/photo+4-738469.JPG)

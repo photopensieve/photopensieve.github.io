@@ -24,12 +24,12 @@ Moreover, as the public transportation is not very good and widely accessible, t
 - My toothache continued, and I had to take heavy doses of Ibuprofen to kill the pain. After a couple of days, now it's much better, so much so that I did not take any medicine today. I hope it stays this way until I come back!
 
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiYSzIh_lVsOF8uWt_I_VOWwXj5PnymgCZVG8HJPZ7zVlrbbesevthiK1eA2LqNAvIjPlZIHKVh5w1VrIm1Mq6PWyA_CAVA7nhZSN21_GwyscuPuhJnXO870VG3h17bhm0uelnn-yZfRNAm/s320/photo+1-788167.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiYSzIh_lVsOF8uWt_I_VOWwXj5PnymgCZVG8HJPZ7zVlrbbesevthiK1eA2LqNAvIjPlZIHKVh5w1VrIm1Mq6PWyA_CAVA7nhZSN21_GwyscuPuhJnXO870VG3h17bhm0uelnn-yZfRNAm/s0/photo+1-788167.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgrJX5FV3kThIoGBif03zOPml8ccUdNyYhmp3mQOuyfHXF_2KivBgCTSajeH9ZTbD4GT-iOtbVWOTM7MjO_pIvycRUmDADYJmF39oyN-nBKbfYSjwPXBqCNPw3QRJaAlFWBHJdoLXB5nzbj/s320/photo+2-790356.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgrJX5FV3kThIoGBif03zOPml8ccUdNyYhmp3mQOuyfHXF_2KivBgCTSajeH9ZTbD4GT-iOtbVWOTM7MjO_pIvycRUmDADYJmF39oyN-nBKbfYSjwPXBqCNPw3QRJaAlFWBHJdoLXB5nzbj/s0/photo+2-790356.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEizqBQArc_NDBpABnBoJF3lZjrLfcqOLn10KCUV6YBZKJgs6-D2mT3Pv7JshFYfAZjkpqT_AhuOldBIG0HxDgwkBi-cZXJNncogx4rQCPitpavQSsnwvkoh1TZTFv37PR2S7r0xe7Kiz9Dt/s320/photo+3-791975.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEizqBQArc_NDBpABnBoJF3lZjrLfcqOLn10KCUV6YBZKJgs6-D2mT3Pv7JshFYfAZjkpqT_AhuOldBIG0HxDgwkBi-cZXJNncogx4rQCPitpavQSsnwvkoh1TZTFv37PR2S7r0xe7Kiz9Dt/s0/photo+3-791975.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgy1Kn86iUdagJYygN6xkv5eTHMDSwgW-ZguKi_E-JayUbfW0W46b8VDhUIF7eJLBJSYisD8yq-4QiOSS5YPbQuy9EfoA_uuyYNk66X1MzyPvE6sPRbWN2-9o-N_DA2XEVR17k3WQMJoKD4/s320/photo+4-793508.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgy1Kn86iUdagJYygN6xkv5eTHMDSwgW-ZguKi_E-JayUbfW0W46b8VDhUIF7eJLBJSYisD8yq-4QiOSS5YPbQuy9EfoA_uuyYNk66X1MzyPvE6sPRbWN2-9o-N_DA2XEVR17k3WQMJoKD4/s0/photo+4-793508.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKEt-haFLg76E5t6qisOxtdccmTSNbiHBUkJ4kGaYPTbBKyBXqaPu4YMV2ebuPtgiypfqKRVHEetG_a05QhQEUMHk2ehsxscx_ThAgTCBd_tqgZCWFU51jtW9YYeuP73FDCRiMuF-gtYzj/s320/photo+5-795346.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKEt-haFLg76E5t6qisOxtdccmTSNbiHBUkJ4kGaYPTbBKyBXqaPu4YMV2ebuPtgiypfqKRVHEetG_a05QhQEUMHk2ehsxscx_ThAgTCBd_tqgZCWFU51jtW9YYeuP73FDCRiMuF-gtYzj/s0/photo+5-795346.JPG)

@@ -36,8 +36,8 @@ So Diwali is the festival of light and as big as Christmas for Indians. They dec
 
 - You might think monkeys are cute, but the truth is that they are bastards! They attack you to steal food from you! So in Ajanta, I had some peanuts wrapped in paper with me. I saw this cute squirrel and wanted to give it one or two peanuts. The moment that I took that paper cone out of my bag, I saw these black-faced long-tailed monkeys running to me from a distance! I tried to scare them off, but they got aggressive instead! They knew that I was alone and they were many. There was no way, I had to throw the peanuts on the ground!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDitqCY0LDxInbWRVUsxJr_RrMEjwgZz9MQboqM25Yy7IdADN65sUFl4QYqTOvfz_WQRXS7BQCzUtMhlNVxI6_bE98tk5O3T62XfBzJi6QTPKYqudfBkuqH1cdigPEnJi0HtQG9uXxDCrZ/s320/photo+1-702342.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDitqCY0LDxInbWRVUsxJr_RrMEjwgZz9MQboqM25Yy7IdADN65sUFl4QYqTOvfz_WQRXS7BQCzUtMhlNVxI6_bE98tk5O3T62XfBzJi6QTPKYqudfBkuqH1cdigPEnJi0HtQG9uXxDCrZ/s0/photo+1-702342.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiA9UHnkCfOjG4lDpb4fp-tT0InUFnwBgTKhyffP_uAYYR6ggJ_fKxeVH90o-Hwkug8AymvDIFed6sgWqLSMURbv3VnwY01Jo9pHpk5c2rWX8Fvd6qKj51czQNujOpIDKKtIwQbiiYMo4bQ/s320/photo+2-703456.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiA9UHnkCfOjG4lDpb4fp-tT0InUFnwBgTKhyffP_uAYYR6ggJ_fKxeVH90o-Hwkug8AymvDIFed6sgWqLSMURbv3VnwY01Jo9pHpk5c2rWX8Fvd6qKj51czQNujOpIDKKtIwQbiiYMo4bQ/s0/photo+2-703456.JPG)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWZcfbBoJykHduQ8KGQuUJJj2tZsuP9tGmQwqsPEcM6CqW5wa66Ge2srgrjrwrcwEzB5eBVJT3przKC1BVnx9cJxJiEijFgw9-Afe8b9VAKxSpfgVmO8Fl4m9Ak4j8M0RI8dGvWLt2HMtB/s320/photo+3-704828.JPG)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWZcfbBoJykHduQ8KGQuUJJj2tZsuP9tGmQwqsPEcM6CqW5wa66Ge2srgrjrwrcwEzB5eBVJT3przKC1BVnx9cJxJiEijFgw9-Afe8b9VAKxSpfgVmO8Fl4m9Ak4j8M0RI8dGvWLt2HMtB/s0/photo+3-704828.JPG)
