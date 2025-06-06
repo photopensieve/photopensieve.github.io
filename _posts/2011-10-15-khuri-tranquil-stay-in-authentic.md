@@ -49,8 +49,6 @@ The next day, I left Khuri for Jaisalmer to take the train to Delhi. Khuri was a
 Update - See some of the photos of this part of my trip [here](http://www.flickr.com/photos/8413680@N08/sets/72157627953457549/):
 ![Khuri - 5](http://farm7.static.flickr.com/6048/6324068960_15ac2cefa0_b.jpg)
 
-![Khuri - 1](http://farm7.static.flickr.com/6231/6324067134_7c9213b5c3_b.jpg)
-
 ![Khuri - 2](http://farm7.static.flickr.com/6231/6323538799_bffbe64507_b.jpg)
 
 ![Khuri - 3](http://farm7.static.flickr.com/6035/6323539201_835b89f734_b.jpg)
@@ -60,8 +58,6 @@ Update - See some of the photos of this part of my trip [here](http://www.flickr
 ![Khuri - 6](http://farm7.static.flickr.com/6103/6324069390_2370ec3d12_b.jpg)
 
 ![Khuri - 7](http://farm7.static.flickr.com/6117/6324070308_a6df374034_b.jpg)
-
-![Khuri - 8](http://farm7.static.flickr.com/6049/6323542305_f85f6cbde4_b.jpg)
 
 ![Khuri - 9](http://farm7.static.flickr.com/6227/6324071296_3149cd4a86_b.jpg)
 

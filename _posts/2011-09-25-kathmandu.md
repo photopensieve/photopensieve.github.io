@@ -35,11 +35,7 @@ Find the photos of Kathmandu [here](http://www.flickr.com/photos/8413680@N08/se
 
 ![Kathmandu - 2](http://farm7.static.flickr.com/6120/6300283074_5b340f45a4_b.jpg)
 
-![Kathmandu - 3](http://farm7.static.flickr.com/6104/6300283420_1dd902a6bf_b.jpg)
-
 ![Kathmandu - 5](http://farm7.static.flickr.com/6049/6300284376_6159c2081e_b.jpg)
-
-![Kathmandu - 6](http://farm7.static.flickr.com/6093/6299750299_6bfd068632_b.jpg)
 
 ![Kathmandu - 7](http://farm7.static.flickr.com/6034/6300285144_0a51de6215_b.jpg)
 
@@ -50,5 +46,3 @@ Find the photos of Kathmandu [here](http://www.flickr.com/photos/8413680@N08/se
 ![Kathmandu - 10](http://farm7.static.flickr.com/6049/6300286546_0b96701360_b.jpg)
 
 ![Kathmandu - 11](http://farm7.static.flickr.com/6039/6299752825_8e1409b298_b.jpg)
-
-![Kathmandu - 12](http://farm7.static.flickr.com/6229/6300287798_a7c8df52ae_b.jpg)

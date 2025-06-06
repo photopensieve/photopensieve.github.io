@@ -6,4 +6,5 @@ In the previous post, I talked about my experience in shooting with an 85mm lens
 So to get around this problem, I came up with a trick! I noticed if I stay still somewhere with many people passing by, they might notice me, but then they quickly look away. So I had the camera in my face, looking through the viewfinder, spotting possible subjects and letting them get closer and shoot! There was only one guy passing, and spotting me, he put his hand in front of his face, and I didn't shoot him. But other than that, everyone's reaction was normal.
 
 ![Paris - Harry Potter](http://farm6.static.flickr.com/5299/5572685350_54608b4579.jpg)
+
 There was only one problem. The focusing was not easy, and I couldn't nail it all the time. So at the end, I just pre-focused the lens (putting it to manual mode), and set it to the distance I expected people to pass by me and waited till they get in focus and shot them! Let me know what you think about this technique, and if you experimented with it.
