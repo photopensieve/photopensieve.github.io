@@ -35,7 +35,7 @@ One of the quandaries I had before buying the GR3 was whether I should instead 
 
 ## Replacing my full-frame kit?
 
-So now that I’ve got the GR3, will it replace my [Sony kit](https://photopensieve.blogspot.com/2019/09/my-holy-trinity-of-lenses.html)? Well, not really. When it comes to serious people or landscape photography, I think I would still go for my trusted Sony A7R II, and the three excellent prime lenses I have. But anything short of that, I think the GR3 would do the job. I recently brought the GR3 during a vacation to Caribbean, and enjoyed shooting with it a lot. This was an example of a situation that I probably would have left the Sony kit at home, since it was mostly about relaxing and enjoying the vacation. But having the GR3 almost always with me, allowed me to take a lot of high quality photos during this trip.
+So now that I’ve got the GR3, will it replace my [Sony kit](https://photopensieve.github.io/2019/09/28/my-holy-trinity-of-lenses.html)? Well, not really. When it comes to serious people or landscape photography, I think I would still go for my trusted Sony A7R II, and the three excellent prime lenses I have. But anything short of that, I think the GR3 would do the job. I recently brought the GR3 during a vacation to Caribbean, and enjoyed shooting with it a lot. This was an example of a situation that I probably would have left the Sony kit at home, since it was mostly about relaxing and enjoying the vacation. But having the GR3 almost always with me, allowed me to take a lot of high quality photos during this trip.
 
 So how did I find the GR3? Here are my thoughts.
 

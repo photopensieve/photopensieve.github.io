@@ -2,7 +2,7 @@
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEJWEqqmwaPS2oC237KcH_4RQeJTiu5DGAfmR7qU7jYyAmptEexTROwEZvUDH5wlocgVi5-XmwFyz_yQIRQ8le8d4tMI5Z1F5R8cQXzbpapKx2WWOcIcSl-vzu7WL2QZVyCSq8urpjszSMc5-cDXRTYcaUOzgmpigBAZ9K9kocyEr9sw70_Br-P7O8DatM/w480-h640/DSC09154.jpeg)
 
-In the [first part](https://photopensieve.blogspot.com/2024/01/iran-visiting-family-and-touring-around.html), I discussed our visit to Tehran, Mashhad and Yazd, and in this second and last part, I discuss our visits to Hormuz Island, Qeshm, and Shiraz.
+In the [first part](https://photopensieve.github.io/2024/01/05/iran-visiting-family-and-touring-around.html), I discussed our visit to Tehran, Mashhad and Yazd, and in this second and last part, I discuss our visits to Hormuz Island, Qeshm, and Shiraz.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgubRwqmSjt0Dg3z7WfQBY3jMjqqSuAzIbMq9Y2R4Ql5_6vlMZlUmTbQkJ0TPgtn3I4CCWEw-R5iD97c5zoBnkpowVfqjUontIvHwVa_auIzIAu1PxUQAfuap-TJ3TVVUVHGKDDSlw2nxqG7gIn6CBNUvEYfz3Ia3l1MNj7wxZ30g5pfF4YyKaQJIkFezNP/w640-h480/R0006408.jpeg)
 

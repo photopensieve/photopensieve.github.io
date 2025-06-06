@@ -1,6 +1,4 @@
-# Rolling Pros/Cons Review of Sony NEX-6
-
-Initial thoughts on Sony NEX-6
+# Initial thoughts on Sony NEX-6
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBo0iyWcxdpmbUE8zGwBodpo8DKAcecjxP-QELCotAIJ32D6MyUXj17tB5gS5iBcisrVatSNATSevqbKqGJ-imNqQXSez3vUJmz1_N4k7aH4CJdEFeMS9Dt4hFILObMBYrp8Snc88EDWP8/s400/a18f5328c0545bf4a608ed5898ea72fc-752886.jpeg)
 
@@ -102,7 +100,7 @@ Cons
 
 Update December 30, 2012:
 
-During the holidays, I stayed in New York and did a lot of photography exclusively with the NEX-6. I also bought the Rokinon 8mm F2.8 Fisheye lens, and I enjoyed trying fisheye photography. I wrote a [small essay on fisheye photography](http://photopensieve.blogspot.com/2012/12/fisheye-photography-or-how-i-learned-to.html) using this lens. Back to my rolling review of NEX-6.
+During the holidays, I stayed in New York and did a lot of photography exclusively with the NEX-6. I also bought the Rokinon 8mm F2.8 Fisheye lens, and I enjoyed trying fisheye photography. I wrote a [small essay on fisheye photography](http://photopensieve.github.io/2012/12/29/fisheye-photography-or-how-i-learned-to.html) using this lens. Back to my rolling review of NEX-6.
 
 Pros
 

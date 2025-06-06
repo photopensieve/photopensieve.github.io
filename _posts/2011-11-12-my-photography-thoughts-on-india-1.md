@@ -16,7 +16,7 @@ Shooting children can be tricky too. If you ask one of them for photo, you sudde
 
 When I think back, I see that there were some people that I would have loved to photograph, but I couldn't. For instance, there was this little gypsy girl in Pushkar with beautiful eyes that I would have loved to photograph, but she was so shy of camera that she turned her face each time I showed her the camera. Or there was this beautiful Indian woman in a train, but it was not a good situation to ask her for a photo. But after all, I took the photos of so many other beautiful people, that at the end of the day, I can easily say I have very little regret for what I couldn't shoot. As I had said before the trip, India is so full of photo opportunities that if you miss one, you have a dozen right in front of you!
 
-In the [next post](http://photopensieve.blogspot.com/2011/11/my-photographic-thoughts-on-india-2.html), I'll talk about the gear I used, and what worked and what didn't work for me.
+In the [next post](https://photopensieve.github.io/2011/11/13/my-photographic-thoughts-on-india-2.html), I'll talk about the gear I used, and what worked and what didn't work for me.
 
 Check my photos of India and Nepal on flicker [here](http://www.flickr.com/photos/8413680@N08/):
 

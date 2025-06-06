@@ -1,4 +1,4 @@
-# 2 Weeks in Hong Kong and Taiwan
+# Two Weeks in Hong Kong and Taiwan
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuaM10u4MMIL6f59S2HVaOXsRe6_prdBdUwIn2FUh-C2do9G-OqqLSXsNVi9bQJO-E-K3yhbpdWCWVmo8zc7u9lXlkIbuMvHMcw7L9-t35iYDVyOcCNS5Trswp2S7B213t6VgRT1HxHuVmQz2Me2aBdq6YS6EW4LIVUn7ap5AccsATfBSohwJ1c0kjrv_R/w640-h360/DSC01050.jpeg)
 
@@ -79,7 +79,7 @@ Moving around in Hong Kong is easy thanks to the world-class public transportati
 
 Taipei is basically the same story with their own version of MTR, and the so-called EasyCard. However, a few differences: 1) We actually used more buses Taipei than the MTR, whereas in Hong Kong, we used MTR more, 2) Easy Card is only available as a physical card, and can be only loaded with cash, and 3) in Taipei, you have to tap in and out on buses, whereas in Hong Kong, you only tap in. For these reasons, I would give the edge to Hong Kong’s public transportation.
 
-But the most convenient public transportation system in the world when it comes to payment system is, in my opinion, London, though it is not the most modern or the cleanest. London’s tube is not only efficient and well-connected, but it also has the best payment system possible, as I explained in my [London travel blog](https://photopensieve.blogspot.com/2022/08/uk-london-yorkshire-and-edinburgh.html). All you have to do is to tap in and out using your credit card, or phone/watch, and you’re good! They even automatically cap your daily transportation expenditure by tracking your daily travel costs, and charging you at the end of the day, which is brilliant. I wish all public transportation systems copy this method.
+But the most convenient public transportation system in the world when it comes to payment system is, in my opinion, London, though it is not the most modern or the cleanest. London’s tube is not only efficient and well-connected, but it also has the best payment system possible, as I explained in my [London travel blog](https://photopensieve.github.io/2022/08/09/uk-london-yorkshire-and-edinburgh.html). All you have to do is to tap in and out using your credit card, or phone/watch, and you’re good! They even automatically cap your daily transportation expenditure by tracking your daily travel costs, and charging you at the end of the day, which is brilliant. I wish all public transportation systems copy this method.
 
 
 ## Which one had better food?

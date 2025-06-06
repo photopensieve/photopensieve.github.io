@@ -8,7 +8,7 @@ I love fast, small, prime lenses, and I finally assembled my dream holy trinity!
 - Sony 35mm F1.8
 - Sony 85mm F1.8
 
-This combo allows me to do anything from landscape and cityscape photography to street and portrait photography. Coupled with high megapixel [Sony A7RII](https://photopensieve.blogspot.com/2018/09/gear-update.html) (at 42 MP) that allows me to get usable crop photos, I get a range of 18-130mm!
+This combo allows me to do anything from landscape and cityscape photography to street and portrait photography. Coupled with high megapixel [Sony A7RII](https://photopensieve.github.io/2018/09/30/gear-update.html) (at 42 MP) that allows me to get usable crop photos, I get a range of 18-130mm!
 
 Sony 35mm and 85mm lenses are of the highest optical and mechanical qualities. Samyang 18mm is so lightweight that the A7RII feels back-heavy, and stopped down to F4.0, it becomes as sharp as the Sony 16-35mm F4.0 lens.
 

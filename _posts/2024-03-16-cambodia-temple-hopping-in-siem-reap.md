@@ -32,7 +32,7 @@ To get a sense of the atrocities committed during the Khmer Rouge regime, you ca
 
 ## Our Time in Siem Reap
 
-As I said in my [last post](https://photopensieve.blogspot.com/2024/03/2-weeks-in-hong-kong-and-taiwan.html), we arrived in Siem Reap after an eventful flight from Taipei. We had secured visas before the trip, and we sailed through passport check and was out of airport in no time. Siem Reap has a brand new airport 50 km outside the city, built by the Chinese, which opened less than 5 months ago. As of the writing of this blog, even Google Maps does not show the airport correctly, when you search for “Siem Reap Airport”. The airport was constructed under a 55-year [build–operate–transfer](https://en.wikipedia.org/wiki/Build%E2%80%93operate%E2%80%93transfer) agreement. We had arranged a van transfer to our Airbnb through our excellent Airbnb host, who also helped us a lot in arranging our tours and travels during the visit.
+As I said in my [last post](https://photopensieve.github.io/2024/03/07/two-weeks-in-hong-kong-and-taiwan.html), we arrived in Siem Reap after an eventful flight from Taipei. We had secured visas before the trip, and we sailed through passport check and was out of airport in no time. Siem Reap has a brand new airport 50 km outside the city, built by the Chinese, which opened less than 5 months ago. As of the writing of this blog, even Google Maps does not show the airport correctly, when you search for “Siem Reap Airport”. The airport was constructed under a 55-year [build–operate–transfer](https://en.wikipedia.org/wiki/Build%E2%80%93operate%E2%80%93transfer) agreement. We had arranged a van transfer to our Airbnb through our excellent Airbnb host, who also helped us a lot in arranging our tours and travels during the visit.
 
 We stayed 8 nights in Siem Reap, visiting temples for 4 days, visiting museums and the floating village for 2 days, and celebrating our son’s birthday for one full day! We let him play with his toys, eat ice cream, and watch cartoon as much as he liked. I’ll explain visiting AAP below, but before, I will quickly go through other museums and activities we did during our visit.
 
@@ -67,7 +67,7 @@ Observations about Cambodia* Cambodian currency is Khmer Riel (KHR), and since i
 * The typical snack you see on the side of the street is cooked snails garnished with spices. 
 * Cambodian food seems to be more similar to Thailand’s, but again due to being poor, there isn’t a big food scene over there. We went to a couple of high-end restaurants, and the food was great, but the rest were just ok.
 * Cambodia is a constitutional monarchy, where the king doesn’t seem to have much power, and instead the power resides in Prime Minister, who does seem to stay in power for way too long. The first Prime Minister ruled from 1984 to 2023 (much longer than many kinds!), and when he retired, his son became the Prime Minister. It’s like there is a dynasty within a dynasty!
-* America seems to be pretty popular in Cambodia, despite the atrocious bombings done in Cambodia during Vietnam War, which I discussed in my [Vietnam blog](https://photopensieve.blogspot.com/2024/02/vietnam-king-of-value-travel.html).
+* America seems to be pretty popular in Cambodia, despite the atrocious bombings done in Cambodia during Vietnam War, which I discussed in my [Vietnam blog](https://photopensieve.github.io/2024/02/19/vietnam-king-of-value-travel.html).
 
 Visiting Angkor Wat and its surrounding temples was high in my bucket list, and I am so happy that I finally managed to see them in person. With that, our short visit to Cambodia was over, and we headed to Kuala Lumpur and Singapore for a short visit.
 
@@ -77,7 +77,7 @@ Visiting Angkor Wat and its surrounding temples was high in my bucket list, and 
 
 This is a big topic on its own, but the short answer is that you can buy eSIM before the visit through many different apps. We have mostly used Airalo before, but since Hong Kong, we have switched to “Nomad”, which provides an excellently priced regional plan for Southeast Asia. This way, we don’t have to worry about buying an eSIM for each country.
 
-If you stay in a country longer, it’s worth checking out the local providers, as their prices might be much cheaper, as in Vietnam, for example. We got one month of data with 4 GB/day (120 GB in total) [for only 8 dollars](https://photopensieve.blogspot.com/2024/02/vietnam-king-of-value-travel.html)!
+If you stay in a country longer, it’s worth checking out the local providers, as their prices might be much cheaper, as in Vietnam, for example. We got one month of data with 4 GB/day (120 GB in total) [for only 8 dollars](https://photopensieve.github.io/2024/02/19/vietnam-king-of-value-travel.html)!
 
 ## How does Angkor compared to Ayutthaya in Thailand?
 

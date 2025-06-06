@@ -8,7 +8,7 @@ We kicked off our long-term travel by a road trip starting in Frankfurt. Our fli
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiw3WzPvtkcci8-TgDkiPTEqkaDt88mXKTldw0Z0BxY8Kzj0LxPfcqI_BqdbOJpfSC4iqVYu_1auPqLodBsfkSjNRVHPrcg1Q_JUBQfW939Zy0ZpRDW-t51vnvdqGVTjj-dlvcdkLgodtVRvnusYSu4D6UvX7rayh2OhfnGE3QN3zX6JHaE-pXEHpCwTGqj/w480-h640/IMG_3933.jpeg)
 
-I usually write a separate blog post about the trip, but this time around, I’m just going to discuss in short, as our travel gear is mostly similar to the [last year’s trip](https://photopensieve.blogspot.com/2022/04/eurotrip-travel-gear.html).
+I usually write a separate blog post about the trip, but this time around, I’m just going to discuss in short, as our travel gear is mostly similar to the [last year’s trip](https://photopensieve.github.io/2022/04/25/eurotrip-travel-gear.html).
 
 As a reminder, we love to travel lightweight, so I’m only carrying a 30L backpack (Patagonia Mini MLC), my wife and son each have a carry-on luggage (my son’s is a cute little Mickey Mouse luggage), and my wife has a daypack. We have brought a stroller for my son (Uppababy Minu), which has proven to be extremely useful so far.
 
