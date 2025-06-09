@@ -98,14 +98,15 @@ We intentionally avoided the famous Blue Lagoon, as it's overtouristed and overp
 
 This peninsula, often called "Iceland in miniature," was by far my favorite region, especially the northern coastline where we spent most of our time. The diversity of landscapes packed into this relatively small area is remarkable.
 
-The highlight was Kirkjufellsfoss Waterfall and Mount 
-, one of the most photographed locations in Iceland. Unfortunately, we encountered a stretch of bad weather during our first visit, and despite spending hours there, I couldn't capture the shot I wanted. Persistence paid off—we returned the next day in the evening, and I managed to get close to my vision. Ideally, I would have preferred proper golden hour light on the mountain, but the surrounding peaks prevent that kind of illumination at that time of year.
+The highlight was Kirkjufellsfoss Waterfall and Mount Kirkjufell, one of the most photographed locations in Iceland. Unfortunately, we encountered a stretch of bad weather during our first visit, and despite spending hours there, I couldn't capture the shot I wanted. Persistence paid off—we returned the next day in the evening, and I managed to get close to my vision. Ideally, I would have preferred proper golden hour light on the mountain, but the surrounding peaks prevent that kind of illumination at that time of year.
 
 The entire northern peninsula drive was breathtaking. The volcanic landscape displays incredible color variations—black lava fields, yellow sulfur deposits, red oxidized minerals, and green moss—creating an almost alien beauty. We took several back roads to explore more thoroughly, and it was incredibly rewarding.
 
 ![](/img/Iceland/SharkMeat.jpeg)
 
 We also visited the Shark Museum in Bjarnarhöfn, where we tried the infamous fermented shark meat (hákarl). It smelled absolutely horrible, but the taste wasn't nearly as offensive as the smell suggested. It's definitely a cultural experience worth trying once.
+
+![](/img/Iceland/Town.jpeg)
 
 The coastal towns of Grundarfjörður and Ólafsvík are beautifully situated with dramatic mountains as backdrops and numerous waterfalls cascading into the sea. These small communities perfectly capture the essence of Icelandic coastal life.
 
