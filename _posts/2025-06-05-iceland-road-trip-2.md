@@ -116,7 +116,9 @@ The coastal towns of Grundarfjörður and Ólafsvík are beautifully situated wi
 
 Our morning departure meant staying overnight at the Keflavik Airport Hotel. While expensive for what it offers, the hotel's location right next to the airport made the early morning flight logistics much easier.
 
-We flew WestJet to Calgary and were fortunate to encounter excellent weather throughout the journey, providing spectacular views of Greenland, Nunavut region in Canada, the Northwest Passage, and Hudson Bay. Greenland from above was particularly fascinating—initially showing mountain ranges and glaciers, but quickly becoming one massive ice field with no visible features. I couldn't help wondering what lies beneath those ancient ice sheets.
+![](/img/Iceland/Greenland.jpeg)
+
+We flew WestJet to Calgary and were blessed with clear skies throughout the journey, offering breathtaking views of Greenland, Canada's Nunavut region, the Northwest Passage, and Hudson Bay. Greenland from above proved especially captivating—beginning with dramatic mountain ranges and sprawling glaciers, then transitioning to mountains barely keeping their heads above the ice field, before finally revealing an endless expanse of ice with no discernible features whatsoever. I found myself wondering what secrets lie buried beneath those ancient, frozen depths.
 
 Returning home after our extended journey was deeply satisfying. We'd spent nearly four months away, visiting nine countries across the Middle East and Europe, but we couldn't have been happier to be back in our own space. The memories of this unforgettable adventure will stay with us forever, and Iceland has definitely secured its place as one of the most remarkable destinations we've ever experienced.
 
