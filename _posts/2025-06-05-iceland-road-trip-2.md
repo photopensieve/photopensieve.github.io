@@ -137,8 +137,8 @@ Returning home after our extended journey was deeply satisfying. We'd spent near
 
 ### How Expensive Is It?
 
-Iceland is expensive, period. Budget around $400 per day for a couple staying in campervans, campsite fees, gas, groceries, and cooking most meals. Hotel stays, restaurant, gas, groceries, and any activities all cost significantly more than most other countries.
+Iceland is expensive, period. Budget around $400 per day for a couple staying in a campervan, campsite fees, gas, groceries, parking fees, and cooking most meals. Hotel stays, restaurant, gas, groceries, and any activities all cost significantly more than most other countries.
 
 ### How is it returning home after a long trip?
 
-You'll definitely miss the comfort of home basics—your own bed, familiar food, and not having to think about where to sleep each night. But you'll also miss the daily adventure and the incredible landscapes that become your temporary backyard. But for now, we are happy to be back!
+You'll definitely miss the comfort of home basics—your own bed, familiar food, and not having to think about where to sleep each night. But you'll also miss the daily adventure and the incredible landscapes that become your temporary backyard. But *for now*, we are happy to be back!
