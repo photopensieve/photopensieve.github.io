@@ -4,6 +4,7 @@
 
 The final stretch of our round-the-world adventure took us to French Polynesia, perfectly nestled between New Zealand and Seattle. French Polynesia, especially Bora Bora, had long been a top destination on our bucket list, making this a dream come true. It was a no-brainer decision since adding French Polynesia to our itinerary only cost us an extra $400 on our airfare from New Zealand to Seattle. Had we flown from Seattle directly, the round-trip tickets would have set us back $3000 or more. With this opportunity in hand, we couldn't resist turning our dream into reality! It turned out to be the most spectacular finale to our epic journey around the globe.
 
+![](/img/FrenchPolynesia/Map.jpeg)
 
 Superposition of FP islands on Europe, to show how large and spread-out the archipelago is.
 
