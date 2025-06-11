@@ -1,5 +1,7 @@
 # A Most Memorable Day in Pokhara
 
+![](/img/Pokhara/Sarangkot.jpeg)
+
 As planned the previous night, the taxi came to the hotel at 5 AM. The name of the driver was Lokraj, a calm and modest man of slim build. He could speak English a little bit, like most of the Nepalese I met. The plan was to go to Sarangkot, and 6 or 7 more highlights of Pokhara before the beginning of afternoon. As I was not interested in some of these places, I asked him to take me to see some villages instead. He first didn't like the idea and said the villages are really far, etc. But when I insisted a bit, he agreed (In general, Nepalese people are shy and don't like to say no).
 
 When heading for Sarangkot, we saw lots of local people and taxis going in the same direction. After 20 minutes or so we arrived at the vantage point, and upon the first glance, I was flabbergasted by the awesomeness of the scenery, and the grandeur of the mountains as high as 8000 meters. I have seen the most beautiful mountains in the Alps, but there's a significant difference between the 4000ers of the Alps and these 8000er giants. Their beauty and grandeur should be seen with one's own eyes, and no image can depict it justly! We arrived before the sunrise and I shot the sunrise over there, though there were some clouds partially covering the mountains. Needless to say, over there was full of tourists, all coming with taxis, like myself.
@@ -15,6 +17,8 @@ We then walked up to the house of Lokraj's in-laws, which was situated at the to
 He showed me around the house, showing me the rice fields and their animals, a buffalo and her calf, two goats, etc. They keep the buffalo for milk, and breed the goats for meat. They had also various fruits, like banana, pineapple, mango, etc. He picked a pineapple for me, and boy was it delicious! They asked me to stay for lunch, and I obviously accepted. I was enjoying myself so much, talking and befriending these people. There was me, a foreigner city boy, mingling with the Nepali villagers, sharing their food and enjoying their company. This was priceless!
 
 Our lunch was vegetarian food, consisting of three parts together. The rice, dal (which is a soup-like dish, usually with overcooked mashed lentils), and a stew of vegetables. This is typical Nepalese food. They pour the dal on the rice and eat the stew and rice together. They also brought some buffalo milk and told me to pour it on the rice. The food was delicious, and all the ingredients were cultivated by themselves. How many of us have ever prepared a meal that is 100% done by ourselves?
+
+![](/img/Pokhara/BuffaloMilking.jpeg)
 
 After lunch, we said goodbye and we went back to town. I marveled at these people, how much they work to obtain the most basic ingredients of life. They work for several months to cultivate rice, to breed animals, to make gardens of fruit trees, to obtain what we get in a half an hour visit to a shop. Anyways, I was as happy as I could get, and Lokraj had also grown fond of me, and he proposed to go to his home. He had a shop beside the lake, selling mountaineering equipment, run by his wife. His wife, very similar to her mother in face, welcomed me and was amazed by my delight on visiting her village. Their house was just behind the shop, and I met their sons, Tulashi and Bimal, the older and younger one, respectively.
 
