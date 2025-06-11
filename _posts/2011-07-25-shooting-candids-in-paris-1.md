@@ -14,7 +14,7 @@ In the beginning, I was shooting with an 85mm lens. Shooting with 85mm has this 
 
 So I was staying at an averagely sized intersection, and I saw that beautiful café with those orange neon lights and the people crossing the street, barely illuminated by the last bits of blue daylight, and that was it. I knew I had a shot waiting there for me!
 
-![Paris streets - Stranger](http://farm6.static.flickr.com/5096/5569672300_92a3418b35.jpg)
+![Paris streets - Stranger](http://farm6.static.flickr.com/5096/5569672300_92a3418b35_b.jpg)
 
 I was just waiting for that look!
 

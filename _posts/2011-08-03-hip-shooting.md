@@ -10,10 +10,10 @@ This camera is still not out, but I think it will be a great camera for street p
 
 But even with an old SLR and no live view and tilting screen, like 5D, it is possible to do some nice hip shooting. It just needs a bit of practice! Generally a wide angle lens is better, although I have tried an 85mm lens too (with lower success rate). If not sure about the autofocus speed and accuracy, it's advantageous to use pre-focusing (setting the focus distance to 2-5 meters) and use a small aperture to have a larger depth of field. Here are some examples of my hip shooting:
 
-![Paris - Love on bicycle](http://farm6.static.flickr.com/5102/5572095415_e0069f7661.jpg)
+![Paris - Love on bicycle](http://farm6.static.flickr.com/5102/5572095415_e0069f7661_b.jpg)
 
 There was no time to even bring up the camera, when I saw this couple close to the bikes. I just pointed my camera towards them and shot this.
 
-![Glasgow - Playboy](http://farm5.static.flickr.com/4093/4783737986_37f1472b74.jpg)
+![Glasgow - Playboy](http://farm5.static.flickr.com/4093/4783737986_37f1472b74_b.jpg)
 
 Using an 85mm lens with autofocus is very tricky for hip shooting. This shot was one the few that I (luckily) managed to have it right.
