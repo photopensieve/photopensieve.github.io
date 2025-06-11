@@ -30,4 +30,4 @@ As a side note, I found out that one of the photos that I took in Sri Lanka (fir
 
 ![Faces of Sri Lanka - 2](http://farm8.staticflickr.com/7232/7140892081_0c7d8486e9_z.jpg)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjhTEpdwcmAo_wwZne5GzG9dS-5_-zFK5njXdYi3svGCL9oN69C6mVY2NM8JvRTbgKTZjn9Sr6CTejNyIjM5LdMZdjnBYLwEnKB4UMnFb7TvSqwequLwXinkTTZcTD5txTSxPhdj_6AS3jOzlWPqYYbVvcNB8FVT9P9jmf8d55COmpyK0gGKU3aIL5sYw/w640-h413/RefugeeGirlandHerFather.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjhTEpdwcmAo_wwZne5GzG9dS-5_-zFK5njXdYi3svGCL9oN69C6mVY2NM8JvRTbgKTZjn9Sr6CTejNyIjM5LdMZdjnBYLwEnKB4UMnFb7TvSqwequLwXinkTTZcTD5txTSxPhdj_6AS3jOzlWPqYYbVvcNB8FVT9P9jmf8d55COmpyK0gGKU3aIL5sYw/)

@@ -1,6 +1,6 @@
 # Changing my postprocessing workflow altogether
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJNwt5CpzHUykx08Teds_jcwW_CREyy8yWbf-KQ6Vlpv90ODPicMiCcZ0__AdukJtaxzlWaNpyPU4FD38FPsAgAR1tXadnVjh9Q8XNeVZ4UXbyE2F6EoCw6bf5fOBK7pTRYHfpEy5j5Omg/w640-h360/workflow.001.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJNwt5CpzHUykx08Teds_jcwW_CREyy8yWbf-KQ6Vlpv90ODPicMiCcZ0__AdukJtaxzlWaNpyPU4FD38FPsAgAR1tXadnVjh9Q8XNeVZ4UXbyE2F6EoCw6bf5fOBK7pTRYHfpEy5j5Omg/)
 
 Over the years, my postprocessing workflow had been relatively stable: 
 

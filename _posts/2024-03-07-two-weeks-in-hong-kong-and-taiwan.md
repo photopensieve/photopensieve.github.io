@@ -1,10 +1,10 @@
 # Two Weeks in Hong Kong and Taiwan
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuaM10u4MMIL6f59S2HVaOXsRe6_prdBdUwIn2FUh-C2do9G-OqqLSXsNVi9bQJO-E-K3yhbpdWCWVmo8zc7u9lXlkIbuMvHMcw7L9-t35iYDVyOcCNS5Trswp2S7B213t6VgRT1HxHuVmQz2Me2aBdq6YS6EW4LIVUn7ap5AccsATfBSohwJ1c0kjrv_R/w640-h360/DSC01050.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuaM10u4MMIL6f59S2HVaOXsRe6_prdBdUwIn2FUh-C2do9G-OqqLSXsNVi9bQJO-E-K3yhbpdWCWVmo8zc7u9lXlkIbuMvHMcw7L9-t35iYDVyOcCNS5Trswp2S7B213t6VgRT1HxHuVmQz2Me2aBdq6YS6EW4LIVUn7ap5AccsATfBSohwJ1c0kjrv_R/)
 
 As mentioned in my Vietnam blog, we originally intended to stay longer, but a visa mishap led us to make new plans. After careful consideration, including researching flight costs, we opted to spend one week in Hong Kong and Taiwan each, before moving on to our next destination in Southeast Asia. This unexpected turn of events presented us with the perfect opportunity to visit two places that had long been on our bucket list!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimbI7D2dHRYSNLhO3yG5inuvSbdDda7Q9n9D2Mae0ALLy4N-dOT-O-pb963ffgkzIkHsgoxP08rE6ZqB_hMLvr_7CPAbn_P-oDS6P6XvSem0UAsCN5L7oQyrTVaV2mnjbTcBM36AEUCZANnqsYLLWRGoNAXlO28ZWMp6YcXbPOoFdPYOaz8D3aXa98nbNQ/w640-h640/DSC01387.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimbI7D2dHRYSNLhO3yG5inuvSbdDda7Q9n9D2Mae0ALLy4N-dOT-O-pb963ffgkzIkHsgoxP08rE6ZqB_hMLvr_7CPAbn_P-oDS6P6XvSem0UAsCN5L7oQyrTVaV2mnjbTcBM36AEUCZANnqsYLLWRGoNAXlO28ZWMp6YcXbPOoFdPYOaz8D3aXa98nbNQ/)
 
 # Hong Kong
 
@@ -18,7 +18,7 @@ As a tourist destination, Hong Kong offers a wealth of attractions and experienc
 
 Hong Kong has one of the most expensive real estate markets in the world, so most people live in tiny apartments, or even share apartments (some even live in so-called cage homes). As a tourist, that means that you have to pay a lot for a tiny place, and that’s just what we did. Apart from the accommodation expenses, Hong Kong is just moderately expensive, as the cost of food and transportation is not too high. Hong Kong is so well-connected that as long as you are close to a metro stop, you can easily go anywhere within a reasonable amount of time. More on that later.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicoPcNb4HHioL2h1HwCE4-XbS8UtgbrOS_8jvckN7kNXOd-XxQ5w0sYjQh5YpIsW2MlBXKX6RTTRBRF1qbpa35lb0z-GJjxx0QO6ghxwMr3irdBaIfKmvOSAkyNkDUK9E5dTHcaJHw-6fGv6KL_HzYQniComPcVO2wABgUCVPWK9zEeUZfU6P8E9Z7k3uI/w640-h426/DSC01449.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicoPcNb4HHioL2h1HwCE4-XbS8UtgbrOS_8jvckN7kNXOd-XxQ5w0sYjQh5YpIsW2MlBXKX6RTTRBRF1qbpa35lb0z-GJjxx0QO6ghxwMr3irdBaIfKmvOSAkyNkDUK9E5dTHcaJHw-6fGv6KL_HzYQniComPcVO2wABgUCVPWK9zEeUZfU6P8E9Z7k3uI/)
 
 I had a blast doing photography in Hong Kong (you can see my shots on my [Instagram page](https://www.instagram.com/photopensieve)), as the the city's iconic skyline, with its towering skyscrapers and neon-lit streets, provides a stunning backdrop for urban photography. From the bustling streets of Mong Kok to the serene landscapes of Victoria Peak, and towering public “monster” apartment buildings, Hong Kong presents a rich tapestry of contrasting scenes. The city's unique blend of traditional Chinese culture and modern architecture creates a captivating juxtaposition, making it a treasure trove for capturing striking images. Some of the places we really liked visiting were:
 
@@ -30,7 +30,7 @@ While in Hong Kong, we unexpectedly encountered two French tourists whom we had 
 
 We spent 6 full days to explore Hong Kong, and it was great for us as we slowed down, and had some time for our son to play his heart out in some indoor playgrounds, but for others, maybe 3-4 days is plenty to visit most of what Hong Kong has to offer. One could also take some day-trips to Macau or Shenzen, or do hiking around the islands, and visit beaches. Overall, I was pleasantly surprised by how much I liked Hong Kong, and it reminded me of the first time I visited NYC.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh8eVBXSu6TNweutwxJY9rJUuaTe7NLkoLu9jVRcn0rAHwMMliw9K0LcZp803TbAeBIssQIsrF54J5nY6xL9C1HhF47zbefyIzlZlDBd6zk5OES7VKh7DBTCSz3IcxHAHxiZTJD9cihO8iHCK6RY7JNj6Ocd5qkuN_Wh7yWx24Wiaqp_zUd97GLnOnHBetB/w640-h480/R0008006.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh8eVBXSu6TNweutwxJY9rJUuaTe7NLkoLu9jVRcn0rAHwMMliw9K0LcZp803TbAeBIssQIsrF54J5nY6xL9C1HhF47zbefyIzlZlDBd6zk5OES7VKh7DBTCSz3IcxHAHxiZTJD9cihO8iHCK6RY7JNj6Ocd5qkuN_Wh7yWx24Wiaqp_zUd97GLnOnHBetB/)
 
 # Taiwan
 
@@ -40,7 +40,7 @@ We spent a week in Taipei, exploring iconic landmarks such as the Chiang Kai-she
 
 Our fascination with Taiwan had begun long before this trip, sparked by our love for Taiwanese cuisine, introduced to us by the famous Taiwanese chain restaurant, Din Tai Fung. This renowned restaurant chain offers a delectable array of Taiwanese dishes, most notably their signature dumplings. Naturally, we couldn't resist visiting Din Tai Fung in Taiwan, and the food was as sumptuous as we expected. While the menu was similar to the ones in the US, it had its own unique offerings too.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLyKobxOTdyBwdHQ6GyJZdvXy1Ac6yzDxPUzzj-TVdvsM7NHwUyoHy32JTDKv5Stin5mhp4H5FH4cmsbDtU1n4yaTMTF0tHxBr2wvnqNdgjKr76OIhpdLrg87Amc0HalysM23WHkhDVAzYoqFiXjdxpdAWqYM0Fh8BP-UoRxSleXsEQzaBBqu8YC5E1gJx/w640-h496/R0008107.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLyKobxOTdyBwdHQ6GyJZdvXy1Ac6yzDxPUzzj-TVdvsM7NHwUyoHy32JTDKv5Stin5mhp4H5FH4cmsbDtU1n4yaTMTF0tHxBr2wvnqNdgjKr76OIhpdLrg87Amc0HalysM23WHkhDVAzYoqFiXjdxpdAWqYM0Fh8BP-UoRxSleXsEQzaBBqu8YC5E1gJx/)
 
 Taipei's night markets are vibrant and bustling, offering a sensory feast of sights, sounds, and flavors. These markets, such as Shilin Night Market and Raohe Street Night Market, are renowned for their diverse selection of street food, from the iconic stinky tofu to mouthwatering grilled squid and colorful shaved ice desserts. I tried stinky tofu, so you don’t have to. It doesn’t taste much, but as the name implies, the smell is wildly stinky and pungent. The night markets are also much cleaner than the ones in Thailand, which is also pretty famous for its bustling and vibrant night markets.
 

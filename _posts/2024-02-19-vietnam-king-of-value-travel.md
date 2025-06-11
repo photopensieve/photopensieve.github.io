@@ -1,6 +1,6 @@
 # Vietnam: King of Value Travel Destination - Part 1
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBA-R5O9BP2kiXWI3um7vi60-c6boBxPY1kIrSSkqsETvCIZvSiIT6BrBgRSMJgXZv_bcSNz_SGio6KVDUIwiHocqvkWw6RuLHBf-Ct9VrrklDT88WcjLU6fW4fGXMcj4aC4AyfIb7fnkCpCxCh8qFyz5ncwWsSL0C2O0yLgxTjy1tJEVwxdkHcnjc_gog/w640-h480/DSC00177.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBA-R5O9BP2kiXWI3um7vi60-c6boBxPY1kIrSSkqsETvCIZvSiIT6BrBgRSMJgXZv_bcSNz_SGio6KVDUIwiHocqvkWw6RuLHBf-Ct9VrrklDT88WcjLU6fW4fGXMcj4aC4AyfIb7fnkCpCxCh8qFyz5ncwWsSL0C2O0yLgxTjy1tJEVwxdkHcnjc_gog/)
 
 Vietnam is the second stop in our trip to Southeast Asia as part of our round-the-world trip. We stayed close to a month there, but we wished we could have stayed more. We loved the food, the culture, the nature, and the highest bang-for-the-bucks travel experience we’ve ever had!
 
@@ -22,9 +22,9 @@ You can get a lot of bangs for your bucks in Vietnam as a tourist. There are of 
 
 Thailand is often mentioned when it comes to traveling cheap, but in my experience, Vietnam beats that by a good margin. If you like getting a lot of bang for your bucks when traveling, you should put Vietnam at the top of your list! Brian and Carrie, who are a couple traveling full-time, also agree with my assessment in their video [here](https://youtu.be/eo54_Sf96Ps).
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh5KYkiFNBFcWD5BKJpPKE-7VlAiQi0p1BOCNcBL-cLBKjtlojX_iGgDAy-Io2B4_20USyCLDyxn6bsVaEMQX6PBPyoC_oC9xbV1E2sKdhoMQxtHgLUcpZzRpzLNpzDjq7oxS2Z9dolRv5STtq224ymi1ZlH5Kh7qTHKXZsnxaCfQXFWBd30np7Y3j6S92R/w640-h480/R0007539.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh5KYkiFNBFcWD5BKJpPKE-7VlAiQi0p1BOCNcBL-cLBKjtlojX_iGgDAy-Io2B4_20USyCLDyxn6bsVaEMQX6PBPyoC_oC9xbV1E2sKdhoMQxtHgLUcpZzRpzLNpzDjq7oxS2Z9dolRv5STtq224ymi1ZlH5Kh7qTHKXZsnxaCfQXFWBd30np7Y3j6S92R/)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiB9TnagJ3kA-VI8YWcLOocsb7rqyHnlmvQDcSV9mh8GUOhibVcosRbehT-lgaTkI3Sg3OGS4Tnea8Zt8Hajvrh_yvZwhea1XSPCMNbHUv9MZsNTZUog-6BvKrYYdibbrKCtZ8xEIbhpx3JtCnt2CAgBLstiP0cF4Umxolm358qe4SQ-pkJUxdz5K7okGm3/w426-h640/R0007544.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiB9TnagJ3kA-VI8YWcLOocsb7rqyHnlmvQDcSV9mh8GUOhibVcosRbehT-lgaTkI3Sg3OGS4Tnea8Zt8Hajvrh_yvZwhea1XSPCMNbHUv9MZsNTZUog-6BvKrYYdibbrKCtZ8xEIbhpx3JtCnt2CAgBLstiP0cF4Umxolm358qe4SQ-pkJUxdz5K7okGm3/)
 
 ## Ho Chi Minh City
 
@@ -40,7 +40,7 @@ We arrived in Vietnam a few weeks before the lunar new year, aka the “Tet holi
 
 One of the must-visit attractions in HCMC is the War Remnants Museum, which houses a poignant collection vividly portraying the impact of the Vietnam War. Featuring an extensive array of photographs and documents, the exhibits chronicle various aspects of the conflict, offering a visceral understanding of its toll on civilians, soldiers, and the environment. The museum delves into the grim reality of war crimes, notably the My Lai massacre, with exhibits presenting testimonies, photographs, and documentation. Another aspect covered is the devastating use of Agent Orange and chemical warfare, highlighting both the environmental consequences and the long-term health effects on those exposed. Having said all that, the museum is built by the communists, and only tells half of the story, which is nevertheless true, but just keep in mind that it doesn’t discuss the atrocities committed by the Viet Congs and North Vietnam. I will discuss the Vietnam War later in this post.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi3xtT13NTK3LtyvRB0e6C20Y-pU4TkWtv9te9N4hdH5mk0xX_Wwl45kumWmvMEqhZv10iEf5wuwzTliAfzh-1aoY99rjOx9JJ-eGzjoweHalCKDo6e45M-KF8ouw67BTBdBzW2N5HEDZAl4T2v_TBFavD64Toz5wnZaFSDyRSqta4Rs6Odn7S88eCOk7q2/w480-h640/R0007648.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi3xtT13NTK3LtyvRB0e6C20Y-pU4TkWtv9te9N4hdH5mk0xX_Wwl45kumWmvMEqhZv10iEf5wuwzTliAfzh-1aoY99rjOx9JJ-eGzjoweHalCKDo6e45M-KF8ouw67BTBdBzW2N5HEDZAl4T2v_TBFavD64Toz5wnZaFSDyRSqta4Rs6Odn7S88eCOk7q2/)
 
 ## Nha Trang
 
@@ -50,7 +50,7 @@ Nha Trang is a seaside resort town, with plenty of opportunities for beach activ
 
 After Nha Trang, we went up north, but more on that in the second part of the blog.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDPe242xmDCztTSZH8hlGPfGHvu6FM6hq69RhciROIAhbSS1TW9Y-V0kCelwHNomefxIzd-icU9RI122xR4MCGc_rUqFc-xQtDCj3zcpDgTe8Em5T5wPDGWMW6HbEUIAVI0t0VJMgJVx5376GcNmJQ2QiL0fSPDLDQvWx83JxaZomuOg0t2PHy-kmx5a4_/w640-h486/IMG_5601.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDPe242xmDCztTSZH8hlGPfGHvu6FM6hq69RhciROIAhbSS1TW9Y-V0kCelwHNomefxIzd-icU9RI122xR4MCGc_rUqFc-xQtDCj3zcpDgTe8Em5T5wPDGWMW6HbEUIAVI0t0VJMgJVx5376GcNmJQ2QiL0fSPDLDQvWx83JxaZomuOg0t2PHy-kmx5a4_/)
 
 ## Vietnam War
 

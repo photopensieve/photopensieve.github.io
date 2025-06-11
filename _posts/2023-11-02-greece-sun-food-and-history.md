@@ -1,12 +1,12 @@
 # Greece: Sun, Food, and History
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLBmDJGojVeDtMnRmnlu0vBfXMxEOcQzckU8SZlRbZjRrMhAbCi6a0QJ2dXOG7xXw0OJ3ipgfdT-cG20vc6fhtLcCLF3KecqSS5IMRgaxl-5SdbSIXI9_ELnv3uQaUaSkNCV5pweZRC-F6GN20jArBDd_EynZxo_FcTxEnTBvBJPPbTCu0dbiOplz92xbK/w640-h426/R0006207.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLBmDJGojVeDtMnRmnlu0vBfXMxEOcQzckU8SZlRbZjRrMhAbCi6a0QJ2dXOG7xXw0OJ3ipgfdT-cG20vc6fhtLcCLF3KecqSS5IMRgaxl-5SdbSIXI9_ELnv3uQaUaSkNCV5pweZRC-F6GN20jArBDd_EynZxo_FcTxEnTBvBJPPbTCu0dbiOplz92xbK/)
 
 Our final European destination was Greece, which we were visiting for the first time. We took a flight from Hamburg to Chania in Crete on a budget airline called Marabu. The flight was decent, but we had to pay for even a bottle of water! From the chilly and rainy Hamburg, we arrived in the warm and sunny Crete. Quite a change!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNI-HkHsYwRFeEYer_vX_r8hrAxlZ8gMzEoLOvpLl9Syh_M-BmJI-RxZPd4fb4YGq98BPBHlBerW_i7OHea098pI5EStcdqYGhiXlivRdUXzfpNzqlHjrTS3o1UDklk6LYkJ90eHqyEuoRnWNKZk9huIZWz7q5zvWKea3KYIsUaIlHnbd2lCnpUXqyDNHe/w640-h426/R0006036.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNI-HkHsYwRFeEYer_vX_r8hrAxlZ8gMzEoLOvpLl9Syh_M-BmJI-RxZPd4fb4YGq98BPBHlBerW_i7OHea098pI5EStcdqYGhiXlivRdUXzfpNzqlHjrTS3o1UDklk6LYkJ90eHqyEuoRnWNKZk9huIZWz7q5zvWKea3KYIsUaIlHnbd2lCnpUXqyDNHe/)
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXKLuaP_xMrB_XraADJ0CzeHNYZPohemRizYvcLbV7nammzDdW2v3vqOtEGx_shIzVBF2KFqMhczhqea0wofQeBX8p0XtL1meymfKcMvNjnzkIAHDMVHM6nLgYaXaAwsDeGGz6RThngOU51nZD9jHM_BSs5i_d8AVVvCOS3YiGy7GuV6oT3NQ0uihOB8wQ/w480-h640/IMG_4259.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXKLuaP_xMrB_XraADJ0CzeHNYZPohemRizYvcLbV7nammzDdW2v3vqOtEGx_shIzVBF2KFqMhczhqea0wofQeBX8p0XtL1meymfKcMvNjnzkIAHDMVHM6nLgYaXaAwsDeGGz6RThngOU51nZD9jHM_BSs5i_d8AVVvCOS3YiGy7GuV6oT3NQ0uihOB8wQ/)
 
 ## Crete
 
@@ -20,7 +20,7 @@ Heraklion, the largest city in Crete, is famous for the Knossos Palace ruins, a 
 
 The food in Crete was overall amazing, but we had the most sumptuous food at a restaurant in Heraklion called Apiri Greek Eatery. I'm usually not a fan of seafood, especially specialties like octopus, but the grilled octopus there was incredibly delicious. We also tried a couple of other outstanding dishes. Sometimes, the food in a good restaurant can surpass even homemade dishes, no matter how great your mom is at cooking. Some chefs have a unique talent for combining ingredients, herbs, and spices to create distinct and delightful flavors. It's truly an art form – the most delicious kind of art, for sure!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiMiUJuuOqeFBh9YWL5NM3l9X_frY4q5UMBYckJNFSeBuvX8z3TQKoBiKEqumM1bvCnsPxIsNhvsmBO8zZOXqZmFtEmTESh_zovlgLlzOXnpMkE9Em1_gzT43OhTvaQ95F_bWMDGPsBahZFVHNwMBEBNO2xbEekRZ-znMZlNtHCbZXdMv1aohRWTwOpDx4a/w640-h314/IMG_4300.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiMiUJuuOqeFBh9YWL5NM3l9X_frY4q5UMBYckJNFSeBuvX8z3TQKoBiKEqumM1bvCnsPxIsNhvsmBO8zZOXqZmFtEmTESh_zovlgLlzOXnpMkE9Em1_gzT43OhTvaQ95F_bWMDGPsBahZFVHNwMBEBNO2xbEekRZ-znMZlNtHCbZXdMv1aohRWTwOpDx4a/)
 
 ## Santorini
 
@@ -38,7 +38,7 @@ Santorini isn't very kid-friendly due to limited relevant activities and numerou
 
 Finally, Santorini is host to several cruise ships on any given day. Even in mid-October, we could see 3-4 cruise ships waiting in the sea. There are so many things wrong with cruise ships, but what bothered me most during these few days was that the ships engines were constantly running, so much so that one day the pollution was coming our way. I checked it up, and cruises have probably the highest carbon footprint compared to other modes of leisure travel - something like 300-500 kg of carbon per day per passenger. It’s ridiculous. I already had a disdain for cruise ships, and this fact made it ever less likely that I hop on a cruise - except for an Antarctica cruise, which is on my bucket list!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikaphvFa6qOkfq0G3hKKMNXDQ0WnBxO9ZgVIVG9F43lcG7pNIxxEJKyINLCtSoTJQfSh4Clir16-xpiVqGKkaR2vuxW0reELxXUlSPaeFespXx_-RFfNlBv4ZD0Q1tV20bxa-7PHen9VbmsmNL8tDANlj4R1OWc6GBF8q4rdDL6IRgYQHjfj3miVDLks1d/w640-h360/R0006286.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikaphvFa6qOkfq0G3hKKMNXDQ0WnBxO9ZgVIVG9F43lcG7pNIxxEJKyINLCtSoTJQfSh4Clir16-xpiVqGKkaR2vuxW0reELxXUlSPaeFespXx_-RFfNlBv4ZD0Q1tV20bxa-7PHen9VbmsmNL8tDANlj4R1OWc6GBF8q4rdDL6IRgYQHjfj3miVDLks1d/)
 
 ## Athens
 

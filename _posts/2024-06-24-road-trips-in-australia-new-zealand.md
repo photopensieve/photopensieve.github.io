@@ -1,6 +1,6 @@
 # Road Trips in Australia and New Zealand
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuls4yIwrTcpJ908C18zKLV5Mw1_qb7ElKqM-xnEAKeL3ihGCLJ_cGoMBlqhGhMUS7wNdNGA6mVz3e5pF7UT7Py8h_rfSjg2ZaOj2CJfVcRsCLHx7k39NqrZxKUEdQJchYJVtRuuQT1IUqw1NYPHD5pd3m2AQflIn4BRgEQM4vl6xDYw_uvnFridFRXWFB/w640-h640/DSC04276.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuls4yIwrTcpJ908C18zKLV5Mw1_qb7ElKqM-xnEAKeL3ihGCLJ_cGoMBlqhGhMUS7wNdNGA6mVz3e5pF7UT7Py8h_rfSjg2ZaOj2CJfVcRsCLHx7k39NqrZxKUEdQJchYJVtRuuQT1IUqw1NYPHD5pd3m2AQflIn4BRgEQM4vl6xDYw_uvnFridFRXWFB/)
 
 Our trip round-the-world trip took us from Europe to the Middle East and Southeast Asia, and ended in Oceania and some of the Pacific Islands. We spent almost a month in Australia and New Zealand, where we went on two road trips. In Australia, we tried "vanlife" for the first time, and it was a blast!
 
@@ -12,13 +12,13 @@ Now, let’s look at animal life on the same time scale: dinosaurs went mostly e
 
 Notably, Australia is home to many marsupials, such as kangaroos and koalas, while the only marsupial outside Australia is the possum, found in North America (we had one in our yard once!). This geological separation has led to the evolution of remarkable animals like the platypus, which baffled scientists at the time, so much that they initially thought it was a prank. Encountering unique plant and animal species in Australia was one of the highlights of our visit.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgdJZP5f9SDduG_uCfys6CAK_rav4b_qwL1qX-k96Q8MbZwhS6cakUhQ2sL75fOHYoxWQscNBuIoGShIXfOQE5Cb7arwdBWaCsTvLqUQ-2NJgLjadjpTgrCLmEDWhiQojqQNYDi-bsxqyGUgqt4cdW9Go4_Ttfmz_p2zHYXfZZ_Hds3J2CRa6FZ0BkZul3W/w512-h640/R0009005.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgdJZP5f9SDduG_uCfys6CAK_rav4b_qwL1qX-k96Q8MbZwhS6cakUhQ2sL75fOHYoxWQscNBuIoGShIXfOQE5Cb7arwdBWaCsTvLqUQ-2NJgLjadjpTgrCLmEDWhiQojqQNYDi-bsxqyGUgqt4cdW9Go4_Ttfmz_p2zHYXfZZ_Hds3J2CRa6FZ0BkZul3W/)
 
 ## Sydney
 
 Our Aussie adventure began in Sydney, where, by coincidence, my cousin and his wife were also visiting for work from Canada, and we planned our visit so we can spend some time together. We arrived in Australia during the autumn, so the weather in Sydney was unpredictable, with occasional rain, but overall it was pleasant. Sydney's public transportation was top-notch, clearly designed to make the city very livable. We visited Sydney Zoo and enjoyed seeing rare Australian wildlife up close, including echidnas, platypuses, koalas, and kangaroos. The iconic Sydney Opera House was, of course, the main photography attraction, and I tried shooting it from different angles. Overall, I would say Sydney is a great city to live in, but there is not much to see as a tourist, so a few days is enough to see its main attractions.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZGGrj6-cRgYeVxbUmDm0FKnTFOFR54-XCmJnz0BOmalIiJ2UhM6NRyAYn6bpabOeq5XanXyFpZA-_tVIk3uQfj8v8NsOJfv5YlRWFhk-yifVqPrwPw1yn66ZJfIpjcry8Lr5X3QQnIt0djATIQGmFRlCqsg8lTluowRBDEk3gOy8bd8n2_j9tx64KTRJV/w480-h640/DSC03901.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZGGrj6-cRgYeVxbUmDm0FKnTFOFR54-XCmJnz0BOmalIiJ2UhM6NRyAYn6bpabOeq5XanXyFpZA-_tVIk3uQfj8v8NsOJfv5YlRWFhk-yifVqPrwPw1yn66ZJfIpjcry8Lr5X3QQnIt0djATIQGmFRlCqsg8lTluowRBDEk3gOy8bd8n2_j9tx64KTRJV/)
 
 ## Vanlife in Sunshine Coast
 
@@ -48,13 +48,13 @@ We spent a few nights near Caloundra, enjoying walks along the golden coast and 
 
 Australia is one of the best destinations in the world for camping and overlanding, and for a good reason. We had an amazing time visiting, and I’m sure we will come back to visit more of Australia in the future. Overall, I really enjoyed the quality of life in Australia, and I think it is one of the best places to live in the world.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhF2ks_GkpnC85lPGF9VA4NQbacHSOACzc0V67PkufJJtC-EBCBjOZcEeXC6_PgoDXfMIUsdbUEN2hZ_0CFXHai_tEpvUBuJ1Fdj93TglDduh4nu1bULdSRdePdnO33acS2O7jqjX7lSDX_pCPSuWztW4jnJrL1fe7xJhoYnZcMvF5lSFuffYlMr7tJ7KLU/w480-h640/DSC04489.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhF2ks_GkpnC85lPGF9VA4NQbacHSOACzc0V67PkufJJtC-EBCBjOZcEeXC6_PgoDXfMIUsdbUEN2hZ_0CFXHai_tEpvUBuJ1Fdj93TglDduh4nu1bULdSRdePdnO33acS2O7jqjX7lSDX_pCPSuWztW4jnJrL1fe7xJhoYnZcMvF5lSFuffYlMr7tJ7KLU/)
 
 # New Zealand
 
 As the seasons are reversed in the southern hemisphere, our travel in end of May was during the fall season in New Zealand, hence cooler weathers. Since we were not prepared for cold weather travel (and my wife is not a big fan of cold weather anyways), we decided to only stick with the North Island, where the weather was quite a bit warmer than the South Island. We spent a week doing a short road trip, but we know we have to come back for more!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEijFNauMbIaJz7N5YW1DAa4wQFQzp7JRSEnnH0vYJXoY0ytsI7Fs3tou3e_AWSlggdCVWNX9nF6f9sInt9COKf3M-1y7lDJRsKe59jyMPHwPwurHPeZB8dyIo2HtoFZerxv1fgzUjVs36_zcG228XTvZr6Mgh0uj7Yn63sws6hsF5_VUspePNrjQp2nIIOg/w640-h428/DSC04568.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEijFNauMbIaJz7N5YW1DAa4wQFQzp7JRSEnnH0vYJXoY0ytsI7Fs3tou3e_AWSlggdCVWNX9nF6f9sInt9COKf3M-1y7lDJRsKe59jyMPHwPwurHPeZB8dyIo2HtoFZerxv1fgzUjVs36_zcG228XTvZr6Mgh0uj7Yn63sws6hsF5_VUspePNrjQp2nIIOg/)
 
 ## Geology and Geography of New Zealand
 
@@ -71,7 +71,7 @@ The Maori, indigenous to New Zealand, migrated from other South Pacific islands 
 
 Maori’s way of life, however, changed dramatically with the arrival of British settlers in the early 19th century. British colonization led to conflicts and the signing of the Treaty of Waitangi in 1840, which guaranteed Maori rights to their land and resources. However, misunderstandings and breaches of the treaty by the British government led to land confiscations, loss of cultural autonomy, and social upheaval among the Maori. Today, the Maori people have undergone a cultural renaissance, reclaiming their language, traditions, and political voice. Maori is the national language along with English, and Maori people play a significant role in New Zealand's society, with representation in government, education, and the arts.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEixGK6V8d8GXXbnSrncwDbNShygwSTZxYmJdoZrELSJiPDinLf9iSq8hpy7HHZIGJhh4Pfkz0U-_yDEZ82V29QxsydF16rfbXQ5Y9ADZmNLrPDN0OeX2mnfX8fIfmbvA3QHXY_gYZh0LCbnVPYzPIx7ltMHdlO-XvRjta0eZGLPQKcJgsPyYPAXZOrHWnCQ/w640-h428/DSC04422.jpeg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEixGK6V8d8GXXbnSrncwDbNShygwSTZxYmJdoZrELSJiPDinLf9iSq8hpy7HHZIGJhh4Pfkz0U-_yDEZ82V29QxsydF16rfbXQ5Y9ADZmNLrPDN0OeX2mnfX8fIfmbvA3QHXY_gYZh0LCbnVPYzPIx7ltMHdlO-XvRjta0eZGLPQKcJgsPyYPAXZOrHWnCQ/)
 
 ## One week road trip in New Zealand
 
