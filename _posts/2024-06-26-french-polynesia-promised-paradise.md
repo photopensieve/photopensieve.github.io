@@ -64,12 +64,14 @@ Sadly all the motus around Bora Bora are private, and most of the 5-star luxury 
 
 The snorkeling adventure in Bora Bora truly stood out as the highlight of our trip. We swam with sharks, manta rays, stingrays, schools of eagle rays, and among many colorful reef fish. We also explored two vibrant coral gardens filled with diverse fish and stunning corals. I am so happy to have had my DJI Osmo Action camera there to capture these experiences. While I've snorkeled in many places around the world, Bora Bora offered an unparalleled experience that exceeded all expectations.
 
-In Bora Bora, we had to pinch ourselves to believe we weren’t dreaming, and we found ourselves repeatedly marveling at the realization that this truly was the promised paradise we had always imagined!
+In Bora Bora, we had to pinch ourselves to believe we weren’t dreaming, and we found ourselves repeatedly marveling at the realization that this truly was the promised paradise we had always imagined! French Polynesia is one of those rare places that makes you swoon long after you’ve left, pulling you back with the promise of more.
 
-With this, our 9-month-long round-the-world trip came to an end, and we got home. We explored 15 countries, cherished quality time with family, and marveled at some of the most breathtaking places on Earth. It was an unforgettable adventure filled with countless memories that I'm still processing! I will (hopefully) write a few more blog posts about this adventure, and share more insights about it in near future.
+---
 
-# FAQ
+With this, our 9-month-long round-the-world trip came to an end, and we went back home. We explored 15 countries, cherished quality time with family, and marveled at some of the most breathtaking places on Earth. It was an unforgettable adventure filled with countless memories that I'm still processing! I will (hopefully) write a few more blog posts about this adventure, and share more insights about it in near future.
 
-## How expensive is it to travel in French Polynesia?
+## FAQ
+
+### How expensive is it to travel in French Polynesia?
 
 French Polynesia is no doubt an expensive tourist destination due to its remote location, and the prevalence of luxury resorts, especially in well-known spots like Bora Bora. High-end accommodations, gourmet dining, and exclusive activities like private lagoon tours contribute to its reputation for being costly. However, it doesn't have to be prohibitively expensive. In fact, in my experience, it is almost as expensive as Hawaii. Budget-conscious travelers can find more affordable options, such as family-run guesthouses (pensions) or airbnbs, local eateries, and (scarce) public transportation. Additionally, less touristy islands within the archipelago offer a more economical yet equally stunning experience, allowing visitors to enjoy the natural beauty and rich culture of French Polynesia without breaking the bank. There are two other main costs as well: 1) airfare to travel between the islands, though it can be cheaper, if you take a ferry, and 2) activities like snorkeling, 4WD or ATV tours, etc, can be pricey. However, I would not skimp on activities, otherwise there is not much to do in say Bora Bora, and you’ve already paid a lot to get there anyways.
