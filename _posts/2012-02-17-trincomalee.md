@@ -1,17 +1,19 @@
 # Trincomalee
 
-
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgO7wW4vl4vTRB3aUMOkf93Y5YaaXOotEFtBnr8_Ci-rhIqLuCDiuQnGml8QKylBkgFyED_fI_IoezUr8Kb-NXrXd50cpCENRDDsBZuukS9NxMFFSbkjrSplokWGQuMyxlHTQ6j8bIe-L63/s0/photo-777305.JPG)
+![](/img/Trinco/RicePaddy.jpeg)
 
 When I was at the Chennai airport in India, I started planning my trip in Sri Lanka using the Lonely Planet. I read about all the main attractions of Sri Lanka and I figured out that most of them were not what I wanted to visit! Thinking in retrospective about my last trip to India, I figured out that what I enjoyed most were off the beaten tracks in Rajasthan and Gujarat, and not the major tourist attractions. So I thought of a better use for my guidebook: to look where tourists go, and not go there!
 
 So after visiting some of the attractions that I wanted to visit, I decided that it was time to get off the touristy sites. Most of the touristy areas in Sri Lanka are located in the west, south and the center. People go to west and south coasts to bathe and enjoy the beach, and they go to the center to visit the hill country (where the famous tea plantations are), and to visit historical sites above the hill country. But very few tourists make it to the east and the north of the country.
 
-There "was" a very good reason for that till a few years ago: a full-fledged civil conflict was raging on in the north and east till 2009. I don't want to tell the story here, but the conflict was between the LTTE or more famously known as Tamil Tigers, and the government of Sri Lanka. It was a dirty and bloody war between the two, and many people perished during more than two decades of this conflict. So it's not so long, less than three years, that this long conflict has ended and this is why tourists still think it might not be that safe. But I asked around and found out that there are absolutely no problems for travelling to these regions. So over there, it was my best chance to do off the beaten track in Sri Lanka!
+There "was" a very good reason for that till a few years ago: a full-fledged civil conflict was raging on in the north and east till 2009. I don't want to tell the story here, but the conflict was between the LTTE or more famously known as Tamil Tigers, and the government of Sri Lanka. It was a dirty and bloody war between the two, and many people perished during more than two decades of this conflict. So it's not so long, less than three years, that this long conflict has ended and this is why tourists still think it might not be that safe. But I asked around and found out that there are absolutely no problems for traveling to these regions. So over there, it was my best chance to do off the beaten track in Sri Lanka!
 
 But it's not all. The east has some of the best beaches in the country, and I wanted to do some snorkeling as well. So I thought it might be a better place to head to. However, according to LP and the people at the tourist information, this time of the year, monsoon is in full rage in the east. But when I asked around and checked on internet, the east coast was even sunnier than the rest of the country! So I decided to head east to the city of Trincomalee, aka Trinco.
 
 I am going to write more in detail about my trip to the east, as there is little information available in guidebooks and even on internet about it. It might come in handy for some.
+
+![](/img/Trinco/ManWithHat.jpeg)
+
 
 ## Getting to Trincomalee
 
@@ -19,7 +21,7 @@ So from Sigiriya, I took a bus back to Dambulla, and from there, I took a govern
 
 As I knew that the tourist infrastructure is very bad in the east, even in a big city like Trinco, I had reserved a room before. Patrick, the French photographer I met in Negombo, gave me the name of this hotel that he had stayed in. The hotel's name was Green Park Hotel, and it is mentioned in LP. However what is not mentioned in LP is that apart from the expensive 4000 rps plus rooms they have in the main building, they also have a satellite building closeby, where simple rooms with attached bathroom are only for 1500 rps. When I called to book, they gave me the first price, and only when I mentioned the satellite building, they said that there are rooms available there too.
 
-The room was really basic, but clean and ok (no hot shower). The only restaurant in the neighbourhood is in the main building of the hotel. The food is ok, though once it was so spicy that it made me hiccup! But the good thing is that you have free wifi over there!
+The room was really basic, but clean and ok (no hot shower). The only restaurant in the neighborhood is in the main building of the hotel. The food is ok, though once it was so spicy that it made me hiccup! But the good thing is that you have free wifi over there!
 
 ## First Day - Uppuveli Beach
 
@@ -38,6 +40,8 @@ His name was Jaan. He was in his fifties (though he looked younger), and he coul
 We talked and talked for hours with Jaan and Munawwar and other fellas over so many subjects. They were very curious to know about Iran, and once in a while I had to debunk a myth about Iran for them, and they would grow more and more eager to hear. It was a very lively and fun discussion. I really liked that crowd and they seemed to like me, so I thought I should come and stay there, instead of staying in Trinco. I would have better access to a beach there as well.
 
 So I went to see a guesthouse nearby, called Beach Rest House (077 258 51 10), whose owner was a friend of Munawwar. I found a room for 500 rps (without attached bathroom) which was clean and ok, and very cheap. I reserved a room for the day after, and I headed to the Marble Beach.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgO7wW4vl4vTRB3aUMOkf93Y5YaaXOotEFtBnr8_Ci-rhIqLuCDiuQnGml8QKylBkgFyED_fI_IoezUr8Kb-NXrXd50cpCENRDDsBZuukS9NxMFFSbkjrSplokWGQuMyxlHTQ6j8bIe-L63/s0/photo-777305.JPG)
 
 ## Marble Beach
 
