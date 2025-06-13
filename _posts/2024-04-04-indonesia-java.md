@@ -1,4 +1,4 @@
-# Indonesia: Java
+# Indonesia: Java, Cultural Wonders and Natural Spectacles
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDNeF0D2xWo0J_XTtjUiN3AvQxHFJroVkf4Pabb3k57n6GQhVvJn09IVj-brCriyGcb_mxEpmL5RW0o5Tpj52ZHTwMF8e6BqUHpfMQNc5L7Ao4hqAsamUgqOdS6SPrM0F1jg5V0XK3V-tGAsDVLj9rQUOavHodrzlBBlpapf3-VQLfdwvyz8uzQQH8i1JM/)
 
