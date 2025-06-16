@@ -133,15 +133,15 @@ Mantua's relaxed atmosphere, combined with its remarkable artistic treasures and
 ## FAQ
 ### What are the essential tips for driving in Italy?
 - Rent the smallest car that works for you, though not the mini ones, if you're planning to drive on highways. Italian cities have narrow medieval streets and tight parking. A Toyota Corolla is almost a large car in Italy. Let that be a point of comparison for you!
-- Budget extra for rental costs, which are higher than most European countries. Italy's highways (autostrade) have extensive tolls, so keep cash handy and choose the correct payment lane. 
-- Italian drivers follow rules well but tend to tailgate, especially in passing lanes—don't let this intimidate you.
+- Budget extra for rental costs, which are higher than most European countries. Italy's highways (autostrade) have extensive tolls, which can be paid with a credit card as long as you choose the correct payment lane. 
+- Italian drivers follow rules well but tend to tailgate, especially in passing lanes—but don't let this intimidate you.
 - Take advantage of AutoGrill rest stops for excellent coffee and food.
-- Be very careful about **ZTL** (restricted traffic) zones in city centers, which use cameras to fine unauthorized vehicles—research these in advance and ask hotels about permits. We actually got an heavy ZTL ticket almost a year after [our last road trip in Italy in 2022](https://photopensieve.github.io/2022/05/13/amalfi-coast-amazing-stay.html). In this trip, we were super cautious to not get another one.
+- Be very careful about **ZTL** (restricted traffic) zones in city centers, which use cameras to fine unauthorized vehicles—research these in advance and ask hotels about permits. We actually got a heavy ZTL ticket almost a year after [our last road trip in Italy in 2022](https://photopensieve.github.io/2022/05/13/amalfi-coast-amazing-stay.html). In this trip, we were super cautious to not get another one.
 - For parking, remember the color code: white lines are free, blue lines require payment, yellow lines are for residents only.
 
 ### What are your best tips for road tripping with young children?
 - Buy Bluetooth headphones for kids—audio entertainment works better than screens during long drives and reduces motion sickness, and eye strain. 
-- Stop every hour to let them stretch and burn energy. 
+- Stop every hour or so to let them stretch and burn energy. 
 - Engage them with verbal games, storytelling, and travel journals rather than relying solely on devices. 
 - Plan driving segments around their nap times when possible. 
 - Pack plenty of diverse snacks to keep moods stable and energy levels up throughout the journey. 
@@ -152,8 +152,6 @@ These small investments in comfort and entertainment make the difference between
 
 This Italian journey reminded me why the country continues to captivate travelers from around the world. From Lake Garda's dramatic mountain reflections to Val d'Orcia's rolling hills, from Cinque Terre's colorful villages to Tuscany's Renaissance treasures, Italy offers an incredible diversity of experiences within relatively short distances.
 
-The trip reinforced several important travel principles: embrace spontaneous extensions when you discover something special (like extending our Lake Garda stay from one night to two), balance famous destinations with off-the-beaten-path discoveries (Lucca and Mantua were trip highlights), and don't hesitate to adjust plans when crowds overwhelm enjoyment (our Prato decision over extended Florence time).
-
 Most importantly, this journey demonstrated that even after numerous visits to Italy, the country continues revealing new layers of beauty, history, and culture. Whether you're drawn by artistic masterpieces, culinary excellence, natural beauty, or simply the Italian approach to living well, this remarkable country offers experiences that linger long after you've returned home.
 
-The memories of morning light hitting Val d'Orcia's cypress trees, the taste of authentic Tuscan wine in Montalcino, the awe of standing on a 2,000-year-old Roman bridge, and the simple pleasure of discovering Lucca's hidden charms will undoubtedly inspire future Italian adventures. After all, as any Italy enthusiast knows, the question isn't whether you'll return to Italy, but rather which region you'll explore next!
+The memories of morning light hitting Val d'Orcia's cypress trees, the taste of authentic Tuscan wine in Montalcino, the awe of standing on a 2,000-year-old Roman bridge, and the simple pleasure of discovering Lucca's hidden charms will undoubtedly inspire future Italian adventures. After all, as any Italy enthusiast knows, the question isn't whether you'll return to Italy, but rather which region you'll explore next! And I know exactly where...
