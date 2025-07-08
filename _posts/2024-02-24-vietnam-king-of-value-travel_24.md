@@ -71,7 +71,7 @@ With that, our nearly 4-week-long trip to Vietnam ended, and we flew to our next
 
 ## What exotic foods did you try?
 
-Vietnam is famous for its exotic cuisine, and even though I am not an adventurous eater, I tried a couple of things: 1) Rare beef with ant eggs, which was a recipe from the Central Highlands region of Vietnam. The ant eggs didn’t taste like muchl; it was like a sour garnish with some texture. 2) Grilled frog, which surprisingly tasted okay, something in between fish and chicken.
+Vietnam is famous for its exotic cuisine, and even though I am not an adventurous eater, I tried a couple of things: 1) Rare beef with ant eggs, which was a recipe from the Central Highlands region of Vietnam. The ant eggs didn’t taste like much; it was like a sour garnish with some texture. 2) Grilled frog, which surprisingly tasted okay, something in between fish and chicken.
 
 We also tried many different exotic fruits there such as mangosteen, passion fruit, rambutan, longan, pomelo, star apple, guava, dragon fruit and jackfruit, in the order of preference. We didn’t dare to try durian, as the smell is way too strong, but we tried the durian ice cream which had a pretty unpleasant aftertaste.
 
