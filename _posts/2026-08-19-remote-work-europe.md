@@ -1,6 +1,6 @@
 # Working Remotely While Traveling Europe with a Five-Year-Old
 
-![](/img/remote-work/wroclaw.JPG)
+![](/img/RemoteWork/wroclaw.JPG)
 
 Long-term family travel is not new to us. Our first experiment was a [four-month sabbatical in Europe](https://photopensieve.github.io/2022/04/20/sabbaticallong-term-travel-in-europe.html) in 2022, when our son was only one year old, and we traveled to 8 countries all around Europe. Traveling with a one-year-old came with its own challenges, but at that age, he mostly followed the routines and plans we made for him.
 
@@ -18,7 +18,7 @@ The plan seemed reasonable: stay in each city for close to a week, let my wife a
 
 The reality was more complicated. I went out during only about one-third of the mornings; on the others, I either started work earlier or was too exhausted to do much before the workday began. My wife carried most of the daytime childcare, and I sometimes worked even longer hours than I did at home. We made the arrangement work, but it was far from the effortless version of “work from anywhere” that I had imagined.
 
-![](/img/remote-work/itinerary.png)
+![](/img/RemoteWork/itinerary.png)
 
 ## Our Six-Week Route
 
@@ -41,7 +41,7 @@ All of these were destinations I had wanted to visit, and despite the limited ti
 
 I’ll cover the destinations themselves in a separate post, including what we visited and what stood out in each city. Here, I want to focus on what it was like for us to combine family travel with my remote work—how we organized the trip, how the arrangement affected each of us, the challenges we encountered, and what we would do differently.
 
-![](/img/remote-work/flight.JPG)
+![](/img/RemoteWork/flight.JPG)
 
 ## Moving Between Cities
 
@@ -63,7 +63,7 @@ That also meant the amount of time I spent with my son varied considerably. On s
 
 This schedule worked in the narrow sense that I remained available to my team, but it changed the way I experienced every destination. A six-night stay sounds substantial, but when most weekdays are workdays, it may provide only one full weekend and a few mornings for exploration. In Berlin, for example, I had roughly a day and a half to explore with my family. In Prague, I spent most of my time working at the hotel and went out mainly during the weekend and on a couple of mornings.
 
-![](/img/remote-work/tallinn.JPG)
+![](/img/RemoteWork/tallinn.JPG)
 
 ## Three Different Experiences of the Same Trip
 
@@ -103,7 +103,7 @@ I often worked until late at night, sometimes even until midnight, and then went
 
 **Jet lag and poor sleep.** The time change affected me far more than it affected the rest of my family. Our son adjusted almost immediately, and my wife needed only a few days, while I struggled for perhaps ten days or more. I think several things prolonged it: the stress of work, the inverted schedule, and too little daylight. In Berlin, I worked from the hotel library, which was a very dark space, so I spent much of the day without seeing much natural light. At night, I would frequently wake up and be unable to fall asleep again. Together, the poor sleep, late working hours, and limited daylight made the first part of the trip particularly difficult.
 
-![](/img/remote-work/dwarf.JPG)
+![](/img/RemoteWork/dwarf.JPG)
 
 ## What Worked Well
 
