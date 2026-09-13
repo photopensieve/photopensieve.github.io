@@ -94,7 +94,13 @@ The city itself reflected those layers of history. Its architecture carried obvi
 
 During the weekend, a cheese, beer, and wine festival took place right inside this square. We really enjoyed it, and the setting was a large part of the appeal: the festival was surrounded by the beautiful façades, with the old Town Hall in the middle of it all.
 
-Another highlight was the University Museum. Its Aula Leopoldina, built in the eighteenth century, is an extraordinary late-Baroque ceremonial hall where painting, sculpture, and architecture cover nearly every surface. It was smaller than the grand church interior I had seen in Prague, but I found it remarkable that a university had such an elaborate space.
+![](/img/Six-Weeks-Europe/Panorama.jpeg)
+
+I really liked visiting Racławice Panorama, which is a massive 360-degree cyclorama built between 1893 and 1894 as 19th-century mass entertainment—before movies or television existed—to give crowds a thrilling, immersive window into history. Standing in the rotunda, the illusion is breathtaking thanks to an ingenious 3D foreground of real soil and props that blurs the line between physical space and the 114-meter canvas, enhanced by perspective that makes painted figures look true to life. As the synchronized audio commentary guided us through Tadeusz Kościuszko’s victory over Russian forces. Knowing this monument to Polish resilience was hidden away during the communist era makes it a deeply moving testament to Poland's enduring fight for freedom.
+
+Another highlight was the Wroclaw University Museum. Its Aula Leopoldina, built in the eighteenth century, is an extraordinary late-Baroque ceremonial hall where painting, sculpture, and architecture cover nearly every surface. It was smaller than the grand church interior I had seen in Prague, but I found it remarkable that a university had such an elaborate space.
+
+One cool thing about Wroclaw is that it is peppered with hundreds of small bronze gnomes hidden all over the city streets, bridges, and alleyways. Hunting for these quirky little statues, which are uniquely designed for their locations (like a baker gnome outside a bakery or a the professor gnome in front of the university), turned exploring the city into a scavenger hunt for my son!
 
 Poland in general surprised me. People were friendly and often switched to English immediately, even when they spoke only a little. We also enjoyed the food, particularly the pierogi and soups. Wrocław helped make Poland one of the unexpected highlights of the trip.
 
