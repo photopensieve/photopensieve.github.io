@@ -32,27 +32,25 @@ Berlin was the beginning of the journey and also the city I saw the least. We st
 
 On Sunday, we visited some of the typical central sights, although we did not have enough time to see the city properly. What interested me most was Berlin's relationship with World War II. In a way, we started our journey through that history where the war in Europe ended.
 
-Berlin was the capital of Nazi Germany and the scene of its final collapse. After years of bombing, the Soviet assault in April and May 1945 brought devastating street fighting to the city. Hitler died in his bunker, Berlin surrendered, and Germany's final instrument of surrender was signed in Berlin-Karlshorst on May 8. The war continued elsewhere in the world, but in Europe it was over. [The surrender in Berlin](https://www.museum-karlshorst.de/english-the-german-surrender-in-may-1945/) marked the end of a catastrophe whose traces we would keep encountering throughout this trip.
+Berlin was the capital of Nazi Germany and the scene of its final collapse. After years of bombing, the Soviet assault in April and May 1945 brought devastating street fighting to the city. Hitler died in his bunker (which was destroyed after the war, but we visited the area, which is nowadays a residential neighborhood), Berlin surrendered, and Germany's final instrument of surrender was signed in May 8. The war continued elsewhere in the world, but in Europe it was over. [The surrender in Berlin](https://www.museum-karlshorst.de/english-the-german-surrender-in-may-1945/) marked the end of a catastrophe whose traces we would keep encountering throughout this trip.
 
 From Berlin, that story would lead us to Dresden's destruction, the displaced populations of Wrocław, the occupation and ghetto in Kraków, and Finland's resistance to the Soviet invasion. These were different parts of the same war, and visiting the cities made their connections much more tangible.
 
-The destruction also helped explain why Berlin looked so different from the European cities I usually imagine. I associate those cities with old squares, ornate façades, churches, and a fairly continuous historic center. Much of the Berlin I saw felt newer and more modern, with less of that familiar architecture. In that sense, it did not feel very typically European to me. That is an impression from a short visit, of course; Berlin has historic buildings too, but they did not define my experience of the city.
+The destruction also helped explain why Berlin looked so different from the European cities we usually imagine. We associate those cities with old squares, ornate façades, churches, and a fairly continuous historic center. Much of the Berlin I saw felt newer and more modern, with less of that familiar architecture. In that sense, it did not feel very typically European to me. That is an impression from a short visit, of course; Berlin has historic buildings too, but they did not define my experience of the city.
 
 We also visited the Neues Museum to see the [bust of Nefertiti](https://www.smb.museum/en/museums-institutions/aegyptisches-museum-und-papyrussammlung/collection-research/bust-of-nefertiti/). After our [trip to Egypt](https://photopensieve.github.io/2025/03/02/cairo.html), we had wanted to see this beautiful ancient sculpture up close, and we finally did. It was a connection to an entirely different period of history, and to our own earlier travels.
-
-That difference became much clearer when we reached Dresden.
 
 ![](/img/Six-Weeks-Europe/Dresden.jpeg)
 
 ## Dresden: Rebuilding What Was Lost
 
-We had a very pleasant train ride from Berlin to Dresden. We had reserved seats, which were necessary for this journey and made traveling together much easier. On arrival, we checked into Bülow Palais, a beautiful [five-star hotel](https://buelow-palais.de/en/) that cost us only $135 per night. It was a great deal, and a very nice start to our stay.
+We had a very pleasant train ride from Berlin to Dresden. We had reserved seats, which were necessary for this journey and made traveling together much easier. On arrival, we checked into Bülow Palais, a beautiful [five-star hotel](https://buelow-palais.de/en/) that cost us only $135 per night! One of the advantages of visiting off-the-beaten-path destinations is affordability.
 
 Dresden had been the capital of Saxony and a wealthy center long before World War II. The city contained beautiful churches, courtyards, palaces, and public buildings that reflected that history. I was surprised by how grand it was for a relatively small city. We had a full weekend there, and because the historic center was compact, I was able to explore much more than I had in Berlin.
 
 Much of that historic center was destroyed in the Allied bombing of February 1945. I already associated Dresden with the firebombing, partly through Kurt Vonnegut's *Slaughterhouse-Five*, but being there made me want to learn more. I visited the Dresden City Museum, which covered the city's development from the Middle Ages through industrialization and the war.
 
-I was disappointed that the bombing itself occupied a relatively small part of the museum. There were photographs of the aftermath and information about the destruction, but I had expected it to receive more attention. The raids killed approximately 25,000 people and destroyed much of the center. In the days that followed, thousands of recovered bodies were cremated in the Altmarkt because there was no practical way to bury them all.
+I was disappointed that the bombing itself occupied a relatively small part of the museum. There were photographs of the aftermath and information about the destruction, but I had expected it to receive more attention. The raids killed approximately 25,000 people and destroyed much of the center. In the days that followed, thousands of recovered bodies were cremated in the Altmarkt because there was no practical way to bury them all. This was done with the help of the POWs like Kurt Vonnegut, so imagine the long-term impact of such experience.
 
 Walking through that square while knowing what had happened there was unsettling. Today it is once again a central public space, surrounded by everyday city life, but the history beneath it is difficult to forget.
 
@@ -76,7 +74,7 @@ The natural-history galleries were an even bigger success for our son. They incl
 
 ![](/img/Six-Weeks-Europe/Church.jpeg)
 
-Another place that stood out was St. Nicholas Church in Malá Strana—not the church of the same name on the other side of the river in Old Town Square. There were hardly any visitors inside when I went. Its Baroque interior was one of the most beautiful I saw during the trip. The enormous ceiling fresco used perspective and painted architecture to create the illusion that the building opened upward into heaven.
+Another place that stood out was St. Nicholas Church in Malá Strana—not the church of the same name on the other side of the river in Old Town Square. There were hardly any visitors inside when I went. Its Baroque interior was one of the most beautiful I have ever seen in Europe-and I've seen 100+ churches at least. The enormous ceiling fresco used perspective and painted architecture to create the illusion that the building opened upward into heaven.
 
 I spent most weekdays working at the hotel and explored mainly over the weekend and during a couple of mornings, so my experience of Prague was incomplete. Even so, it is a city I would strongly recommend—just preferably outside July and August.
 
@@ -90,25 +88,25 @@ Before World War II, the city was known as Breslau and was part of Germany. Afte
 
 We often imagine a war ending on the day the fighting stops, but the consequences did not end in 1945. Millions of people were uprooted and sent to places they had never considered home. Imagining people being forced from their hometowns and told to call another city home was both sad and difficult to comprehend.
 
-The city itself reflected those layers of history. Its architecture carried obvious German connections, but it had also been rebuilt and reinterpreted as a Polish city. The Market Square is among the larger market squares in Europe and was one of the prettiest we saw during the trip. Beautiful historic buildings surround it, each adding something different to the view. In the middle stands the old Gothic Town Hall, whose elaborate architecture makes it a highlight even among so many striking buildings. [Wrocław's Market Square and Town Hall](https://visitwroclaw.eu/en/atrakcje/market-square-and-town-hall/) were worth spending time around simply for the architecture.
+The city itself reflected those layers of history. Its architecture carried obvious German connections, but it had also been rebuilt and reinterpreted as a Polish city. The Market Square is among the larger market squares in Europe and was one of the prettiest we saw during the trip-arguably more beautiful that the more famous one in Krakow. Beautiful historic buildings surround it, each adding something different to the view. In the middle stands the old Gothic Town Hall, whose elaborate architecture makes it a highlight even among so many striking buildings.
 
-During the weekend, a cheese, beer, and wine festival took place right inside this square. We really enjoyed it, and the setting was a large part of the appeal: the festival was surrounded by the beautiful façades, with the old Town Hall in the middle of it all.
+During the weekend, a "cheese, beer, and wine festival" took place right inside this square. We really enjoyed it, and the setting was a large part of the appeal: the festival was surrounded by the beautiful façades, with the old Town Hall in the middle of it all.
 
 ![](/img/Six-Weeks-Europe/Panorama.jpeg)
 
-I really liked visiting Racławice Panorama, which is a massive 360-degree cyclorama built between 1893 and 1894 as 19th-century mass entertainment—before movies or television existed—to give crowds a thrilling, immersive window into history. Standing in the rotunda, the illusion is breathtaking thanks to an ingenious 3D foreground of real soil and props that blurs the line between physical space and the 114-meter canvas, enhanced by perspective that makes painted figures look true to life. As the synchronized audio commentary guided us through Tadeusz Kościuszko’s victory over Russian forces. Knowing this monument to Polish resilience was hidden away during the communist era makes it a deeply moving testament to Poland's enduring fight for freedom.
+I also really liked visiting Racławice Panorama, which is a massive 360-degree cyclorama built between 1893 and 1894 as 19th-century mass entertainment—before movies or television existed—to give crowds a thrilling, immersive window into history. Standing in the rotunda, the illusion is breathtaking thanks to an ingenious 3D foreground of real soil and props that blurs the line between physical space and the 114-meter canvas, enhanced by perspective that makes painted figures look true to life. As the synchronized audio commentary guided us through Tadeusz Kościuszko’s victory over Russian forces. Knowing this monument to Polish resilience was hidden away during the communist era makes it a deeply moving testament to Poland's enduring fight for freedom.
 
 Another highlight was the Wroclaw University Museum. Its Aula Leopoldina, built in the eighteenth century, is an extraordinary late-Baroque ceremonial hall where painting, sculpture, and architecture cover nearly every surface. It was smaller than the grand church interior I had seen in Prague, but I found it remarkable that a university had such an elaborate space.
 
 One cool thing about Wroclaw is that it is peppered with hundreds of small bronze gnomes hidden all over the city streets, bridges, and alleyways. Hunting for these quirky little statues, which are uniquely designed for their locations (like a baker gnome outside a bakery or a the professor gnome in front of the university), turned exploring the city into a scavenger hunt for my son!
 
-Poland in general surprised me. People were friendly and often switched to English immediately, even when they spoke only a little. We also enjoyed the food, particularly the pierogi and soups. Wrocław helped make Poland one of the unexpected highlights of the trip.
+Poland in general surprised me. People were friendly and often switched to English immediately, even when they spoke only a little (unlike some other notable European countries!). We also enjoyed the food, particularly the pierogi and the soups. Wrocław helped make Poland one of the unexpected highlights of the trip.
 
 ![](/img/Six-Weeks-Europe/Krakow.jpeg)
 
 ## Kraków: History and Time Together
 
-The train from Wrocław to Kraków was on time, comfortable, and had good Wi-Fi. More importantly, Kraków was where the rhythm of the trip changed. We stayed in an Airbnb with my cousin and his wife, who came all the way from Germany to spend time with us, and I took almost the entire stay off, apart from one day of work near the end.
+The train from Wrocław to Kraków was on time, comfortable, and had good Wi-Fi. More importantly, Kraków was where the rhythm of the trip changed. We stayed in an Airbnb with my cousin and his wife, who came all the way from Germany to spend time with us, and I took almost the entire stay off, apart from one day of work at the end.
 
 For the first time since arriving in Europe, the trip felt much closer to a normal family vacation. We walked around the city together, spent time in the Market Square, ate Polish food, and enjoyed the festivals taking place in the center. Our son loved having my cousin and his wife around, particularly because they gave him two more people with whom to share his endless animal stories.
 
@@ -174,7 +172,7 @@ We were fortunate with the weather. The days were mild and pleasant, and we real
 
 The unquestionable highlight for me was the Vasa Museum. The museum is built around an almost complete seventeenth-century warship that sank in Stockholm Harbour on its maiden voyage in 1628. I had high expectations before visiting, and the museum exceeded them.
 
-My first reaction on seeing the ship was amazement at its size. I knew it was large, but seeing it in person was something else. It is enormous—about 69 meters long—and richly decorated with hundreds of sculptures. Today the wood is dark, but the ship was originally covered in bright colors. A vessel like this normally exists for us only as a reconstruction, an illustration, or something created for a film. At the Vasa Museum, the actual 400-year-old ship towers above you.
+My first reaction on seeing the ship was amazement at its size. I knew it was large, but seeing it in person was something else. It is enormous—about 69 meters long—and pretty tall, and richly decorated with hundreds of sculptures. Today the wood is dark, but the ship was originally covered in bright colors. A vessel like this normally exists for us only as a reconstruction, an illustration, or something created for a film. At the Vasa Museum, the actual 400-year-old ship towers above you.
 
 The story of why it sank is also a fascinating engineering failure. Naval architects of the time did not have the mathematical tools we now use to calculate stability. They relied primarily on experience. Vasa's upper structure was too tall and heavy relative to the narrow hull beneath the waterline, leaving the ship dangerously top-heavy.
 
@@ -188,9 +186,7 @@ Conservators sprayed the ship with polyethylene glycol, or PEG, for 17 years, gr
 
 An exhibition about the Titanic made me wonder whether humans might ever do something comparable with that ship. The circumstances are completely different: Titanic lies several kilometers beneath the North Atlantic rather than 32 meters below a sheltered harbor. Perhaps the engineering and economics will never make it possible. Still, it is fascinating to imagine a future museum built around the recovered remains of Titanic in the way this museum was built around Vasa.
 
-The rest of our short visit included walking around Gamla Stan, stopping for fika, and visiting Stockholm City Hall. The Nobel Prize ceremony takes place elsewhere, but the banquet is held in City Hall's Blue Hall, followed by dancing in the Golden Hall. The building was not as old as many of the European monuments we had visited, but its architecture and interiors made it well worth seeing.
-
-My wife and son also visited the Swedish Museum of Natural History while I was working, which he particularly enjoyed.
+The rest of our short visit included walking around Gamla Stan, stopping for fika, having Swedish meat balls (which taste a lot better than IKEA's!), and visiting Stockholm City Hall. The Nobel Prize ceremony takes place elsewhere, but the banquet is held in City Hall's Blue Hall, followed by dancing in the Golden Hall. The building was not as old as many of the European monuments we had visited, but its architecture and interiors made it well worth seeing.
 
 We skipped several major attractions, including the Royal Palace, because there simply was not enough time. Even so, the ferry journey, the archipelago, and the Vasa Museum made Stockholm a memorable end to the trip.
 
@@ -204,43 +200,37 @@ Architecture became the strongest visual thread across the six weeks. Berlin fel
 
 My fascination with helical staircases goes back well before this trip. I had already photographed many around Europe, including in Rome, Lisbon, and London, and I kept looking for them on this journey. The repeating curves and changing perspective make them fascinating subjects. The ultrawide lens was essential for these photographs, allowing me to fit the staircase's sweeping shape into the frame.
 
-I carried my Ricoh with 21mm- and 28mm-equivalent options. Oodi in Helsinki was particularly enjoyable to photograph, and I spent time both inside and outside working with its modern architecture. It was also where I most wished I had brought a telephoto lens. There were details and layered shapes that I wanted to frame with a more compressed perspective, which was difficult with only wide lenses.
+I carried my Ricoh GR3 plus the ultrawide adaptor, giving me equivalent of 21mm focal length. Oodi in Helsinki was particularly enjoyable to photograph, and I spent time both inside and outside working with its modern architecture. It was also where I most wished I had brought a telephoto lens. There were details and layered shapes that I wanted to frame with a more compressed perspective, which was difficult with only wide lenses.
 
-Photography also connects to why I travel at all. The images are not merely illustrations for a post. They help preserve the character of a place and provide a way back into experiences that would otherwise become less distinct over time.
+Having said that, I really enjoyed going so lightweight this time around. Since the main purpose of the trip was work, and I was carrying heavy laptop and monitor with me already, I didn't want to increase my carry by bringing my Sony kit. Ricoh GR3 is a joy to use, and I used it effectively during the few outings I had in each location.
 
-## How AI Became Our Travel Guide and Writing Partner
+## How AI Became Our Travel Guide During the Trip
 
-<!-- OPTIONAL IMAGE: PHONE, AIRPODS, OR TRAVEL-PLANNING SCREEN -->
+As an AI engineer, I work with AI on a daily basis for coding, and software development - much more so this year, than before. Similarly, I also used AI much more heavily on this trip than on any previous one. It was involved before we left, while we were traveling, and even after we came back, writing these posts.
 
-As an AI engineer, I work with AI on a daily basis for coding, and software development - much more so this year, than before. Similarly, I also used AI much more heavily on this trip than on any previous one. It was involved before we left, while we were traveling, and even inside the museums we visited.
+**Planning the trip.** I kept a dedicated conversation containing our itinerary, our reserved accommodations, my work requirements, our son's interests, and our hotel preferences. AI helped research destinations, compare transportation options, and find cafés where I could work. I believe it also suggested the overnight ferry from Helsinki to Stockholm, which became one of our favorite experiences.
 
-**Planning the trip.** I kept a dedicated conversation containing our itinerary, my work requirements, our son's interests, and our hotel preferences. AI helped research destinations, compare transportation options, and find cafés where I could work. I believe it also suggested the overnight ferry from Helsinki to Stockholm, which became one of our favorite experiences.
+For hotels, I still browsed Booking.com, Expedia, or Tripadvisor myself. I then gave AI five to ten candidates and asked it to compare their neighborhoods, facilities, and reviews against our needs-which I provided. Flight searches were less successful; the tools I tried still lacked good access to booking information and useful interfaces.
 
-For hotels, I still browsed Booking.com, Expedia, or Tripadvisor myself. I then gave AI five to ten candidates and asked it to compare their neighborhoods, facilities, and reviews against our needs. Flight searches were less successful; the tools I tried still lacked good access to booking information and useful interfaces.
+**Using AI on the ground.** I asked for activity suggestions and used it as an audio guide inside museums. At the Vasa Museum, for example, I put in my AirPods and dictated questions about the ship, its sinking, and its recovery. I avoided "live voice chat" because background noise could interfere and the answers were often too short. Instead, I used dictation followed by the read-aloud function to hear longer explanations while exploring. This way, AI was my bespoke free-of-charge personal audio guide during the visits!
 
-**Using AI on the ground.** I asked for activity suggestions and used it as an audio guide inside museums. At the Vasa Museum, I put in my AirPods and dictated questions about the ship, its sinking, and its recovery. I avoided "live voice chat" because background noise could interfere and the answers were often too short. Instead, I used dictation followed by the read-aloud function to hear longer explanations while exploring. This way, AI was my bespoke free-of-charge personal audio guide during the visits!
+The conversation already knew my interests in history and photography, so it could connect explanations to my interests, and the places we had visited. I could describe an object or snap a photo and ask about it. The recommendations and explanations still required judgment, but this was a very useful addition to the trip.
 
-The conversation already knew my interests in history and photography, so it could connect explanations to places we had visited. I could describe an object or snap a photo and ask about it. The recommendations and explanations still required judgment, but this was a very useful addition to the trip.
+**Writing the posts.** I tried a totally different approach this time around. During the trip, I recorded voice memos about the destinations and broader topics-when the experience was fresh in my mind. When it came to writing the posts, I asked AI to transcribe them locally, use them as the source of truth, and ask about missing details instead of inventing experiences. I also asked it to read my earlier blog posts to learn my writing style.
 
-**Writing the posts.** During the trip, I recorded voice memos about the destinations and broader topics. I asked AI to transcribe them locally, use them as the source of truth, and ask about missing details instead of inventing experiences. I also asked it to read my earlier blog posts to learn my writing style.
-
-We discussed the structure, split the material into two posts, and edited through conversation. I corrected facts, rewrote unnatural passages, and added family perspectives the memos had missed. Separate agents reviewed the first post for accuracy, style, and reader interest. AI helped with the drafting and revisions; I made the final decisions about the text, photographs, and publication.
+We discussed the structure, split the material into two posts, and edited through conversation. I corrected facts, rewrote unnatural passages, and added family perspectives the memos had missed. Separate agents reviewed the first post for accuracy, style, and reader interest. AI helped with the drafting and revisions; I made the final decisions about the text, photographs, and publication. This was so much easier than writing them on my own!
 
 ![](/img/Six-Weeks-Europe/Flight.jpeg)
 
 ## One Last Mishap on the Journey Home
 
-<!-- OPTIONAL IMAGE: STOCKHOLM AIRPORT OR JOURNEY HOME -->
-
 Our final adventure happened at Stockholm Airport before the flight home.
 
-We had traveled with two carry-on bags, but Icelandair had a strict size limit. On our outbound journey, the bags had been about an inch too wide, and we had been charged a substantial amount. I did not want to repeat that experience, so for the return flight I decided to check both bags instead.
+We had traveled with two carry-on bags, but Icelandair had a strict size limit. On our outbound journey, the bags had been about an inch too wide, and we had been charged a substantial amount (I still hold a grudge against them for that!). I did not want to repeat that experience, so for the return flight I decided to check both bags instead.
 
-Much of the process at the airport was automated. I printed our boarding passes and two luggage tags at a machine, then carried the unattached tags to the self-service bag drop. The screen told me to place a bag on the conveyor, and I did. Then it said to scan the tag, which I did while it was still in my hand, and watched in disbelief as the untagged bag immediately disappeared into the sorting system!
+Much of the process at the airport was automated. I printed our boarding passes and two luggage tags at a machine, then carried the unattached tags to the self-service bag drop. The screen told me to place a bag on the conveyor, and I did. Then it said to scan the tag, which I did (while it was still in my hand), and immediately the untagged bag moved, and disappeared into the sorting system! Such a stupid system. There were no instructions to put the tags on before putting them on the conveyor, and no one to remind people.
 
-Airport staff told me that they could not simply reach in and retrieve it. The bag had entered the larger facility and could take anywhere from 20 minutes to two hours to return. Icelandair staff called the sorting team and said they would let us know when it was found. They also asked whether we intended to fly if the bag did not return in time.
-
-Of course we did. We wanted the luggage back, but we were not going to miss the flight for it.
+Airport staff told me that they could not simply reach in and retrieve it. The bag had entered the larger facility and could take anywhere from 20 minutes to two hours to find and return it. Icelandair staff called the sorting team and said they would let us know when it was found. They also asked whether we intended to fly if the bag did not return in time. We wanted the luggage back, but we were not going to miss the flight for it.
 
 Fortunately, the bag reappeared after about an hour. We attached both tags correctly, checked the luggage, and continued to the gate. We had arrived at the airport two and a half to three hours early, as we usually do, and this was exactly why. I could never have predicted this particular mistake, but extra time saved us from a potential disaster.
 
@@ -252,23 +242,21 @@ After six weeks, it felt very good to be home!
 
 My philosophy of travel is somewhat different from that of many people. I enjoy my work, including the problems I solve as a software engineer working in AI. At the time, building something, debugging an issue, or working through a difficult technical problem can be satisfying.
 
-But in retrospect, much of it compresses. Six months of coding, meetings, and ordinary routines can blend into one another. I know that time passed and that many things happened, but relatively few individual days remain distinct in my memory.
+But in retrospect, much of it compresses. Six weeks of coding, meetings, and ordinary routines can blend into one another, and once you look back, there is nothing to remember!
 
 Travel does the opposite. It expands time.
 
-The new places are part of it, but so are the smaller changes: waking up in a different room, eating a different breakfast, walking an unfamiliar street, taking a train to the next city, or hearing our son tell the same animal story to a new audience. These experiences give the days separate identities.
+The new places are part of it, but so are the smaller changes: waking up in a different room, eating a different breakfast, walking an unfamiliar street, taking a train to the next city, or even working at a café in Tallinn. These experiences give the days separate identities.
 
-Even though I worked five days a week during most of this trip, the six weeks produced a remarkable number of memories. I remember the contrast between Berlin and Dresden, the heat and crowds in Prague, the history beneath Wrocław, our time with family in Kraków, the medieval streets of Tallinn, the architecture of Helsinki, and the moment I first saw the Vasa towering inside its museum. I remember trains, ferries, cafés, museums, breakfasts, ice creams, and the stressful hour when our untagged luggage disappeared into Stockholm Airport. But I remember almost nothing of the six weeks before the trip - and that's why I travel.
-
-The photographs and videos make those memories easier to revisit. This blog serves the same purpose. It gives me somewhere to preserve not only what a place looked like, but what I thought and felt while I was there.
+Even though I worked five days a week during most of this trip, the six weeks produced a remarkable number of memories. I remember the contrast between Berlin and Dresden, the beauty of Prague, the history behind Wrocław, our time with family in Kraków, the medieval streets of Tallinn, the architecture of Helsinki, and the moment I first saw the Vasa towering inside its museum. I remember trains, ferries, cafés, museums, breakfasts, ice creams, and the stressful hour when our untagged luggage disappeared into Stockholm Airport. But I remember almost nothing of the six weeks before the trip - and that's why I travel.
 
 The trip was more difficult that I expected, particularly because of the work schedule, but it gave us something lasting as a family. Years from now, the long working days will probably compress together. This trip and its memories will not.
 
 ## FAQ
 
-**How do you plan these trips? Do you book everything in advance or plan as you go?**
+**How do you plan these long-term trips? Do you book everything in advance or plan as you go?**
 
-This is probably the question I get most often! Here is how I do it: I start with a rough route and an entry point that we want to visit and can reach at a reasonable airfare. If flights to one city are too expensive, I look elsewhere. Having more time gives us more flexibility to choose a route that costs less.
+This is probably the question I get most often! Here is how I do it: I start with a rough idea of where we want to visit. Then I come up with a route, based on many criteria, one being an entry point that we want to visit and can reach at a reasonable airfare, for example. If flights to one city are too expensive, I look elsewhere. Then I finalize a "rough route". When you travel for a longer period time, you have more flexibility to choose a route that costs less.
 
 I usually book transportation and accommodation for the first two to three weeks. Beyond that, we have a general idea of where we want to go, and I arrange the rest while we travel, comparing transport costs and hotels along the way. We mostly follow the original route, but leave room to change it.
 
